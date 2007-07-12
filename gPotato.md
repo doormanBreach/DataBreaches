@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, IP addresses, Names, Passwords, Physic
 
 ## Free download Link
 
-[gPotato breach Free Download Link](https://link-to.net/1229997/93.7696793964956/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RQa3J5a202eTVtSmhjNi9ncG90YXRvLmNvbS9maWxl)
+[gPotato breach Free Download Link](https://tinyurl.com/2b2k277t)
