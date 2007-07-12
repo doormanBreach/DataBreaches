@@ -12,4 +12,4 @@ In July 2007, the multiplayer game portal known as <a href="https://web.archive.
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/980.6535383583214/dynamic/?r=Z3BvdGF0by5jb20=)
+[Download Link](https://link-to.net/1229997/636.3524088093872/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2tpNzBvWlhmelZCSHVkdS9ncG90YXRvLmNvbS9maWxl)
