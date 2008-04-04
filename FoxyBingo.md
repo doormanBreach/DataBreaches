@@ -12,4 +12,4 @@ Account balances, Browser user agent details, Dates of birth, Email addresses, G
 
 ## Free download Link
 
-[FoxyBingo breach Free Download Link](https://link-to.net/1229997/795.0626023379975/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0FnR2lXOHUzV3hnQURiQS9mb3h5YmluZ28uY29tL2ZpbGU=)
+[FoxyBingo breach Free Download Link](https://tinyurl.com/2b2k277t)
