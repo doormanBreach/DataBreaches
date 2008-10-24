@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[BabyNames breach Free Download Link](https://link-to.net/1229997/132.99225642878997/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJIYW56c0c4VWhreVZZSS9iYWJ5bmFtZXMuY29tL2ZpbGU=)
+[BabyNames breach Free Download Link](https://tinyurl.com/2b2k277t)
