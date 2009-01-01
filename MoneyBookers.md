@@ -12,4 +12,4 @@ Sometime in 2009, the e-wallet service known as Money Bookers <a href="http://ww
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/718.5347303173105/dynamic/?r=bW9uZXlib29rZXJzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/759.3577175155639/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3FKWFBwRGs0OFFNaHlxWS9tb25leWJvb2tlcnMuY29tL2ZpbGU=)
