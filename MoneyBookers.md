@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Names, Phone numbers, Physical ad
 
 ## Free download Link
 
-[MoneyBookers breach Free Download Link](https://link-to.net/1229997/122.13044319054333/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3JtRVhFV2JmYm1xM1Zlby9tb25leWJvb2tlcnMuY29tL2ZpbGU=)
+[MoneyBookers breach Free Download Link](https://tinyurl.com/2b2k277t)
