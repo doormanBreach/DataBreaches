@@ -12,4 +12,4 @@ Email addresses, Employers, Geographic locations, Passwords, Phone numbers, User
 
 ## Free download Link
 
-[Elance breach Free Download Link](https://link-to.net/1229997/250.81791890137285/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZzVHk5RFJodEkyZEZtRy9lbGFuY2UuY29tL2ZpbGU=)
+[Elance breach Free Download Link](https://tinyurl.com/2b2k277t)
