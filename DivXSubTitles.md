@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[DivXSubTitles breach Free Download Link](https://link-to.net/1229997/546.314239500965/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pMYUVzSW5RSEdkZHo4aS9kaXZ4c3VidGl0bGVzLm5ldC9maWxl)
+[DivXSubTitles breach Free Download Link](https://tinyurl.com/2b2k277t)
