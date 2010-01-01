@@ -12,4 +12,4 @@ In approximately 2010, the now defunct website DivX SubTitles suffered a data br
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/727.1136652149488/dynamic/?r=ZGl2eHN1YnRpdGxlcy5uZXQ=)
+[Download Link](https://link-to.net/1229997/374.7473666627369/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2t0Y3NSUEVDcHZ2SkVkMC9kaXZ4c3VidGl0bGVzLm5ldC9maWxl)
