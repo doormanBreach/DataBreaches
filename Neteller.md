@@ -12,4 +12,4 @@ Account balances, Dates of birth, Email addresses, Genders, IP addresses, Names,
 
 ## Free download Link
 
-[Neteller breach Free Download Link](https://link-to.net/1229997/884.9802501057345/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJRVE5LVlJ0aGQ2RW5yUC9uZXRlbGxlci5jb20vZmlsZQ==)
+[Neteller breach Free Download Link](https://tinyurl.com/2b2k277t)
