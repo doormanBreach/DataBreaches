@@ -12,4 +12,4 @@ In May 2010, the e-wallet service known as Neteller <a href="http://www.forbes.c
 
 ## Links
 
-https://link-to.net/1229997/556.5389978413374/dynamic/?r=bmV0ZWxsZXIuY29t
+[Download Link](https://link-to.net/1229997/96.6916110046413/dynamic/?r=bmV0ZWxsZXIuY29t)
