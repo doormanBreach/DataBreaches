@@ -12,4 +12,4 @@ Account balances, Dates of birth, Email addresses, IP addresses, Names, Phone nu
 
 ## Free download Link
 
-[PaddyPower breach Free Download Link](https://link-to.net/1229997/459.4964638948923/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1hTOUY4Y3ZiMTJPUEJ3OS9wYWRkeXBvd2VyLmNvbS9maWxl)
+[PaddyPower breach Free Download Link](https://tinyurl.com/2b2k277t)
