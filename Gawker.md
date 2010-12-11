@@ -12,4 +12,4 @@ In December 2010, Gawker was attacked by the hacker collective &quot;Gnosis&quot
 
 ## Links
 
-https://link-to.net/1229997/191.43785775236398/dynamic/?r=Z2F3a2VyLmNvbQ==
+[Download Link](https://link-to.net/1229997/740.2044683185601/dynamic/?r=Z2F3a2VyLmNvbQ==)
