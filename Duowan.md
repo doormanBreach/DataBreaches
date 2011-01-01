@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Duowan breach Free Download Link](https://link-to.net/1229997/429.8006425471854/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2JiY3NqcUxmODZFRUZibS9kdW93YW4uY29tL2ZpbGU=)
+[Duowan breach Free Download Link](https://tinyurl.com/2b2k277t)
