@@ -12,4 +12,4 @@ In approximately 2011, data was allegedly obtained from the Chinese gaming websi
 
 ## Links
 
-https://link-to.net/1229997/367.30601795825936/dynamic/?r=ZHVvd2FuLmNvbQ==
+[Download Link](https://link-to.net/1229997/687.7145637483682/dynamic/?r=ZHVvd2FuLmNvbQ==)
