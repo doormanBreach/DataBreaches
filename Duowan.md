@@ -1,15 +1,15 @@
-# Duowan
+# Duowan database leak
 
 ## Description
 
-Date: 2011-01-01
+2011-01-01
 
-Description:
 In approximately 2011, data was allegedly obtained from the Chinese gaming website known as <a href="http://www.duowan.com" target="_blank" rel="noopener">Duowan.com</a> and contained 2.6M accounts. Whilst there is evidence that the data is legitimate, due to the difficulty of emphatically verifying the Chinese breach it has been flagged as &quot;unverified&quot;. The data in the breach contains email addresses, user names and plain text passwords. <a href="https://www.troyhunt.com/handling-chinese-data-breaches-in-have-i-been-pwned/" target="_blank" rel="noopener">Read more about Chinese data breaches in Have I Been Pwned.</a>
 
+## Breached data
 
-['Email addresses', 'Passwords', 'Usernames']
+Email addresses, Passwords, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/204.53195425244007/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1liaXJJNDYzSHk4VWs4dy9kdW93YW4uY29tL2ZpbGU=)
+[Duowan breach Free Download Link](https://link-to.net/1229997/429.8006425471854/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2JiY3NqcUxmODZFRUZibS9kdW93YW4uY29tL2ZpbGU=)
