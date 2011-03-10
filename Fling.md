@@ -12,4 +12,4 @@ In 2011, the self-proclaimed &quot;World's Best Adult Social Network&quot; websi
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/969.5360094890823/dynamic/?r=ZmxpbmcuY29t)
+[Download Link](https://link-to.net/1229997/792.169820764169/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3RGMXBnWmlKcnBreUxjVy9mbGluZy5jb20vZmlsZQ==)
