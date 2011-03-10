@@ -1,15 +1,15 @@
-# Fling
+# Fling database leak
 
 ## Description
 
-Date: 2011-03-10
+2011-03-10
 
-Description:
 In 2011, the self-proclaimed &quot;World's Best Adult Social Network&quot; website known as Fling <a href="http://motherboard.vice.com/read/another-day-another-hack-passwords-and-sexual-desires-for-dating-site-fling" target="_blank" rel="noopener">was hacked and more than 40 million accounts obtained by the attacker</a>. The breached data included highly sensitive personal attributes such as sexual orientation and sexual interests as well as email addresses and passwords stored in plain text.
 
+## Breached data
 
-['Dates of birth', 'Email addresses', 'Genders', 'Geographic locations', 'IP addresses', 'Passwords', 'Phone numbers', 'Sexual fetishes', 'Sexual orientations', 'Usernames', 'Website activity']
+Dates of birth, Email addresses, Genders, Geographic locations, IP addresses, Passwords, Phone numbers, Sexual fetishes, Sexual orientations, Usernames, Website activity
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/792.169820764169/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3RGMXBnWmlKcnBreUxjVy9mbGluZy5jb20vZmlsZQ==)
+[Fling breach Free Download Link](https://link-to.net/1229997/988.2953053212548/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L05DYnBqU09PNFNmRFY2bS9mbGluZy5jb20vZmlsZQ==)
