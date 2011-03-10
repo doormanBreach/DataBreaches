@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Geographic locations, IP addresses, Pa
 
 ## Free download Link
 
-[Fling breach Free Download Link](https://link-to.net/1229997/988.2953053212548/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L05DYnBqU09PNFNmRFY2bS9mbGluZy5jb20vZmlsZQ==)
+[Fling breach Free Download Link](https://tinyurl.com/2b2k277t)
