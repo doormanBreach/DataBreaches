@@ -12,4 +12,4 @@ In 2011, the Chinese e-commerce site <a href="https://www.marbridgeconsulting.co
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/949.4747779626998/dynamic/?r=ZGFuZ2RhbmcuY29t)
+[Download Link](https://link-to.net/1229997/449.88303800762066/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2kzMm9LcTBwV2tZTlhEVy9kYW5nZGFuZy5jb20vZmlsZQ==)
