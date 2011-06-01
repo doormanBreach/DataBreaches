@@ -12,4 +12,4 @@ In mid-2011, the Russian instant messaging service known as  <a href="http://sec
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/729.7453166256356/dynamic/?r=cWlwLnJ1)
+[Download Link](https://link-to.net/1229997/980.6719876622602/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2RpdDRibTdlY0FaT2NaNi9xaXAucnUvZmlsZQ==)
