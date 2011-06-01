@@ -12,4 +12,4 @@ Email addresses
 
 ## Free download Link
 
-[Dangdang breach Free Download Link](https://link-to.net/1229997/639.063235785993/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0lDSzZVNDJUb0JuZHZreC9kYW5nZGFuZy5jb20vZmlsZQ==)
+[Dangdang breach Free Download Link](https://tinyurl.com/2b2k277t)
