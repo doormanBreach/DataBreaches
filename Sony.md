@@ -1,15 +1,15 @@
-# Sony
+# Sony database leak
 
 ## Description
 
-Date: 2011-06-02
+2011-06-02
 
-Description:
 In 2011, Sony suffered breach after breach after breach &mdash; it was a <em>very</em> bad year for them. The breaches spanned various areas of the business ranging from the PlayStation network all the way through to the motion picture arm, Sony Pictures. A SQL Injection vulnerability in <a href="http://www.sonypictures.com" target="_blank" rel="noopener">sonypictures.com</a> lead to <a href="http://www.troyhunt.com/2011/06/brief-sony-password-analysis.html" target="_blank" rel="noopener">tens of thousands of accounts across multiple systems being exposed</a> complete with plain text passwords.
 
+## Breached data
 
-['Dates of birth', 'Email addresses', 'Genders', 'Names', 'Passwords', 'Phone numbers', 'Physical addresses', 'Usernames']
+Dates of birth, Email addresses, Genders, Names, Passwords, Phone numbers, Physical addresses, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/326.84465039193566/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFsNzhvb0drdkJsMmFubi9zb255LmNvbS9maWxl)
+[Sony breach Free Download Link](https://link-to.net/1229997/513.076774634731/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3NnQUZkM243VDltS2Vtei9zb255LmNvbS9maWxl)
