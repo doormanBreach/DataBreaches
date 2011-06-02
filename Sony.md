@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Passwords, Phone numbers, Physi
 
 ## Free download Link
 
-[Sony breach Free Download Link](https://link-to.net/1229997/513.076774634731/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3NnQUZkM243VDltS2Vtei9zb255LmNvbS9maWxl)
+[Sony breach Free Download Link](https://tinyurl.com/2b2k277t)
