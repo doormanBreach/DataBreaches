@@ -12,4 +12,4 @@ In October 2011, the Android Forums website <a href="http://www.pcworld.com/arti
 
 ## Links
 
-https://link-to.net/YOUR_USER/64.47083125187957/dynamic/?r=YW5kcm9pZGZvcnVtcy5jb20=
+https://link-to.net/YOUR_USER/847.6605921516501/dynamic/?r=YW5kcm9pZGZvcnVtcy5jb20=
