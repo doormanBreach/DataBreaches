@@ -12,4 +12,4 @@ Email addresses, Usernames
 
 ## Free download Link
 
-[Dodonew breach Free Download Link](https://link-to.net/1229997/542.5725065141589/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRDZ0ZOOE1GZ2ZuZm5CSS9kb2RvbmV3LmNvbS9maWxl)
+[Dodonew breach Free Download Link](https://tinyurl.com/2b2k277t)
