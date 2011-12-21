@@ -12,4 +12,4 @@ Email addresses, Genders, Nicknames, Partial dates of birth, Passwords, Username
 
 ## Free download Link
 
-[Hemmelig breach Free Download Link](https://link-to.net/1229997/728.0346882651188/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1VrRVdPek1jcHg1YzlWZS9oZW1tZWxpZy5jb20vZmlsZQ==)
+[Hemmelig breach Free Download Link](https://tinyurl.com/2b2k277t)
