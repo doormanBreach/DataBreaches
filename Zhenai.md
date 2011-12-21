@@ -12,4 +12,4 @@ In December 2011, the Chinese dating site known as <a href="http://nic.xjtu.edu.
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/551.6507785406359/dynamic/?r=emhlbmFpLmNvbQ==)
+[Download Link](https://link-to.net/1229997/562.7930035751406/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3had1I2M2NCd09UTTloZy96aGVuYWkuY29tL2ZpbGU=)
