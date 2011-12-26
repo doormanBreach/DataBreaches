@@ -12,4 +12,4 @@ Email addresses, Names, Usernames
 
 ## Free download Link
 
-[Tianya breach Free Download Link](https://link-to.net/1229997/186.44855457984477/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0QxNkc2NFRjMkxCMU5IbC90aWFueWEuY24vZmlsZQ==)
+[Tianya breach Free Download Link](https://tinyurl.com/2b2k277t)
