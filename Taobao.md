@@ -12,4 +12,4 @@ In approximately 2012, it's alleged that the Chinese shopping site known as <a h
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/782.2999089294115/dynamic/?r=dGFvYmFvLmNvbQ==)
+[Download Link](https://link-to.net/1229997/816.7858527532452/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2xBclBEVTFwWWNVdlJEaS90YW9iYW8uY29tL2ZpbGU=)
