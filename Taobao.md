@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Taobao breach Free Download Link](https://link-to.net/1229997/731.7622575175176/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3Lzg1SHhibFlFazlOcVF1Ni90YW9iYW8uY29tL2ZpbGU=)
+[Taobao breach Free Download Link](https://tinyurl.com/2b2k277t)
