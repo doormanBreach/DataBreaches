@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers
 
 ## Free download Link
 
-[VK breach Free Download Link](https://link-to.net/1229997/391.6410332365151/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2VSSjdCSXloMXZFNUx5Ty92ay5jb20vZmlsZQ==)
+[VK breach Free Download Link](https://tinyurl.com/2b2k277t)
