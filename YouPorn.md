@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[YouPorn breach Free Download Link](https://link-to.net/1229997/656.735244140729/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0dVTGswT0locFhySzNpZy95b3Vwb3JuLmNvbS9maWxl)
+[YouPorn breach Free Download Link](https://tinyurl.com/2b2k277t)
