@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Gamigo breach Free Download Link](https://link-to.net/1229997/289.45971663295353/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3BXMkpvTGJVUG0wS21Xby9nYW1pZ28uY29tL2ZpbGU=)
+[Gamigo breach Free Download Link](https://tinyurl.com/2b2k277t)
