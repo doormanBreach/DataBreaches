@@ -12,4 +12,4 @@ In March 2012, the German online game publisher Gamigo <a href="http://www.zdnet
 
 ## Links
 
-https://link-to.net/1229997/677.492220379662/dynamic/?r=Z2FtaWdvLmNvbQ==
+[Download Link](https://link-to.net/1229997/634.9848984686264/dynamic/?r=Z2FtaWdvLmNvbQ==)
