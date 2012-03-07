@@ -12,4 +12,4 @@ In October 2017, the Malaysian website <a href="https://www.lowyat.net/2017/1456
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/954.4308600851346/dynamic/?r=am9ic3RyZWV0LmNvbQ==)
+[Download Link](https://link-to.net/1229997/126.16826505174971/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VCY3RiTlhZbmMxVEVjYS9qb2JzdHJlZXQuY29tL2ZpbGU=)
