@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames, Website activity
 
 ## Free download Link
 
-[Lastfm breach Free Download Link](https://link-to.net/1229997/14.021961201604928/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1J5UXltNlRZMm0xWGQxUC9sYXN0LmZtL2ZpbGU=)
+[Lastfm breach Free Download Link](https://tinyurl.com/2b2k277t)
