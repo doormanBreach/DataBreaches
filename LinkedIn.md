@@ -12,4 +12,4 @@ In May 2016, <a href="https://www.troyhunt.com/observations-and-thoughts-on-the-
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/350.7927206606922/dynamic/?r=bGlua2VkaW4uY29t)
+[Download Link](https://link-to.net/1229997/483.31982598161403/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2U4YU1VR2oyM2V3eU9nMi9saW5rZWRpbi5jb20vZmlsZQ==)
