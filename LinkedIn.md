@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[LinkedIn breach Free Download Link](https://link-to.net/1229997/590.8390063931254/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0lXcG05SkZpb1c0dUxvaC9saW5rZWRpbi5jb20vZmlsZQ==)
+[LinkedIn breach Free Download Link](https://tinyurl.com/2b2k277t)
