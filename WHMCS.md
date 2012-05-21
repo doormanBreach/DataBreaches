@@ -12,4 +12,4 @@ Email addresses, Email messages, Employers, IP addresses, Names, Partial credit 
 
 ## Free download Link
 
-[WHMCS breach Free Download Link](https://link-to.net/1229997/467.5587169964279/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01hcGNLa0hRQTVaMHVDRS93aG1jcy5jb20vZmlsZQ==)
+[WHMCS breach Free Download Link](https://tinyurl.com/2b2k277t)
