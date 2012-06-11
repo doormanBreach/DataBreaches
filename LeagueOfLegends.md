@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[LeagueOfLegends breach Free Download Link](https://link-to.net/1229997/263.95868837113545/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3pHSEVMV3daUTBqWVI4Ty9sZWFndWVvZmxlZ2VuZHMuY29tL2ZpbGU=)
+[LeagueOfLegends breach Free Download Link](https://tinyurl.com/2b2k277t)
