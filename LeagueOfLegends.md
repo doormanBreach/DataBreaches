@@ -12,4 +12,4 @@ In June 2012, the multiplayer online game <a href="https://www.cio.com/article/2
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/528.9998323004221/dynamic/?r=bGVhZ3Vlb2ZsZWdlbmRzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/694.4305431802208/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0Fjc25uZkpwSU8zZGtsRC9sZWFndWVvZmxlZ2VuZHMuY29tL2ZpbGU=)
