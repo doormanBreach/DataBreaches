@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Dropbox breach Free Download Link](https://link-to.net/1229997/37.28521265369433/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1dLSmpNTUV3NGpKc0Y5RS9kcm9wYm94LmNvbS9maWxl)
+[Dropbox breach Free Download Link](https://tinyurl.com/2b2k277t)
