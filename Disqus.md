@@ -12,4 +12,4 @@ In October 2017, the blog commenting service <a href="https://blog.disqus.com/se
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/635.1792328318957/dynamic/?r=ZGlzcXVzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/587.904587951189/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2RYTnl2T0J3NE5FN1BKRC9kaXNxdXMuY29tL2ZpbGU=)
