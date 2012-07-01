@@ -12,4 +12,4 @@ In mid-2012, Dropbox suffered a data breach which exposed the stored credentials
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/69.52551793226559/dynamic/?r=ZHJvcGJveC5jb20=)
+[Download Link](https://link-to.net/1229997/837.6017529388764/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1lJUGZoSFk5SXpJNnF5Si9kcm9wYm94LmNvbS9maWxl)
