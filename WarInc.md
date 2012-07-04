@@ -12,4 +12,4 @@ In mid-2012, the real-time strategy game <a href="http://thewarinc.com" target="
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/312.1718120022625/dynamic/?r=dGhld2FyaW5jLmNvbQ==)
+[Download Link](https://link-to.net/1229997/84.76510773193912/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2VqeTduenp6YWZ4dGVLNS90aGV3YXJpbmMuY29tL2ZpbGU=)
