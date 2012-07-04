@@ -1,15 +1,15 @@
-# WarInc
+# WarInc database leak
 
 ## Description
 
-Date: 2012-07-04
+2012-07-04
 
-Description:
 In mid-2012, the real-time strategy game <a href="http://thewarinc.com" target="_blank" rel="noopener">War Inc.</a> suffered a data breach. The attack resulted in the exposure of over 1 million accounts including usernames, email addresses and salted MD5 hashes of passwords.
 
+## Breached data
 
-['Email addresses', 'Passwords', 'Usernames', 'Website activity']
+Email addresses, Passwords, Usernames, Website activity
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/84.76510773193912/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2VqeTduenp6YWZ4dGVLNS90aGV3YXJpbmMuY29tL2ZpbGU=)
+[WarInc breach Free Download Link](https://link-to.net/1229997/416.871871119465/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0hPaUJoSGlRd2cyeG84Mi90aGV3YXJpbmMuY29tL2ZpbGU=)
