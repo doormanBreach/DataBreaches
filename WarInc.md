@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames, Website activity
 
 ## Free download Link
 
-[WarInc breach Free Download Link](https://link-to.net/1229997/416.871871119465/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0hPaUJoSGlRd2cyeG84Mi90aGV3YXJpbmMuY29tL2ZpbGU=)
+[WarInc breach Free Download Link](https://tinyurl.com/2b2k277t)
