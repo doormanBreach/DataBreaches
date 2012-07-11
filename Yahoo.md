@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Yahoo breach Free Download Link](https://link-to.net/1229997/86.84437349284335/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0hBeEx3S2lPMnZjd1FpQi95YWhvby5jb20vZmlsZQ==)
+[Yahoo breach Free Download Link](https://tinyurl.com/2b2k277t)
