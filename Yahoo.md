@@ -12,4 +12,4 @@ In July 2012, Yahoo! had their online publishing service &quot;Voices&quot; comp
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/825.7440497621573/dynamic/?r=eWFob28uY29t)
+[Download Link](https://link-to.net/1229997/285.8828705736055/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RQT0JVbGc5dzRpZXpqby95YWhvby5jb20vZmlsZQ==)
