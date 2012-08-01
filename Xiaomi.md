@@ -12,4 +12,4 @@ In August 2012, <a href="https://thehackernews.com/2014/10/xiaomi-data-breach-ha
 
 ## Links
 
-https://link-to.net/1229997/569.1973081155347/dynamic/?r=eGlhb21pLmNu
+[Download Link](https://link-to.net/1229997/84.50890744634032/dynamic/?r=eGlhb21pLmNu)
