@@ -1,15 +1,15 @@
-# Xiaomi
+# Xiaomi database leak
 
 ## Description
 
-Date: 2012-08-01
+2012-08-01
 
-Description:
 In August 2012, <a href="https://thehackernews.com/2014/10/xiaomi-data-breach-hacker.html" target="_blank" rel="noopener">the Xiaomi user forum website suffered a data breach</a>. In all, 7 million email addresses appeared in the breach although a significant portion of them were numeric aliases on the bbs_ml_as_uid.xiaomi.com domain. Usernames, IP addresses and passwords stored as salted MD5 hashes were also exposed. The data was provided with support from <a href="https://dehashed.com/" target="_blank" rel="noopener">dehashed.com</a>. <a href="https://www.troyhunt.com/handling-chinese-data-breaches-in-have-i-been-pwned/" target="_blank" rel="noopener">Read more about Chinese data breaches in Have I Been Pwned.</a>
 
+## Breached data
 
-['Email addresses', 'IP addresses', 'Passwords', 'Usernames']
+Email addresses, IP addresses, Passwords, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/850.0588430582741/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzMzeUkyN2swTUFiS3d2aC94aWFvbWkuY24vZmlsZQ==)
+[Xiaomi breach Free Download Link](https://link-to.net/1229997/359.12853369388586/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1h3anZ5Yko2Tk8wTU81YS94aWFvbWkuY24vZmlsZQ==)
