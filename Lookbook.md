@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Names, Passwords, Usernames, Webs
 
 ## Free download Link
 
-[Lookbook breach Free Download Link](https://link-to.net/1229997/823.5797679754537/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2RtSVJON1FLdHFhNzE3WC9sb29rYm9vay5udS9maWxl)
+[Lookbook breach Free Download Link](https://tinyurl.com/2b2k277t)
