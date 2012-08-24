@@ -12,4 +12,4 @@ In August 2012, the fashion site <a href="https://www.hackread.com/hacker-sellin
 
 ## Links
 
-https://link-to.net/1229997/521.1386778012427/dynamic/?r=bG9va2Jvb2subnU=
+[Download Link](https://link-to.net/1229997/140.17754780865522/dynamic/?r=bG9va2Jvb2subnU=)
