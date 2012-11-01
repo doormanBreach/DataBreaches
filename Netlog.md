@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Netlog breach Free Download Link](https://link-to.net/1229997/446.80453603088466/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2Jacm9qanpBQzdCT1lyei9uZXRsb2cuY29tL2ZpbGU=)
+[Netlog breach Free Download Link](https://tinyurl.com/2b2k277t)
