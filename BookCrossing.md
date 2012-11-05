@@ -12,4 +12,4 @@ In August 2022, the book social networking site <a href="https://www.bookcrossin
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/223.6900458463915/dynamic/?r=Ym9va2Nyb3NzaW5nLmNvbQ==)
+[Download Link](https://link-to.net/1229997/461.33431208657873/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2hueW95eVZzUEVpbDlvei9ib29rY3Jvc3NpbmcuY29tL2ZpbGU=)
