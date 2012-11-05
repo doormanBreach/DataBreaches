@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Geographic locations, IP addresses, Names, Pass
 
 ## Free download Link
 
-[BookCrossing breach Free Download Link](https://link-to.net/1229997/516.40049221921/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L21zQ3JSeXExMVVVSGw1by9ib29rY3Jvc3NpbmcuY29tL2ZpbGU=)
+[BookCrossing breach Free Download Link](https://tinyurl.com/2b2k277t)
