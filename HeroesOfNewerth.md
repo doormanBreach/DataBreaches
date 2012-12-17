@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[HeroesOfNewerth breach Free Download Link](https://link-to.net/1229997/868.2872155303689/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3NITFQyMDEzakljR1dNMy9oZXJvZXNvZm5ld2VydGguY29tL2ZpbGU=)
+[HeroesOfNewerth breach Free Download Link](https://tinyurl.com/2b2k277t)
