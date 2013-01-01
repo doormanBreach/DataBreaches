@@ -12,4 +12,4 @@ In approximately 2013, the maker of the Draw Something game <a href="https://www
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/225.73669748810144/dynamic/?r=b21ncG9wLmNvbQ==)
+[Download Link](https://link-to.net/1229997/377.1028026625727/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3Lzg4VnE0MUxnbENQVHZENy9vbWdwb3AuY29tL2ZpbGU=)
