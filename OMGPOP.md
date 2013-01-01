@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[OMGPOP breach Free Download Link](https://link-to.net/1229997/750.1266972138599/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFHWG1iT2dUeXduTnpkUy9vbWdwb3AuY29tL2ZpbGU=)
+[OMGPOP breach Free Download Link](https://tinyurl.com/2b2k277t)
