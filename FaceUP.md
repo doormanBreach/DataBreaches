@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Passwords, Phone numbers, Usern
 
 ## Free download Link
 
-[FaceUP breach Free Download Link](https://link-to.net/1229997/120.16655887289728/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L29QZHdXVlB4T3JJTEttRS9mYWNldXAuZGsvZmlsZQ==)
+[FaceUP breach Free Download Link](https://tinyurl.com/2b2k277t)
