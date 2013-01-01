@@ -12,4 +12,4 @@ In 2013 (exact date unknown), the Chinese e-commerce service <a href="https://ec
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/448.37383573862445/dynamic/?r=amQuY29t)
+[Download Link](https://link-to.net/1229997/41.17654849639363/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0lzU3NyY1VWNVlsa1JtSS9qZC5jb20vZmlsZQ==)
