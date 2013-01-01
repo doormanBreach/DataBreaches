@@ -12,4 +12,4 @@ Email addresses, Passwords, Phone numbers, Usernames
 
 ## Free download Link
 
-[JD breach Free Download Link](https://link-to.net/1229997/810.0787618690429/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0RMUngzbHlWRW1Da1BpUS9qZC5jb20vZmlsZQ==)
+[JD breach Free Download Link](https://tinyurl.com/2b2k277t)
