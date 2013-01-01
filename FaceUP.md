@@ -1,15 +1,15 @@
-# FaceUP
+# FaceUP database leak
 
 ## Description
 
-Date: 2013-01-01
+2013-01-01
 
-Description:
 In 2013, the Danish social media site <a href="https://faceup.dk/" target="_blank" rel="noopener">FaceUP</a> suffered a data breach. The incident exposed 87k unique email addresses alongside genders, dates of birth, names, phone numbers and passwords stored as unsalted MD5 hashes. When notified of the incident, FaceUP advised they had identified a SQL injection vulnerability at the time and forced password resets on impacted customers.
 
+## Breached data
 
-['Dates of birth', 'Email addresses', 'Genders', 'Names', 'Passwords', 'Phone numbers', 'Usernames']
+Dates of birth, Email addresses, Genders, Names, Passwords, Phone numbers, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/803.6351396694688/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3RSSThiQmRIOXJ5OHpOVy9mYWNldXAuZGsvZmlsZQ==)
+[FaceUP breach Free Download Link](https://link-to.net/1229997/120.16655887289728/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L29QZHdXVlB4T3JJTEttRS9mYWNldXAuZGsvZmlsZQ==)
