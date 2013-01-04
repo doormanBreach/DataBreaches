@@ -12,4 +12,4 @@ In early 2013, the online fantasy multiplayer game <a href="http://hog.playsnail
 
 ## Links
 
-https://link-to.net/YOUR_USER/789.9984982727558/dynamic/?r=aGVyb2Vzb2ZnYWlhLmNvbQ==
+https://link-to.net/1229997/160.42949597478574/dynamic/?r=aGVyb2Vzb2ZnYWlhLmNvbQ==
