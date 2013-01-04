@@ -12,4 +12,4 @@ Browser user agent details, Email addresses, IP addresses, Usernames, Website ac
 
 ## Free download Link
 
-[HeroesOfGaia breach Free Download Link](https://link-to.net/1229997/350.2498438319298/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0tzTFlranhUTUFwdkxRNi9oZXJvZXNvZmdhaWEuY29tL2ZpbGU=)
+[HeroesOfGaia breach Free Download Link](https://tinyurl.com/2b2k277t)
