@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Tumblr breach Free Download Link](https://link-to.net/1229997/814.8792706658938/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2hTWHA3d3ZsQlFQdUZ2Zi90dW1ibHIuY29tL2ZpbGU=)
+[Tumblr breach Free Download Link](https://tinyurl.com/2b2k277t)
