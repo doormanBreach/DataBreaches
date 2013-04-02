@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames, Website act
 
 ## Free download Link
 
-[DDO breach Free Download Link](https://link-to.net/1229997/849.6648889123325/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25xR0llZ0trMm0zMG9YdS9kZG8uY29tL2ZpbGU=)
+[DDO breach Free Download Link](https://tinyurl.com/2b2k277t)
