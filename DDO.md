@@ -12,4 +12,4 @@ In April 2013, the interactive video game <a href="https://www.ddo.com" target="
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/695.9614119085297/dynamic/?r=ZGRvLmNvbQ==)
+[Download Link](https://link-to.net/1229997/43.6409192708127/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L092RlRPWXRSVUNJMU1IVi9kZG8uY29tL2ZpbGU=)
