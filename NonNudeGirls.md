@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Passwords, Usernames, Website activity
 
 ## Free download Link
 
-[NonNudeGirls breach Free Download Link](https://link-to.net/1229997/770.5101479737359/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1V3cHZkb1laUTBwTFNudi9ub25udWRlZ2lybHMub3JnL2ZpbGU=)
+[NonNudeGirls breach Free Download Link](https://tinyurl.com/2b2k277t)
