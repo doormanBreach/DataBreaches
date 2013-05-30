@@ -12,4 +12,4 @@ Email addresses, Genders, Geographic locations, IP addresses, Partial dates of b
 
 ## Free download Link
 
-[AhaShare breach Free Download Link](https://link-to.net/1229997/259.35376085025376/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJtN2ZWaExlZVBLbG9Qay9haGFzaGFyZS5jb20vZmlsZQ==)
+[AhaShare breach Free Download Link](https://tinyurl.com/2b2k277t)
