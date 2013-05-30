@@ -12,4 +12,4 @@ In May 2013, the torrent site <a href="http://www.ahashare.com">AhaShare.com</a>
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/763.1770147376476/dynamic/?r=YWhhc2hhcmUuY29t)
+[Download Link](https://link-to.net/1229997/906.7061534795034/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3lubTZZR29vMkFraVp6ei9haGFzaGFyZS5jb20vZmlsZQ==)
