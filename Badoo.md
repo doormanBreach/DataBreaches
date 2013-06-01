@@ -12,4 +12,4 @@ In June 2016, <a href="http://motherboard.vice.com/read/another-day-another-hack
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/985.5057279500388/dynamic/?r=YmFkb28uY29t)
+[Download Link](https://link-to.net/1229997/282.9776679777524/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0t1eVlqbEtBMzJkTE8way9iYWRvby5jb20vZmlsZQ==)
