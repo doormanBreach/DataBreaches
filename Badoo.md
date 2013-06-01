@@ -1,15 +1,15 @@
-# Badoo
+# Badoo database leak
 
 ## Description
 
-Date: 2013-06-01
+2013-06-01
 
-Description:
 In June 2016, <a href="http://motherboard.vice.com/read/another-day-another-hack-user-accounts-of-dating-site-badoo" target="_blank" rel="noopener">a data breach allegedly originating from the social website Badoo was found to be circulating amongst traders</a>. Likely obtained several years earlier, the data contained 112 million unique email addresses with personal data including names, birthdates and passwords stored as MD5 hashes. Whilst there are many indicators suggesting Badoo did indeed suffer a data breach, <a href="https://www.troyhunt.com/introducing-unverified-breaches-to-have-i-been-pwned" target="_blank" rel="noopener">the legitimacy of the data could not be emphatically proven</a> so this breach has been categorised as &quot;unverified&quot;.
 
+## Breached data
 
-['Dates of birth', 'Email addresses', 'Genders', 'Names', 'Passwords', 'Usernames']
+Dates of birth, Email addresses, Genders, Names, Passwords, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/282.9776679777524/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0t1eVlqbEtBMzJkTE8way9iYWRvby5jb20vZmlsZQ==)
+[Badoo breach Free Download Link](https://link-to.net/1229997/213.98934286826432/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L05XYzR1cDljUlMwMTRpRi9iYWRvby5jb20vZmlsZQ==)
