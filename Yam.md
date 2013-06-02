@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names, Passwords, Phone numbers, Physical addre
 
 ## Free download Link
 
-[Yam breach Free Download Link](https://link-to.net/1229997/390.08183278460604/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2t4VEZFY2JtQXdaYjNlNy95YW0uY29tL2ZpbGU=)
+[Yam breach Free Download Link](https://tinyurl.com/2b2k277t)
