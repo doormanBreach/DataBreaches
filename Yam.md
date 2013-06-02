@@ -12,4 +12,4 @@ In June 2013, the Taiwanese website <a href="https://twitter.com/StillAzureH/sta
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/363.14556000744045/dynamic/?r=eWFtLmNvbQ==)
+[Download Link](https://link-to.net/1229997/186.42127667494302/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJTb2JxRlVlclcyZlhZZy95YW0uY29tL2ZpbGU=)
