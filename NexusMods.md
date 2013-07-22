@@ -12,4 +12,4 @@ In December 2015, the game modding site Nexus Mods <a href="http://www.nexusmods
 
 ## Links
 
-https://link-to.net/1229997/206.73309818711684/dynamic/?r=bmV4dXNtb2RzLmNvbQ==
+[Download Link](https://link-to.net/1229997/362.1117082118225/dynamic/?r=bmV4dXNtb2RzLmNvbQ==)
