@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[NexusMods breach Free Download Link](https://link-to.net/1229997/210.59407710810873/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZaOW9MUFdmNVNENGFldS9uZXh1c21vZHMuY29tL2ZpbGU=)
+[NexusMods breach Free Download Link](https://tinyurl.com/2b2k277t)
