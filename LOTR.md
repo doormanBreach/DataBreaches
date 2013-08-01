@@ -12,4 +12,4 @@ In August 2013, the interactive video game <a href="https://www.lotro.com" targe
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/384.70738336922136/dynamic/?r=bG90cm8uY29t)
+[Download Link](https://link-to.net/1229997/537.1186678221901/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZIYzJzNGxObzJSOFl4dS9sb3Ryby5jb20vZmlsZQ==)
