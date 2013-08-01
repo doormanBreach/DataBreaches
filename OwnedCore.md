@@ -12,4 +12,4 @@ In approximately August 2013, the World of Warcraft exploits forum known as <a h
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/358.20855094081713/dynamic/?r=T3duZWRDb3JlLmNvbQ==)
+[Download Link](https://link-to.net/1229997/820.5073843131383/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09oZ1dVMzRjOUx2eURzcS9Pd25lZENvcmUuY29tL2ZpbGU=)
