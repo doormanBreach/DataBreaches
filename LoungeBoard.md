@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Passwords, Private messages, Usernames, We
 
 ## Free download Link
 
-[LoungeBoard breach Free Download Link](https://link-to.net/1229997/214.41412508192104/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0piOHhtSjlxV040cEk4Ny9sb3VuZ2Vib2FyZC5uZXQvZmlsZQ==)
+[LoungeBoard breach Free Download Link](https://tinyurl.com/2b2k277t)
