@@ -12,4 +12,4 @@ In April 2019, the social planning website for managing online invitations <a hr
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/946.8335935007084/dynamic/?r=ZXZpdGUuY29t)
+[Download Link](https://link-to.net/1229997/272.33917744236066/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pydUdlTU1uanJlakk5di9ldml0ZS5jb20vZmlsZQ==)
