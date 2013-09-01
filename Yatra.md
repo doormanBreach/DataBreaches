@@ -12,4 +12,4 @@ In September 2013, the Indian bookings website known as <a href="https://www.yat
 
 ## Links
 
-https://link-to.net/1229997/830.0750829804028/dynamic/?r=eWF0cmEuY29t
+[Download Link](https://link-to.net/1229997/58.748831826781476/dynamic/?r=eWF0cmEuY29t)
