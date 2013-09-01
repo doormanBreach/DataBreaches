@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names, Passwords, Phone numbers, Physical addre
 
 ## Free download Link
 
-[Yatra breach Free Download Link](https://link-to.net/1229997/719.5714134090559/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L281ZTNVeDVUMGJqbWpqNy95YXRyYS5jb20vZmlsZQ==)
+[Yatra breach Free Download Link](https://tinyurl.com/2b2k277t)
