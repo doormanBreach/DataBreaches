@@ -1,15 +1,15 @@
-# imgur
+# imgur database leak
 
 ## Description
 
-Date: 2013-09-01
+2013-09-01
 
-Description:
 In September 2013, the online image sharing community <a href="http://www.zdnet.com/article/imgur-reveals-hackers-stole-login-data/" target="_blank" rel="noopener">imgur suffered a data breach</a>. A selection of the data containing 1.7 million email addresses and passwords surfaced more than 4 years later in November 2017. Although imgur stored passwords as SHA-256 hashes, the data in the breach contained plain text passwords suggesting that many of the original hashes had been cracked. imgur advises that they rolled over to bcrypt hashes in 2016.
 
+## Breached data
 
-['Email addresses', 'Passwords']
+Email addresses, Passwords
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/550.8156285989521/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRJaHZaVGdBSG5WQU5iUS9pbWd1ci5jb20vZmlsZQ==)
+[imgur breach Free Download Link](https://link-to.net/1229997/532.8850929052716/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2VCOTZqb0dJb2ZUMFlmMS9pbWd1ci5jb20vZmlsZQ==)
