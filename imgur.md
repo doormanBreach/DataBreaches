@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[imgur breach Free Download Link](https://link-to.net/1229997/532.8850929052716/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2VCOTZqb0dJb2ZUMFlmMS9pbWd1ci5jb20vZmlsZQ==)
+[imgur breach Free Download Link](https://tinyurl.com/2b2k277t)
