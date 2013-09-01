@@ -12,4 +12,4 @@ In September 2013, the online image sharing community <a href="http://www.zdnet.
 
 ## Links
 
-https://link-to.net/YOUR_USER/948.0556627745342/dynamic/?r=aW1ndXIuY29t
+https://link-to.net/1229997/886.3986763696398/dynamic/?r=aW1ndXIuY29t
