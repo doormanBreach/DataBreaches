@@ -12,4 +12,4 @@ Email addresses, Instant messenger identities, IP addresses, Names, Passwords, P
 
 ## Free download Link
 
-[Win7Vista breach Free Download Link](https://link-to.net/1229997/658.2240250937017/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJNeXJzMVJmTThabjEyYi93aW43dmlzdGEuY29tL2ZpbGU=)
+[Win7Vista breach Free Download Link](https://tinyurl.com/2b2k277t)
