@@ -12,4 +12,4 @@ In late 2013, the <a href="http://crackcommunity.com" target="_blank" rel="noope
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/478.427324722598/dynamic/?r=Y3JhY2tjb21tdW5pdHkuY29t)
+[Download Link](https://link-to.net/1229997/587.555190613578/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0tPaWFZZThselFVZ1d6dy9jcmFja2NvbW11bml0eS5jb20vZmlsZQ==)
