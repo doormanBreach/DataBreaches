@@ -12,4 +12,4 @@ In October 2013, 153 million Adobe accounts were breached with each containing a
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/481.3722984766089/dynamic/?r=YWRvYmUuY29t)
+[Download Link](https://link-to.net/1229997/573.3172492814193/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01UMGpTdWZyM2dGQWVDdy9hZG9iZS5jb20vZmlsZQ==)
