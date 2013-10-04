@@ -12,4 +12,4 @@ Email addresses, Password hints, Passwords, Usernames
 
 ## Free download Link
 
-[Adobe breach Free Download Link](https://link-to.net/1229997/152.07862781537463/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZzUWF4MFVINFVKNWJjQi9hZG9iZS5jb20vZmlsZQ==)
+[Adobe breach Free Download Link](https://tinyurl.com/2b2k277t)
