@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[MechoDownload breach Free Download Link](https://link-to.net/1229997/339.06170014730475/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L21VQUtVZ25mZDBsSnYwcS9tZWNob2Rvd25sb2FkLmNvbS9maWxl)
+[MechoDownload breach Free Download Link](https://tinyurl.com/2b2k277t)
