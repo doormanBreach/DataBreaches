@@ -12,4 +12,4 @@ In October 2013, the (now defunct) downloads website &quot;Mecho Download&quot; 
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/16.18266995573281/dynamic/?r=bWVjaG9kb3dubG9hZC5jb20=)
+[Download Link](https://link-to.net/1229997/152.53077908961387/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1IyQlV6SzY1eVdPMXlPcC9tZWNob2Rvd25sb2FkLmNvbS9maWxl)
