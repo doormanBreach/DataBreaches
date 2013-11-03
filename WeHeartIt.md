@@ -12,4 +12,4 @@ In November 2013, the image-based social network <a href="http://help.weheartit.
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/853.2042368547067/dynamic/?r=d2VoZWFydGl0LmNvbQ==)
+[Download Link](https://link-to.net/1229997/59.99814841487916/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2I3MmQxY3JuU3hzWXVxRy93ZWhlYXJ0aXQuY29tL2ZpbGU=)
