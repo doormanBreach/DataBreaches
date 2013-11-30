@@ -12,4 +12,4 @@ In November 2013, <a href="http://thehackernews.com/2013/11/vodafone-iceland-hac
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/897.190047886341/dynamic/?r=dm9kYWZvbmUuaXM=)
+[Download Link](https://link-to.net/1229997/430.82529239467027/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzF5RG9wV1JFbkJHa3oxVS92b2RhZm9uZS5pcy9maWxl)
