@@ -1,15 +1,15 @@
-# Vodafone
+# Vodafone database leak
 
 ## Description
 
-Date: 2013-11-30
+2013-11-30
 
-Description:
 In November 2013, <a href="http://thehackernews.com/2013/11/vodafone-iceland-hacked-and-exposed.html" target="_blank" rel="noopener">Vodafone in Iceland suffered an attack</a> attributed to the Turkish hacker collective &quot;Maxn3y&quot;. The data was consequently publicly exposed and included user names, email addresses, social security numbers, SMS message, server logs and passwords from a variety of different internal sources.
 
+## Breached data
 
-['Credit cards', 'Email addresses', 'Government issued IDs', 'IP addresses', 'Names', 'Passwords', 'Phone numbers', 'Physical addresses', 'Purchases', 'SMS messages', 'Usernames']
+Credit cards, Email addresses, Government issued IDs, IP addresses, Names, Passwords, Phone numbers, Physical addresses, Purchases, SMS messages, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/430.82529239467027/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzF5RG9wV1JFbkJHa3oxVS92b2RhZm9uZS5pcy9maWxl)
+[Vodafone breach Free Download Link](https://link-to.net/1229997/725.8323895199698/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3V4WWNxaU9lRVRUNnJ4SS92b2RhZm9uZS5pcy9maWxl)
