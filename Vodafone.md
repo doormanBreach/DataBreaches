@@ -12,4 +12,4 @@ Credit cards, Email addresses, Government issued IDs, IP addresses, Names, Passw
 
 ## Free download Link
 
-[Vodafone breach Free Download Link](https://link-to.net/1229997/725.8323895199698/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3V4WWNxaU9lRVRUNnJ4SS92b2RhZm9uZS5pcy9maWxl)
+[Vodafone breach Free Download Link](https://tinyurl.com/2b2k277t)
