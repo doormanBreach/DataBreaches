@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[PixelFederation breach Free Download Link](https://link-to.net/1229997/274.18852857798294/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2lxdHVkOHA2ZWpHVlU3dS9waXhlbGZlZGVyYXRpb24uY29tL2ZpbGU=)
+[PixelFederation breach Free Download Link](https://tinyurl.com/2b2k277t)
