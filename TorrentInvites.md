@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames, Website act
 
 ## Free download Link
 
-[TorrentInvites breach Free Download Link](https://link-to.net/1229997/950.1643935223867/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2VMbkxOUTNuSjBVTkJyaS90b3JyZW50LWludml0ZXMuY29tL2ZpbGU=)
+[TorrentInvites breach Free Download Link](https://tinyurl.com/2b2k277t)
