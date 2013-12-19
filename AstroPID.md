@@ -12,4 +12,4 @@ Email addresses, Instant messenger identities, IP addresses, Names, Passwords, P
 
 ## Free download Link
 
-[AstroPID breach Free Download Link](https://link-to.net/1229997/925.0617752903337/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3Lzd1RVZIUXFiWTgzMVhMOC9hc3Ryb3BpZC5jb20vZmlsZQ==)
+[AstroPID breach Free Download Link](https://tinyurl.com/2b2k277t)
