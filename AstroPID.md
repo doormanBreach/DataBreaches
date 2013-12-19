@@ -12,4 +12,4 @@ In December 2013, the vBulletin forum for the social engineering site known as "
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/76.30509887281856/dynamic/?r=YXN0cm9waWQuY29t)
+[Download Link](https://link-to.net/1229997/384.8631674272428/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3gxR3JCMTN4Y0tBSDgwYi9hc3Ryb3BpZC5jb20vZmlsZQ==)
