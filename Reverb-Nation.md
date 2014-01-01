@@ -12,4 +12,4 @@ In January 2014, the online service for assisting musicians to build their caree
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/524.5708954690726/dynamic/?r=cmV2ZXJibmF0aW9uLmNvbQ==)
+[Download Link](https://link-to.net/1229997/733.7152244504128/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VuSmxPRXVqTHRteUU0ci9yZXZlcmJuYXRpb24uY29tL2ZpbGU=)
