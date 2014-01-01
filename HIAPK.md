@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[HIAPK breach Free Download Link](https://link-to.net/1229997/246.07248463582465/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0c0SjB0djB6ZGJPeTVUaC9oaWFway5jb20vZmlsZQ==)
+[HIAPK breach Free Download Link](https://tinyurl.com/2b2k277t)
