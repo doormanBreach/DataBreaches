@@ -1,15 +1,15 @@
-# ThisHabboForum
+# ThisHabboForum database leak
 
 ## Description
 
-Date: 2014-01-01
+2014-01-01
 
-Description:
 In 2014, the ThisHabbo forum (a fan site for Habbo.com, a Finnish social networking site) <a href="https://www.google.com/search?q="thishabbo_forum.txt" target="_blank" rel="noopener">appeared among a list of compromised sites</a> which has subsequently been removed from the internet. Whilst the actual date of the exploit is not clear, the breached data includes usernames, email addresses, IP addresses and salted hashes of passwords. A further 584k records were added from a more comprehensive breach file provided in October 2016.
 
+## Breached data
 
-['Email addresses', 'IP addresses', 'Passwords', 'Usernames']
+Email addresses, IP addresses, Passwords, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/659.6878203849127/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0xMckdhOXFCS1hQT0djeS90aGlzaGFiYm9mb3J1bS5jb20vZmlsZQ==)
+[ThisHabboForum breach Free Download Link](https://link-to.net/1229997/428.35196183830203/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRTMUhJOEthUUdNcHpyWC90aGlzaGFiYm9mb3J1bS5jb20vZmlsZQ==)
