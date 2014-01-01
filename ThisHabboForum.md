@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[ThisHabboForum breach Free Download Link](https://link-to.net/1229997/428.35196183830203/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRTMUhJOEthUUdNcHpyWC90aGlzaGFiYm9mb3J1bS5jb20vZmlsZQ==)
+[ThisHabboForum breach Free Download Link](https://tinyurl.com/2b2k277t)
