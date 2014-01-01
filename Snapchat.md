@@ -12,4 +12,4 @@ In January 2014 just one week after <a href="http://gibsonsec.org/snapchat/fulld
 
 ## Links
 
-https://link-to.net/YOUR_USER/876.1933436702408/dynamic/?r=c25hcGNoYXQuY29t
+https://link-to.net/YOUR_USER/353.70101789310473/dynamic/?r=c25hcGNoYXQuY29t
