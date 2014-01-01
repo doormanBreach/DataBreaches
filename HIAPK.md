@@ -12,4 +12,4 @@ In approximately 2014, it's alleged that the Chinese Android store known as <a h
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/241.52967376100477/dynamic/?r=aGlhcGsuY29t)
+[Download Link](https://link-to.net/1229997/183.65875658326803/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0c1bTY2MjdMbWtjZnlBTC9oaWFway5jb20vZmlsZQ==)
