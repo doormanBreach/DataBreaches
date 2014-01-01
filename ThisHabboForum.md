@@ -12,4 +12,4 @@ In 2014, the ThisHabbo forum (a fan site for Habbo.com, a Finnish social network
 
 ## Links
 
-https://link-to.net/YOUR_USER/964.649782271576/dynamic/?r=dGhpc2hhYmJvZm9ydW0uY29t
+https://link-to.net/YOUR_USER/315.72105191152775/dynamic/?r=dGhpc2hhYmJvZm9ydW0uY29t
