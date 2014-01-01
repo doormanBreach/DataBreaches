@@ -12,4 +12,4 @@ Geographic locations, Phone numbers, Usernames
 
 ## Free download Link
 
-[Snapchat breach Free Download Link](https://link-to.net/1229997/138.09471038744536/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRVd1VUY0RLb2k4cHFWdi9zbmFwY2hhdC5jb20vZmlsZQ==)
+[Snapchat breach Free Download Link](https://tinyurl.com/2b2k277t)
