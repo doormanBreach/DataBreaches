@@ -12,4 +12,4 @@ In January 2014, the <a href="http://www.wptapl.com" target="_blank" rel="noopen
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/651.4293791310915/dynamic/?r=d3B0YXBsLmNvbQ==)
+[Download Link](https://link-to.net/1229997/550.3188866384744/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0x6OTVxWjRsZlp6dDRVQy93cHRhcGwuY29tL2ZpbGU=)
