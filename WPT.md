@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[WPT breach Free Download Link](https://link-to.net/1229997/7.013088815200685/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3Zvd0gyZEhyNWFtVFNVeC93cHRhcGwuY29tL2ZpbGU=)
+[WPT breach Free Download Link](https://tinyurl.com/2b2k277t)
