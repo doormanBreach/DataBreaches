@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[BTSec breach Free Download Link](https://link-to.net/1229997/794.7009217966396/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0N2SHM2cFlIeTJ5UVVvUy9mb3J1bS5idGNzZWMuY29tL2ZpbGU=)
+[BTSec breach Free Download Link](https://tinyurl.com/2b2k277t)
