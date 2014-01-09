@@ -12,4 +12,4 @@ In September 2014, a large dump of nearly 5M usernames and passwords was <a href
 
 ## Links
 
-https://link-to.net/1229997/890.821854750643/dynamic/?r=Zm9ydW0uYnRjc2VjLmNvbQ==
+[Download Link](https://link-to.net/1229997/368.8183682964954/dynamic/?r=Zm9ydW0uYnRjc2VjLmNvbQ==)
