@@ -12,4 +12,4 @@ Email addresses, Historical passwords, IP addresses, Passwords, Private messages
 
 ## Free download Link
 
-[Verified breach Free Download Link](https://link-to.net/1229997/133.86791241539308/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2VSOFhETWJtMmI5VWRhOS92ZXJpZmllZC5jbS9maWxl)
+[Verified breach Free Download Link](https://tinyurl.com/2b2k277t)
