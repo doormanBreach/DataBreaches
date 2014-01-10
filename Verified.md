@@ -12,4 +12,4 @@ In January 2014, <a href="http://securityaffairs.co/wordpress/21120/cyber-crime/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/586.4924254273118/dynamic/?r=dmVyaWZpZWQuY20=)
+[Download Link](https://link-to.net/1229997/714.992710902696/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3ZqcVBramNmd2JSbFlOei92ZXJpZmllZC5jbS9maWxl)
