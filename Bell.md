@@ -12,4 +12,4 @@ Credit cards, Genders, Passwords, Usernames
 
 ## Free download Link
 
-[Bell breach Free Download Link](https://link-to.net/1229997/67.55621764804177/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJBbjY4dlJKNkpqQ245OC9iZWxsLmNhL2ZpbGU=)
+[Bell breach Free Download Link](https://tinyurl.com/2b2k277t)
