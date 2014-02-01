@@ -12,4 +12,4 @@ In February 2014, <a href="http://news.softpedia.com/news/Hackers-Claim-to-Have-
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/890.8607606402134/dynamic/?r=YmVsbC5jYQ==)
+[Download Link](https://link-to.net/1229997/617.5717958249928/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25pNU1ZbnpEN3N4NnlPNi9iZWxsLmNhL2ZpbGU=)
