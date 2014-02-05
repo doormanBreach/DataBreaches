@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Geographic locations, Historical passwords, Ins
 
 ## Free download Link
 
-[CannabisForum breach Free Download Link](https://link-to.net/1229997/246.9612095064182/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2IyMjBtM3JuMEFERzFrcy9jYW5uYWJpcy5jb20vZmlsZQ==)
+[CannabisForum breach Free Download Link](https://tinyurl.com/2b2k277t)
