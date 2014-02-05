@@ -12,4 +12,4 @@ In February 2014, the vBulletin forum for the Marijuana site cannabis.com was br
 
 ## Links
 
-https://link-to.net/1229997/932.243374044809/dynamic/?r=Y2FubmFiaXMuY29t
+[Download Link](https://link-to.net/1229997/156.21549505155107/dynamic/?r=Y2FubmFiaXMuY29t)
