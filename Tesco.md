@@ -12,4 +12,4 @@ Email addresses, Passwords, Reward program balances
 
 ## Free download Link
 
-[Tesco breach Free Download Link](https://link-to.net/1229997/158.93008037680988/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3NnbUpsMmJRZ1VrSEdyQi90ZXNjby5jb20vZmlsZQ==)
+[Tesco breach Free Download Link](https://tinyurl.com/2b2k277t)
