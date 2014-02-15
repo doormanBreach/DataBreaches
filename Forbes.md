@@ -12,4 +12,4 @@ Email addresses, Passwords, User website URLs, Usernames
 
 ## Free download Link
 
-[Forbes breach Free Download Link](https://link-to.net/1229997/821.4968364097707/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3ZRRVhtblFwTUR2QmtGay9mb3JiZXMuY29tL2ZpbGU=)
+[Forbes breach Free Download Link](https://tinyurl.com/2b2k277t)
