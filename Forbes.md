@@ -12,4 +12,4 @@ In February 2014, the Forbes website <a href="http://news.cnet.com/8301-1009_3-5
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/410.41239900668427/dynamic/?r=Zm9yYmVzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/779.957468811957/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJXbXR3QVRmTzZ1U3RDUy9mb3JiZXMuY29tL2ZpbGU=)
