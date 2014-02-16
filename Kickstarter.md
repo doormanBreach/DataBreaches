@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Kickstarter breach Free Download Link](https://link-to.net/1229997/418.3914686977905/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3hTUzBxSGlIajRvVWo2Ti9raWNrc3RhcnRlci5jb20vZmlsZQ==)
+[Kickstarter breach Free Download Link](https://tinyurl.com/2b2k277t)
