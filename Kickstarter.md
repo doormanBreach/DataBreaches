@@ -12,4 +12,4 @@ In February 2014, the crowdfunding platform <a href="https://www.kickstarter.com
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/895.0900325877128/dynamic/?r=a2lja3N0YXJ0ZXIuY29t)
+[Download Link](https://link-to.net/1229997/132.53359428773425/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VTV1ZPYjJlMjA3NXRsNS9raWNrc3RhcnRlci5jb20vZmlsZQ==)
