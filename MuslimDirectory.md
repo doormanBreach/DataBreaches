@@ -12,4 +12,4 @@ Age groups, Email addresses, Employers, Names, Passwords, Phone numbers, Physica
 
 ## Free download Link
 
-[MuslimDirectory breach Free Download Link](https://link-to.net/1229997/760.9047020052125/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3Z3V2FNWXo3VEs3NW1BWi9tdXNsaW1kaXJlY3RvcnkuY28udWsvZmlsZQ==)
+[MuslimDirectory breach Free Download Link](https://tinyurl.com/2b2k277t)
