@@ -12,4 +12,4 @@ In February 2014, the UK guide to services and business known as the Muslim Dire
 
 ## Links
 
-https://link-to.net/1229997/526.0534354095971/dynamic/?r=bXVzbGltZGlyZWN0b3J5LmNvLnVr
+[Download Link](https://link-to.net/1229997/113.39122710195448/dynamic/?r=bXVzbGltZGlyZWN0b3J5LmNvLnVr)
