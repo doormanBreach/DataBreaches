@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Usernames
 
 ## Free download Link
 
-[IGF breach Free Download Link](https://link-to.net/1229997/440.9109802840132/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0EyRDZ0QnlscE9Fa0Fnby9pbnRnb3Zmb3J1bS5vcmcvZmlsZQ==)
+[IGF breach Free Download Link](https://tinyurl.com/2b2k277t)
