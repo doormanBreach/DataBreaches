@@ -12,4 +12,4 @@ Email addresses, Employers, Job titles, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[Spirol breach Free Download Link](https://link-to.net/1229997/704.4234157427953/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3hMMUVOSVhFZnJ1T1d5bS9zcGlyb2wuY29tL2ZpbGU=)
+[Spirol breach Free Download Link](https://tinyurl.com/2b2k277t)
