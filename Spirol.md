@@ -12,4 +12,4 @@ In February 2014, Connecticut based Spirol Fastening Solutions <a href="http://n
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/933.2803885046976/dynamic/?r=c3Bpcm9sLmNvbQ==)
+[Download Link](https://link-to.net/1229997/242.373355837749/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0tFT05sZmpiaTdpSWdHOS9zcGlyb2wuY29tL2ZpbGU=)
