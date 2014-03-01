@@ -12,4 +12,4 @@ In late 2016, a data dump of almost 100M accounts from Rambler, sometimes referr
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/516.9824973216832/dynamic/?r=cmFtYmxlci5ydQ==)
+[Download Link](https://link-to.net/1229997/238.7371517557725/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3YyQ2lic1cwYVNoZXVDdC9yYW1ibGVyLnJ1L2ZpbGU=)
