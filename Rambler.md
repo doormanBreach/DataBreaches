@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Rambler breach Free Download Link](https://link-to.net/1229997/792.7615273670187/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0luNG9uazl2dlZlVGU1bS9yYW1ibGVyLnJ1L2ZpbGU=)
+[Rambler breach Free Download Link](https://tinyurl.com/2b2k277t)
