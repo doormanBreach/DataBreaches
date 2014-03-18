@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Private messages, Usernames, Website a
 
 ## Free download Link
 
-[QuantumBooter breach Free Download Link](https://link-to.net/1229997/51.450825699588364/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01OQ2EyMXFadnZES2Q3eC9xdWFudHVtYm9vdGVyLm5ldC9maWxl)
+[QuantumBooter breach Free Download Link](https://tinyurl.com/2b2k277t)
