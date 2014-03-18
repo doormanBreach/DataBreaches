@@ -12,4 +12,4 @@ In March 2014, the <a href="http://www.webopedia.com/TERM/B/booter_services.html
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/53.3718638546693/dynamic/?r=cXVhbnR1bWJvb3Rlci5uZXQ=)
+[Download Link](https://link-to.net/1229997/666.5904852775816/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01Jd2cxRlBVc0toTEVsNy9xdWFudHVtYm9vdGVyLm5ldC9maWxl)
