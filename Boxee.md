@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Geographic locations, Historical passwords, Ins
 
 ## Free download Link
 
-[Boxee breach Free Download Link](https://link-to.net/1229997/240.7202892274426/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRIZDQwTzRocXZCRTlIQS9mb3J1bXMuYm94ZWUuY29tL2ZpbGU=)
+[Boxee breach Free Download Link](https://tinyurl.com/2b2k277t)
