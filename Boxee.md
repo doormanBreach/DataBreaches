@@ -12,4 +12,4 @@ In March 2014, the home theatre PC software maker Boxee had their forums comprom
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/673.8202842721722/dynamic/?r=Zm9ydW1zLmJveGVlLmNvbQ==)
+[Download Link](https://link-to.net/1229997/72.55696682224166/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2xLOElBWEd1WjhBbWE4SC9mb3J1bXMuYm94ZWUuY29tL2ZpbGU=)
