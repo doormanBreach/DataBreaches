@@ -12,4 +12,4 @@ Career levels, Education levels, Email addresses, Names, Passwords, Phone number
 
 ## Free download Link
 
-[BigMoneyJobs breach Free Download Link](https://link-to.net/1229997/388.0005109591197/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1hBa0xSbld6MWxieTFpQy9iaWdtb25leWpvYnMuY29tL2ZpbGU=)
+[BigMoneyJobs breach Free Download Link](https://tinyurl.com/2b2k277t)
