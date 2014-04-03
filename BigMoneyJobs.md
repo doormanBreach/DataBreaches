@@ -1,15 +1,15 @@
-# BigMoneyJobs
+# BigMoneyJobs database leak
 
 ## Description
 
-Date: 2014-04-03
+2014-04-03
 
-Description:
 In April 2014, the job site <a href="http://www.bigmoneyjobs.com">bigmoneyjobs.com</a> was <a href="https://twitter.com/ProbablyOnion2/status/451477310319779841" target="_blank" rel="noopener">hacked by an attacker known as &quot;ProbablyOnion&quot;</a>. The attack resulted in the <a href="http://news.softpedia.com/news/BigMoneyJobs-Hacked-Details-of-36-000-Users-Leaked-Online-436250.shtml?utm_source=twitterfeed&utm_medium=twitter&utm_campaign=information_security" target="_blank" rel="noopener">exposure of over 36,000 user accounts</a> including email addresses, usernames and passwords which were stored in plain text. The attack was allegedly mounted by exploiting a SQL injection vulnerability.
 
+## Breached data
 
-['Career levels', 'Education levels', 'Email addresses', 'Names', 'Passwords', 'Phone numbers', 'Physical addresses', 'Salutations', 'User website URLs', 'Website activity']
+Career levels, Education levels, Email addresses, Names, Passwords, Phone numbers, Physical addresses, Salutations, User website URLs, Website activity
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/378.62288141531997/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1Q3V2pvQzBNTHcwVnViZi9iaWdtb25leWpvYnMuY29tL2ZpbGU=)
+[BigMoneyJobs breach Free Download Link](https://link-to.net/1229997/388.0005109591197/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1hBa0xSbld6MWxieTFpQy9iaWdtb25leWpvYnMuY29tL2ZpbGU=)
