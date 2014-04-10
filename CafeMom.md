@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[CafeMom breach Free Download Link](https://link-to.net/1229997/113.01372313127855/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1B4Rll5SGZXTWNGY2VCVS9jYWZlbW9tLmNvbS9maWxl)
+[CafeMom breach Free Download Link](https://tinyurl.com/2b2k277t)
