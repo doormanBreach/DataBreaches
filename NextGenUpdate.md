@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[NextGenUpdate breach Free Download Link](https://link-to.net/1229997/64.3367751767625/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L04yaEh0eVlOWWU2U0ZlUS9uZXh0Z2VudXBkYXRlLmNvbS9maWxl)
+[NextGenUpdate breach Free Download Link](https://tinyurl.com/2b2k277t)
