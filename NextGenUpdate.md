@@ -12,4 +12,4 @@ Early in 2014, the video game website <a href="http://www.nextgenupdate.com" tar
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/705.2357814134397/dynamic/?r=bmV4dGdlbnVwZGF0ZS5jb20=)
+[Download Link](https://link-to.net/1229997/346.39257656812686/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2VFbVRSSEJ2WGxTTjJxdi9uZXh0Z2VudXBkYXRlLmNvbS9maWxl)
