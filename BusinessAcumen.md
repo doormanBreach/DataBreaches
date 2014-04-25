@@ -12,4 +12,4 @@ In April 2014, the Australian "Business Acumen Magazine" website was <a href="ht
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/286.7304938902606/dynamic/?r=YnVzaW5lc3NhY3VtZW4uYml6)
+[Download Link](https://link-to.net/1229997/956.9311504217908/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0ZjaUJVRVdQd3A3NDlmYy9idXNpbmVzc2FjdW1lbi5iaXovZmlsZQ==)
