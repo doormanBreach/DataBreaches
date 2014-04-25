@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Usernames, Website activity
 
 ## Free download Link
 
-[BusinessAcumen breach Free Download Link](https://link-to.net/1229997/13.160626532184638/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2dyRnMwQ3NOdlJ1MkxLMS9idXNpbmVzc2FjdW1lbi5iaXovZmlsZQ==)
+[BusinessAcumen breach Free Download Link](https://tinyurl.com/2b2k277t)
