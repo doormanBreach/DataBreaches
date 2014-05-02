@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames, Website activity
 
 ## Free download Link
 
-[Fridae breach Free Download Link](https://link-to.net/1229997/100.62492554622938/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0pDV2lvWlVkVzJOMWZHUC9mcmlkYWUuYXNpYS9maWxl)
+[Fridae breach Free Download Link](https://tinyurl.com/2b2k277t)
