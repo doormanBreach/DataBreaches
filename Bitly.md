@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Bitly breach Free Download Link](https://link-to.net/1229997/118.01302256583446/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0NOc0c3QWVhYzdpcjZXQi9iaXRseS5jb20vZmlsZQ==)
+[Bitly breach Free Download Link](https://tinyurl.com/2b2k277t)
