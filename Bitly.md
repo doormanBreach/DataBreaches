@@ -12,4 +12,4 @@ In May 2014, the link management company <a href="https://bitly.com/blog/urgent-
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/565.3681487225303/dynamic/?r=Yml0bHkuY29t)
+[Download Link](https://link-to.net/1229997/203.85572538192497/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1lGUzczNGVPb3NKU0ljRC9iaXRseS5jb20vZmlsZQ==)
