@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Avast breach Free Download Link](https://link-to.net/1229997/414.69255618881107/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzNIQ0R0MWpXdVh1eTB6ZS9hdmFzdC5jb20vZmlsZQ==)
+[Avast breach Free Download Link](https://tinyurl.com/2b2k277t)
