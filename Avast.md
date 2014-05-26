@@ -12,4 +12,4 @@ In May 2014, <a href="https://www.grahamcluley.com/2014/05/avast-forum-hacked/" 
 
 ## Links
 
-https://link-to.net/1229997/127.28041128864764/dynamic/?r=YXZhc3QuY29t
+[Download Link](https://link-to.net/1229997/885.4737908739831/dynamic/?r=YXZhc3QuY29t)
