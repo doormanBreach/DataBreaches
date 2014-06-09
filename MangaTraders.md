@@ -12,4 +12,4 @@ In June 2014, the Manga trading website <a href="http://www.mangatraders.com" ta
 
 ## Links
 
-https://link-to.net/1229997/113.84244834026657/dynamic/?r=bWFuZ2F0cmFkZXJzLmNvbQ==
+[Download Link](https://link-to.net/1229997/463.24068371763695/dynamic/?r=bWFuZ2F0cmFkZXJzLmNvbQ==)
