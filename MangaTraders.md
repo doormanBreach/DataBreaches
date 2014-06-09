@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[MangaTraders breach Free Download Link](https://link-to.net/1229997/524.0302947034168/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1JDb3RvSmtjNHpwTjFsbC9tYW5nYXRyYWRlcnMuY29tL2ZpbGU=)
+[MangaTraders breach Free Download Link](https://tinyurl.com/2b2k277t)
