@@ -12,4 +12,4 @@ In June 2014, <a href="http://www.welivesecurity.com/2014/06/16/dominos-pizza-ha
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/860.3121466417348/dynamic/?r=cGl6emEuZG9taW5vcy5iZQ==)
+[Download Link](https://link-to.net/1229997/128.29087065698897/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1Vwbm5TN1lhN3RvSGJHZC9waXp6YS5kb21pbm9zLmJlL2ZpbGU=)
