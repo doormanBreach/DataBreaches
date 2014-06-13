@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[Dominos breach Free Download Link](https://link-to.net/1229997/459.8377909075414/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0J4QUtGR09pWnNhUjdCVy9waXp6YS5kb21pbm9zLmJlL2ZpbGU=)
+[Dominos breach Free Download Link](https://tinyurl.com/2b2k277t)
