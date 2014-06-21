@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames, Website activity
 
 ## Free download Link
 
-[SumoTorrent breach Free Download Link](https://link-to.net/1229997/30.701641233426113/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzM2V29XbnJaSzFPaUJDOC9zdW1vdG9ycmVudC5zeC9maWxl)
+[SumoTorrent breach Free Download Link](https://tinyurl.com/2b2k277t)
