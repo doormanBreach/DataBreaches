@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Instant messenger identities, IP addresses, Pas
 
 ## Free download Link
 
-[BlackHatWorld breach Free Download Link](https://link-to.net/1229997/169.79458897261978/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZYZkRrZ0h4VU9DU0pHMy9ibGFja2hhdHdvcmxkLmNvbS9maWxl)
+[BlackHatWorld breach Free Download Link](https://tinyurl.com/2b2k277t)
