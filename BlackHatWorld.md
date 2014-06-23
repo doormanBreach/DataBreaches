@@ -12,4 +12,4 @@ In June 2014, the search engine optimisation forum <a href="http://www.blackhatw
 
 ## Links
 
-https://link-to.net/1229997/4.53700026618753/dynamic/?r=YmxhY2toYXR3b3JsZC5jb20=
+[Download Link](https://link-to.net/1229997/202.72892869656712/dynamic/?r=YmxhY2toYXR3b3JsZC5jb20=)
