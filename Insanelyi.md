@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames, Website activity
 
 ## Free download Link
 
-[Insanelyi breach Free Download Link](https://link-to.net/1229997/142.16470552807803/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1p4bWRKS3lpMnBGYk80ci9pbnNhbmVseWkuY29tL2ZpbGU=)
+[Insanelyi breach Free Download Link](https://tinyurl.com/2b2k277t)
