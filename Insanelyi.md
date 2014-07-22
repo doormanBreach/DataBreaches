@@ -12,4 +12,4 @@ In July 2014, the iOS forum <a href="http://insanelyi.com" target="_blank" rel="
 
 ## Links
 
-https://link-to.net/1229997/299.49508702135677/dynamic/?r=aW5zYW5lbHlpLmNvbQ==
+[Download Link](https://link-to.net/1229997/942.1100886440349/dynamic/?r=aW5zYW5lbHlpLmNvbQ==)
