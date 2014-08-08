@@ -12,4 +12,4 @@ Email addresses, Genders, IP addresses, Passwords, Usernames, Website activity
 
 ## Free download Link
 
-[PokemonCreed breach Free Download Link](https://link-to.net/1229997/285.81496924732306/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzMwcW5GVUVhS2h2TTQ2cy9wb2tlbW9uY3JlZWQubmV0L2ZpbGU=)
+[PokemonCreed breach Free Download Link](https://tinyurl.com/2b2k277t)
