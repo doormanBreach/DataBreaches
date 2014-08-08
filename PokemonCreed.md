@@ -12,4 +12,4 @@ In August 2014, the Pokémon RPG website <a href="http://pokemoncreed.net" targe
 
 ## Links
 
-https://link-to.net/YOUR_USER/652.2396432899002/dynamic/?r=cG9rZW1vbmNyZWVkLm5ldA==
+https://link-to.net/YOUR_USER/976.5061921111597/dynamic/?r=cG9rZW1vbmNyZWVkLm5ldA==
