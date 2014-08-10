@@ -12,4 +12,4 @@ Dates of birth, Eating habits, Email addresses, IP addresses, Names, Passwords, 
 
 ## Free download Link
 
-[DietCom breach Free Download Link](https://link-to.net/1229997/350.5655198734261/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RKUW1wREVnZ01VN1l0VC9kaWV0LmNvbS9maWxl)
+[DietCom breach Free Download Link](https://tinyurl.com/2b2k277t)
