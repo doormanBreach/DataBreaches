@@ -12,4 +12,4 @@ In August 2014, the diet and nutrition website <a href="https://diet.com/" targe
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/618.2461770895666/dynamic/?r=ZGlldC5jb20=)
+[Download Link](https://link-to.net/1229997/598.8913485447874/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3NEbDRmU0lGZ255bUVKcy9kaWV0LmNvbS9maWxl)
