@@ -12,4 +12,4 @@ Account balances, Email addresses, Genders, Government issued IDs, Names, Phone 
 
 ## Free download Link
 
-[Banorte breach Free Download Link](https://link-to.net/1229997/449.0104216600869/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0J5ckJPUkRiZnJMeTl6Yi9iYW5vcnRlLmNvbS9maWxl)
+[Banorte breach Free Download Link](https://tinyurl.com/2b2k277t)
