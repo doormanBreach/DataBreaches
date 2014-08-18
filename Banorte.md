@@ -12,4 +12,4 @@ In August 2022, <a href="https://krebsonsecurity.com/2022/08/when-efforts-to-con
 
 ## Links
 
-https://link-to.net/1229997/851.8317925533971/dynamic/?r=YmFub3J0ZS5jb20=
+[Download Link](https://link-to.net/1229997/518.1014895716298/dynamic/?r=YmFub3J0ZS5jb20=)
