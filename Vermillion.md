@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Vermillion breach Free Download Link](https://link-to.net/1229997/36.234619194053906/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3BWM2dsRm5kNHVOVnhOUS92M3JtaWxsaW9uLm5ldC9maWxl)
+[Vermillion breach Free Download Link](https://tinyurl.com/2b2k277t)
