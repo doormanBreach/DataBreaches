@@ -12,4 +12,4 @@ In September 2014, the online game <a href="http://blog.binweevils.com/2014/09/i
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/277.51819365655206/dynamic/?r=Ymlud2Vldmlscy5jb20=)
+[Download Link](https://link-to.net/1229997/416.2455667700864/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0JzMmt4TktNcjB1bHhLQi9iaW53ZWV2aWxzLmNvbS9maWxl)
