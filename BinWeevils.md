@@ -12,4 +12,4 @@ Ages, Email addresses, Genders, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[BinWeevils breach Free Download Link](https://link-to.net/1229997/772.7594263141275/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2NLR285b2dwelhYck9GZC9iaW53ZWV2aWxzLmNvbS9maWxl)
+[BinWeevils breach Free Download Link](https://tinyurl.com/2b2k277t)
