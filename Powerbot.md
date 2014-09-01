@@ -12,4 +12,4 @@ In approximately September 2014, the RuneScape bot website <a href="https://www.
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/594.6851886255804/dynamic/?r=cG93ZXJib3Qub3Jn)
+[Download Link](https://link-to.net/1229997/209.7860615979107/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2VoMExzY2M5R0NtaFJtRy9wb3dlcmJvdC5vcmcvZmlsZQ==)
