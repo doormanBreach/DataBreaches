@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Yandex breach Free Download Link](https://link-to.net/1229997/349.5586893030471/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1F1UERNbjZpZnN6a0x4di9mb3J1bS5idGNzZWMuY29tL2ZpbGU=)
+[Yandex breach Free Download Link](https://tinyurl.com/2b2k277t)
