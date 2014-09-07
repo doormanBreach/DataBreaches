@@ -12,4 +12,4 @@ In September 2014, <a href="http://habrahabr.ru/post/235949/" target="_blank" re
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/66.13646511556126/dynamic/?r=Zm9ydW0uYnRjc2VjLmNvbQ==)
+[Download Link](https://link-to.net/1229997/687.9495236891343/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L05RSUFtNklPTTZkQWg2ci9mb3J1bS5idGNzZWMuY29tL2ZpbGU=)
