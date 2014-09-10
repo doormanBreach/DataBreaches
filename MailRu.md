@@ -12,4 +12,4 @@ In September 2014, several large dumps of user accounts appeared on the <a href=
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/163.202581646138/dynamic/?r=bWFpbC5ydQ==)
+[Download Link](https://link-to.net/1229997/589.7296875141395/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VFQVdKelB4ajBMSEVlZy9tYWlsLnJ1L2ZpbGU=)
