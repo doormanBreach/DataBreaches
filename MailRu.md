@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[MailRu breach Free Download Link](https://link-to.net/1229997/280.71216678805735/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2NUSGRDQnZpREgzY3pZdS9tYWlsLnJ1L2ZpbGU=)
+[MailRu breach Free Download Link](https://tinyurl.com/2b2k277t)
