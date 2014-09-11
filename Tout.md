@@ -12,4 +12,4 @@ Bios, Email addresses, Geographic locations, IP addresses, Names, Passwords, Use
 
 ## Free download Link
 
-[Tout breach Free Download Link](https://link-to.net/1229997/336.29781776887324/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzhPTEJUU2FKaG5kUWozcS90b3V0LmNvbS9maWxl)
+[Tout breach Free Download Link](https://tinyurl.com/2b2k277t)
