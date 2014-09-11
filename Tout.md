@@ -12,4 +12,4 @@ In approximately September 2014, the now defunct social networking service <a hr
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/998.3219180649957/dynamic/?r=dG91dC5jb20=)
+[Download Link](https://link-to.net/1229997/733.5778825026749/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L044T3JCVkpoVFkzRzh1Zy90b3V0LmNvbS9maWxl)
