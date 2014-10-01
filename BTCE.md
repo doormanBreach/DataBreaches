@@ -12,4 +12,4 @@ In October 2014, <a href="https://www.databreaches.net/bitcoin-exchange-btc-e-an
 
 ## Links
 
-https://link-to.net/YOUR_USER/709.2428353171067/dynamic/?r=YnRjLWUuY29t
+https://link-to.net/1229997/295.0708593658007/dynamic/?r=YnRjLWUuY29t
