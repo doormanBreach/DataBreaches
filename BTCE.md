@@ -12,4 +12,4 @@ Account balances, Email addresses, IP addresses, Passwords, Usernames, Website a
 
 ## Free download Link
 
-[BTCE breach Free Download Link](https://link-to.net/1229997/961.3130118956218/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0RiSUNCYUI2WDlJV1VDUC9idGMtZS5jb20vZmlsZQ==)
+[BTCE breach Free Download Link](https://tinyurl.com/2b2k277t)
