@@ -12,4 +12,4 @@ In October 2014, the game cheats website known as ILikeCheats suffered a data br
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/384.1136778532632/dynamic/?r=aWxpa2VjaGVhdHMubmV0)
+[Download Link](https://link-to.net/1229997/702.9227476804742/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzB5Njd4UExuTzNPQmtZVi9pbGlrZWNoZWF0cy5uZXQvZmlsZQ==)
