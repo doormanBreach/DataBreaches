@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames, Website activity
 
 ## Free download Link
 
-[BotOfLegends breach Free Download Link](https://link-to.net/1229997/168.0260125579469/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2FBakg5RnM2aWJlcVN4TC9ib3RvZmxlZ2VuZHMuY29tL2ZpbGU=)
+[BotOfLegends breach Free Download Link](https://tinyurl.com/2b2k277t)
