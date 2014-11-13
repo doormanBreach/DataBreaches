@@ -12,4 +12,4 @@ In November 2014, the forum for <a href="http://botoflegends.com" target="_blank
 
 ## Links
 
-https://link-to.net/YOUR_USER/486.7216280735981/dynamic/?r=Ym90b2ZsZWdlbmRzLmNvbQ==
+https://link-to.net/1229997/246.4316134341026/dynamic/?r=Ym90b2ZsZWdlbmRzLmNvbQ==
