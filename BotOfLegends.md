@@ -12,4 +12,4 @@ In November 2014, the forum for <a href="http://botoflegends.com" target="_blank
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/499.3287395924828/dynamic/?r=Ym90b2ZsZWdlbmRzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/435.14691873275257/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2VzWVh6d2UxNlpxZnlFWC9ib3RvZmxlZ2VuZHMuY29tL2ZpbGU=)
