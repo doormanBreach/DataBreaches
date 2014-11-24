@@ -12,4 +12,4 @@ In November 2014, the online game <a href="http://motherboard.vice.com/read/gami
 
 ## Links
 
-https://link-to.net/1229997/792.2304862427832/dynamic/?r=d2FyZnJhbWUuY29t
+[Download Link](https://link-to.net/1229997/378.2890725189033/dynamic/?r=d2FyZnJhbWUuY29t)
