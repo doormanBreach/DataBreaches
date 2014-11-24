@@ -12,4 +12,4 @@ Email addresses, Usernames, Website activity
 
 ## Free download Link
 
-[Warframe breach Free Download Link](https://link-to.net/1229997/518.310876237465/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L21ram5yaTZBQzB4dDhhTy93YXJmcmFtZS5jb20vZmlsZQ==)
+[Warframe breach Free Download Link](https://tinyurl.com/2b2k277t)
