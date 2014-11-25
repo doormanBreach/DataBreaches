@@ -12,4 +12,4 @@ In November 2014, the acne website <a href="http://www.acne.org/" target="_blank
 
 ## Links
 
-https://link-to.net/YOUR_USER/983.0241058752109/dynamic/?r=YWNuZS5vcmc=
+https://link-to.net/1229997/60.09899609116465/dynamic/?r=YWNuZS5vcmc=
