@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[AcneOrg breach Free Download Link](https://link-to.net/1229997/390.83366051461354/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VleHE4YXQybEN6dU1IRi9hY25lLm9yZy9maWxl)
+[AcneOrg breach Free Download Link](https://tinyurl.com/2b2k277t)
