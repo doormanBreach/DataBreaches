@@ -12,4 +12,4 @@ In December 2014, the electronic sports organisation known as <a href="http://ww
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/320.9741041772517/dynamic/?r=c29sb21pZC5uZXQ=)
+[Download Link](https://link-to.net/1229997/234.07890040985058/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzlNa1ZmaXR3T1BvNENCYi9zb2xvbWlkLm5ldC9maWxl)
