@@ -12,4 +12,4 @@ In 2015, the now defunct independent forum for the Bleach Anime series suffered 
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/977.7024870164984/dynamic/?r=YmxlYWNoYW5pbWUub3Jn)
+[Download Link](https://link-to.net/1229997/628.1092304421683/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJwRUI5Q3JqbXZxWW1rMC9ibGVhY2hhbmltZS5vcmcvZmlsZQ==)
