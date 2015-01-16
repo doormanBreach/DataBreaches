@@ -12,4 +12,4 @@ In January 2015, the hacker collective known as &quot;Lizard Squad&quot; created
 
 ## Links
 
-https://link-to.net/1229997/277.95158575873955/dynamic/?r=bGl6YXJkc3RyZXNzZXIuc3U=
+[Download Link](https://link-to.net/1229997/277.9664015864968/dynamic/?r=bGl6YXJkc3RyZXNzZXIuc3U=)
