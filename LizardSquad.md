@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[LizardSquad breach Free Download Link](https://link-to.net/1229997/133.02639287865026/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFTVXVwQmxjWTFmcmE5Qy9saXphcmRzdHJlc3Nlci5zdS9maWxl)
+[LizardSquad breach Free Download Link](https://tinyurl.com/2b2k277t)
