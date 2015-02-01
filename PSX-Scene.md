@@ -12,4 +12,4 @@ In approximately February 2015, the Sony Playstation forum known as <a href="htt
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/864.4233336449093/dynamic/?r=cHN4LXNjZW5lLmNvbQ==)
+[Download Link](https://link-to.net/1229997/847.9660161643262/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0pwS256OU1ESUVnZmdGRS9wc3gtc2NlbmUuY29tL2ZpbGU=)
