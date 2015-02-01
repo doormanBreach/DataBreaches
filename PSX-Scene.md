@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[PSX-Scene breach Free Download Link](https://link-to.net/1229997/854.424371853358/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09EWDFQOTFSVWcxemNleC9wc3gtc2NlbmUuY29tL2ZpbGU=)
+[PSX-Scene breach Free Download Link](https://tinyurl.com/2b2k277t)
