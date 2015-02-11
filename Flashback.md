@@ -12,4 +12,4 @@ Email addresses, Government issued IDs, Physical addresses
 
 ## Free download Link
 
-[Flashback breach Free Download Link](https://link-to.net/1229997/444.68788562817787/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01VQ0xpVEhXbWhqcExMNS9mbGFzaGJhY2suc2UvZmlsZQ==)
+[Flashback breach Free Download Link](https://tinyurl.com/2b2k277t)
