@@ -12,4 +12,4 @@ Credit status information, Email addresses, Income levels, IP addresses, Loan in
 
 ## Free download Link
 
-[MyFHA breach Free Download Link](https://link-to.net/1229997/335.7706543696396/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VFcFJJVU9xMlYwVG51ci9teWZoYS5uZXQvZmlsZQ==)
+[MyFHA breach Free Download Link](https://tinyurl.com/2b2k277t)
