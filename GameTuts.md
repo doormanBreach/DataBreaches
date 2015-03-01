@@ -12,4 +12,4 @@ Likely in early 2015, the video game website GameTuts suffered a data breach and
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/272.27552872941965/dynamic/?r=Z2FtZS10dXRzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/218.20958686356386/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1d0UW84cXhOWXNDUmJSdy9nYW1lLXR1dHMuY29tL2ZpbGU=)
