@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[GameTuts breach Free Download Link](https://link-to.net/1229997/510.07485351270645/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3N5OGRza2pxcHUwQkdZTy9nYW1lLXR1dHMuY29tL2ZpbGU=)
+[GameTuts breach Free Download Link](https://tinyurl.com/2b2k277t)
