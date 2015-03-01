@@ -12,4 +12,4 @@ In March 2015, the anime and manga forum <a href="http://www.hongfire.com" targe
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/908.8021840288853/dynamic/?r=aG9uZ2ZpcmUuY29t)
+[Download Link](https://link-to.net/1229997/244.68814850153586/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzkzNHRMUGJ4enRKMkc0Qy9ob25nZmlyZS5jb20vZmlsZQ==)
