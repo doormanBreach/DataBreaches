@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[HongFire breach Free Download Link](https://link-to.net/1229997/876.6503932585065/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1hraEozRWwzSFRoY0VQZy9ob25nZmlyZS5jb20vZmlsZQ==)
+[HongFire breach Free Download Link](https://tinyurl.com/2b2k277t)
