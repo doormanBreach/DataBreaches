@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Passwords
 
 ## Free download Link
 
-[000webhost breach Free Download Link](https://link-to.net/1229997/414.3968404089833/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2xTcmwyaG9qN1lmU3R5MS8wMDB3ZWJob3N0LmNvbS9maWxl)
+[000webhost breach Free Download Link](https://tinyurl.com/2b2k277t)
