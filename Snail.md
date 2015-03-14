@@ -12,4 +12,4 @@ In March 2015, the gaming website <a href="https://www.technadu.com/emuparadise-
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/973.1286084556215/dynamic/?r=c25haWwuY29t)
+[Download Link](https://link-to.net/1229997/893.8318995328597/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2RSYTdtNzhnVERCWFdVWi9zbmFpbC5jb20vZmlsZQ==)
