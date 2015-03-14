@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Snail breach Free Download Link](https://link-to.net/1229997/275.6522043505877/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L29UQ3JsV2l6eHFmUE1hRi9zbmFpbC5jb20vZmlsZQ==)
+[Snail breach Free Download Link](https://tinyurl.com/2b2k277t)
