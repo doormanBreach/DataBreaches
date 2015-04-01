@@ -12,4 +12,4 @@ In early 2015, the Swedish tech news site <a href="http://www.sweclockers.com/ny
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/348.77756739547027/dynamic/?r=c3dlY2xvY2tlcnMuY29t)
+[Download Link](https://link-to.net/1229997/96.63418220454034/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3M1SFRHeEdPUGp6MkF0QS9zd2VjbG9ja2Vycy5jb20vZmlsZQ==)
