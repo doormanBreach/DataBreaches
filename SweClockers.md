@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[SweClockers breach Free Download Link](https://link-to.net/1229997/693.7700527559401/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pLT3JnOTJ5TjZ4WTFqYS9zd2VjbG9ja2Vycy5jb20vZmlsZQ==)
+[SweClockers breach Free Download Link](https://tinyurl.com/2b2k277t)
