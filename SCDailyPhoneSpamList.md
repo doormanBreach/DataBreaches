@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, IP addresses, Names, Physical addresse
 
 ## Free download Link
 
-[SCDailyPhoneSpamList breach Free Download Link](https://link-to.net/1229997/289.56523111272594/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0YwbnIxTzNJZEtIa1YycC9kYXRhNG1hcmtldGVycy5jb20vZmlsZQ==)
+[SCDailyPhoneSpamList breach Free Download Link](https://tinyurl.com/2b2k277t)
