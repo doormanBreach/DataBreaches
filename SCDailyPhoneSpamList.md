@@ -12,4 +12,4 @@ In early 2015, a spam list known as <a href="http://www.data4marketers.com/2015A
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/887.4023487914183/dynamic/?r=ZGF0YTRtYXJrZXRlcnMuY29t)
+[Download Link](https://link-to.net/1229997/356.0755429934753/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L001TXEyT3djcWlYM1JSUi9kYXRhNG1hcmtldGVycy5jb20vZmlsZQ==)
