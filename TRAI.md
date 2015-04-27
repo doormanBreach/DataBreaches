@@ -12,4 +12,4 @@ In April 2015, the Telecom Regulatory Authority of India (TRAI) <a href="http://
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/246.0815552005129/dynamic/?r=dHJhaS5nb3YuaW4=)
+[Download Link](https://link-to.net/1229997/527.4229746131997/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09CZHFUOUhKdXcwdndiaC90cmFpLmdvdi5pbi9maWxl)
