@@ -12,4 +12,4 @@ Email addresses, Email messages
 
 ## Free download Link
 
-[TRAI breach Free Download Link](https://link-to.net/1229997/670.8897739722883/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0RqZ3RsMFRjVnNOSzdEOS90cmFpLmdvdi5pbi9maWxl)
+[TRAI breach Free Download Link](https://tinyurl.com/2b2k277t)
