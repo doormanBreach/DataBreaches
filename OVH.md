@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[OVH breach Free Download Link](https://link-to.net/1229997/960.9109724966715/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0pmYTdDdTczc1ZzY0laTy9vdmguY29tL2ZpbGU=)
+[OVH breach Free Download Link](https://tinyurl.com/2b2k277t)
