@@ -12,4 +12,4 @@ In mid-2015, the forum for the providers of affordable dedicated servers known a
 
 ## Links
 
-https://link-to.net/YOUR_USER/8.06159899428016/dynamic/?r=a2ltc3VmaS5jb20=
+https://link-to.net/1229997/86.80172442791002/dynamic/?r=a2ltc3VmaS5jb20=
