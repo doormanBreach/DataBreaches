@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Kimsufi breach Free Download Link](https://link-to.net/1229997/695.1350511627178/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3I2UkZaSW1acWs5b1NuYy9raW1zdWZpLmNvbS9maWxl)
+[Kimsufi breach Free Download Link](https://tinyurl.com/2b2k277t)
