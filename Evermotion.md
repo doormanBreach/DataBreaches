@@ -12,4 +12,4 @@ In May 2015, the Polish 3D modelling website known as <a href="https://evermotio
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/850.5453759060573/dynamic/?r=ZXZlcm1vdGlvbi5vcmc=)
+[Download Link](https://link-to.net/1229997/404.2019055899495/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VwajZpc2h4YmptQnBRQy9ldmVybW90aW9uLm9yZy9maWxl)
