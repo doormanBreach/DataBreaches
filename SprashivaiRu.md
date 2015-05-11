@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Geographic locations, IP addresses, Pa
 
 ## Free download Link
 
-[SprashivaiRu breach Free Download Link](https://link-to.net/1229997/497.95835950923816/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2FiVEdCWDYzRTBTVnZVYS9zcHJhc2hpdmFpLnJ1L2ZpbGU=)
+[SprashivaiRu breach Free Download Link](https://tinyurl.com/2b2k277t)
