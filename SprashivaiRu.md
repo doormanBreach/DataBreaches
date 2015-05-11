@@ -12,4 +12,4 @@ In May 2015, <a href="http://sprashivai.ru/" target="_blank" rel="noopener">Сп
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/140.22485687915952/dynamic/?r=c3ByYXNoaXZhaS5ydQ==)
+[Download Link](https://link-to.net/1229997/308.774096070234/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3pTQnlwUU4wejRuOVdlai9zcHJhc2hpdmFpLnJ1L2ZpbGU=)
