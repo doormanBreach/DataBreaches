@@ -12,4 +12,4 @@ In May 2015, the Indian motoring website known as <a href="https://www.gaadi.com
 
 ## Links
 
-https://link-to.net/1229997/327.36932461883316/dynamic/?r=Z2FhZGkuY29t
+[Download Link](https://link-to.net/1229997/524.8141206564695/dynamic/?r=Z2FhZGkuY29t)
