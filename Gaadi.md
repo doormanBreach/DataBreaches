@@ -1,15 +1,15 @@
-# Gaadi
+# Gaadi database leak
 
 ## Description
 
-Date: 2015-05-14
+2015-05-14
 
-Description:
 In May 2015, the Indian motoring website known as <a href="https://www.gaadi.com/" target="_blank" rel="noopener">Gaadi</a> had 4.3 million records exposed in a data breach. The data contained usernames, email and IP addresses, genders, the city of users as well as passwords stored in both plain text and as MD5 hashes. The site was previously reported as compromised on the <a href="https://vigilante.pw/" target="_blank" rel="noopener">Vigilante.pw</a> breached database directory.
 
+## Breached data
 
-['Email addresses', 'Genders', 'Geographic locations', 'IP addresses', 'Names', 'Passwords', 'Phone numbers', 'Usernames']
+Email addresses, Genders, Geographic locations, IP addresses, Names, Passwords, Phone numbers, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/534.3528377059678/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2lmb0JiWTc1TmFUa0dWVy9nYWFkaS5jb20vZmlsZQ==)
+[Gaadi breach Free Download Link](https://link-to.net/1229997/851.8378307105733/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2Z2WHpraHpHSFE2TGhWUi9nYWFkaS5jb20vZmlsZQ==)
