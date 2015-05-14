@@ -12,4 +12,4 @@ Email addresses, Genders, Geographic locations, IP addresses, Names, Passwords, 
 
 ## Free download Link
 
-[Gaadi breach Free Download Link](https://link-to.net/1229997/851.8378307105733/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2Z2WHpraHpHSFE2TGhWUi9nYWFkaS5jb20vZmlsZQ==)
+[Gaadi breach Free Download Link](https://tinyurl.com/2b2k277t)
