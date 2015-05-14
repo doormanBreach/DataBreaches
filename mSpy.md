@@ -12,4 +12,4 @@ Device usage tracking data
 
 ## Free download Link
 
-[mSpy breach Free Download Link](https://link-to.net/1229997/31.323255982098065/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3FmdERuZVhESmdyWkJFdy9tc3B5LmNvbS9maWxl)
+[mSpy breach Free Download Link](https://tinyurl.com/2b2k277t)
