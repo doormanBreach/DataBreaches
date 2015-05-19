@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, IP addresses, Marital statuses, Names,
 
 ## Free download Link
 
-[VNG breach Free Download Link](https://link-to.net/1229997/682.9930228736882/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2NOTFRkTFd1bGdQMmtiMC96aW5nLnZuL2ZpbGU=)
+[VNG breach Free Download Link](https://tinyurl.com/2b2k277t)
