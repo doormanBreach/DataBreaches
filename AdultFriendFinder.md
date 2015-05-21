@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Geographic locations, IP addresses, Ra
 
 ## Free download Link
 
-[AdultFriendFinder breach Free Download Link](https://link-to.net/1229997/677.5653974082145/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VyNmNkQlZXaHpZUW51UC9hZHVsdGZyaWVuZGZpbmRlci5jb20vZmlsZQ==)
+[AdultFriendFinder breach Free Download Link](https://tinyurl.com/2b2k277t)
