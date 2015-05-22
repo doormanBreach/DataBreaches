@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, IP addresses, Passwords, Security ques
 
 ## Free download Link
 
-[BitcoinTalk breach Free Download Link](https://link-to.net/1229997/531.2594537160819/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0hFZUc1NGJkQTF2YlRTYy9iaXRjb2ludGFsay5vcmcvZmlsZQ==)
+[BitcoinTalk breach Free Download Link](https://tinyurl.com/2b2k277t)
