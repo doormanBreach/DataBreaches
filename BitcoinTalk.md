@@ -12,4 +12,4 @@ In May 2015, the Bitcoin forum <a href="https://www.cryptocoinsnews.com/bitcoin-
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/97.86262008671697/dynamic/?r=Yml0Y29pbnRhbGsub3Jn)
+[Download Link](https://link-to.net/1229997/459.8544417770366/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L29wWkVreExzWWlEc0taSi9iaXRjb2ludGFsay5vcmcvZmlsZQ==)
