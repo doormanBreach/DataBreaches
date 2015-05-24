@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[MinecraftPocketEditionForum breach Free Download Link](https://link-to.net/1229997/496.6328948108103/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3lLam1oelZieGlUZWUzZS9taW5lY3JhZnRwZWZvcnVtLm5ldC9maWxl)
+[MinecraftPocketEditionForum breach Free Download Link](https://tinyurl.com/2b2k277t)
