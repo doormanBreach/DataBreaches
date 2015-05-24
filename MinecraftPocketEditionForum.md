@@ -12,4 +12,4 @@ In May 2015, the <a href="http://www.databreaches.net/minecraft-pocket-edition-f
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/5.8159789775109605/dynamic/?r=bWluZWNyYWZ0cGVmb3J1bS5uZXQ=)
+[Download Link](https://link-to.net/1229997/26.37980605139223/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZKR1ByZXQyS0p2bjhnQi9taW5lY3JhZnRwZWZvcnVtLm5ldC9maWxl)
