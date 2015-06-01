@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Passwords, Payment histories, Phone number
 
 ## Free download Link
 
-[Eroticy breach Free Download Link](https://link-to.net/1229997/609.9540876589789/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0pNV3FKMlMyUXJOVTE1Ny9lcm90aWN5LmNvbS9maWxl)
+[Eroticy breach Free Download Link](https://tinyurl.com/2b2k277t)
