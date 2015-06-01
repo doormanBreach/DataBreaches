@@ -12,4 +12,4 @@ In mid-2016, it's alleged that the adult website known as  <a href="http://eroti
 
 ## Links
 
-https://link-to.net/1229997/960.4704809707929/dynamic/?r=ZXJvdGljeS5jb20=
+[Download Link](https://link-to.net/1229997/679.7460971108719/dynamic/?r=ZXJvdGljeS5jb20=)
