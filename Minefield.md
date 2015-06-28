@@ -12,4 +12,4 @@ In June 2015, the French Minecraft server known as <a href="https://www.minefiel
 
 ## Links
 
-https://link-to.net/1229997/879.8907436877147/dynamic/?r=bWluZWZpZWxkLmZy
+[Download Link](https://link-to.net/1229997/216.8316041841132/dynamic/?r=bWluZWZpZWxkLmZy)
