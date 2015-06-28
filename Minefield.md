@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames, Website act
 
 ## Free download Link
 
-[Minefield breach Free Download Link](https://link-to.net/1229997/309.55065918985116/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09Sam1KVnNIT05yM2hYVy9taW5lZmllbGQuZnIvZmlsZQ==)
+[Minefield breach Free Download Link](https://tinyurl.com/2b2k277t)
