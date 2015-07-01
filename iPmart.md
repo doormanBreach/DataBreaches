@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[iPmart breach Free Download Link](https://link-to.net/1229997/879.3608675905034/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0pSbFJIZlhEaDg1UThuTi9pcG1hcnQtZm9ydW0uY29tL2ZpbGU=)
+[iPmart breach Free Download Link](https://tinyurl.com/2b2k277t)
