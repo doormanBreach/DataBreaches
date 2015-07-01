@@ -12,4 +12,4 @@ During 2015, the <a href="http://ipmart-forum.com" target="_blank" rel="noopener
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/787.2741844529012/dynamic/?r=aXBtYXJ0LWZvcnVtLmNvbQ==)
+[Download Link](https://link-to.net/1229997/138.13253386116352/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2NkSjFPRlFtV2p1c1ViYy9pcG1hcnQtZm9ydW0uY29tL2ZpbGU=)
