@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[CheapAssGamer breach Free Download Link](https://link-to.net/1229997/980.6859888775048/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZpOGhheDltTWtXck5PZC9jaGVhcGFzc2dhbWVyLmNvbS9maWxl)
+[CheapAssGamer breach Free Download Link](https://tinyurl.com/2b2k277t)
