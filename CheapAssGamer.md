@@ -12,4 +12,4 @@ In approximately mid-2015, the forum for <a href="https://www.cheapassgamer.com"
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/781.0584510806938/dynamic/?r=Y2hlYXBhc3NnYW1lci5jb20=)
+[Download Link](https://link-to.net/1229997/286.87773544485987/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0Q3VFVNOWU1Q2hla3R6by9jaGVhcGFzc2dhbWVyLmNvbS9maWxl)
