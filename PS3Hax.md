@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[PS3Hax breach Free Download Link](https://link-to.net/1229997/412.79524540382516/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzlLeUNWU1ZFMFEzMkxxVC9wczNoYXgubmV0L2ZpbGU=)
+[PS3Hax breach Free Download Link](https://tinyurl.com/2b2k277t)
