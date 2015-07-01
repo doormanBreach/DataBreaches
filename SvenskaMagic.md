@@ -12,4 +12,4 @@ Sometime in 2015, the Swedish magic website <a href="https://www.svenskamagic.co
 
 ## Links
 
-https://link-to.net/1229997/214.84356191039322/dynamic/?r=c3ZlbnNrYW1hZ2ljLmNvbQ==
+[Download Link](https://link-to.net/1229997/100.90838342363273/dynamic/?r=c3ZlbnNrYW1hZ2ljLmNvbQ==)
