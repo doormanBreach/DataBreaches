@@ -12,4 +12,4 @@ Bank account numbers, Customer feedback, Dates of birth, Financial transactions,
 
 ## Free download Link
 
-[QatarNationalBank breach Free Download Link](https://link-to.net/1229997/846.37420228486/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3k4OVZDcXRPSDB4dUs4aC9xbmIuY29tL2ZpbGU=)
+[QatarNationalBank breach Free Download Link](https://tinyurl.com/2b2k277t)
