@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Plex breach Free Download Link](https://link-to.net/1229997/976.3946290052254/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0tCdFNMVjJReFA1SUpnUS9wbGV4LnR2L2ZpbGU=)
+[Plex breach Free Download Link](https://tinyurl.com/2b2k277t)
