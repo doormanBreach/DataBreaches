@@ -12,4 +12,4 @@ In July 2015, the discussion forum for Plex media centre <a href="https://blog.p
 
 ## Links
 
-https://link-to.net/1229997/307.0049196736735/dynamic/?r=cGxleC50dg==
+[Download Link](https://link-to.net/1229997/75.06431131962299/dynamic/?r=cGxleC50dg==)
