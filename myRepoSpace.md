@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[myRepoSpace breach Free Download Link](https://link-to.net/1229997/53.669029622601336/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0UzeFpzbzdFT3M3a1ZtTC9teXJlcG9zcGFjZS5jb20vZmlsZQ==)
+[myRepoSpace breach Free Download Link](https://tinyurl.com/2b2k277t)
