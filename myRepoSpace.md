@@ -12,4 +12,4 @@ In July 2015, the Cydia repository known as <a href="https://myrepospace.com/" t
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/497.5798849344455/dynamic/?r=bXlyZXBvc3BhY2UuY29t)
+[Download Link](https://link-to.net/1229997/124.73615400375581/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2plQjhrbzlaZldTekFJRS9teXJlcG9zcGFjZS5jb20vZmlsZQ==)
