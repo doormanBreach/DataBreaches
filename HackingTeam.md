@@ -12,4 +12,4 @@ In July 2015, the Italian security firm <a href="http://hackingteam.com" target=
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/922.6163683623935/dynamic/?r=aGFja2luZ3RlYW0uY29t)
+[Download Link](https://link-to.net/1229997/916.4496751033766/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3BEeXJyT2wxQlNIeFMxUS9oYWNraW5ndGVhbS5jb20vZmlsZQ==)
