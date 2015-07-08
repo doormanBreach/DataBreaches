@@ -12,4 +12,4 @@ In July 2015, the Swedish video store chain <a href="http://www.hemmakvall.se/" 
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/909.2520022495977/dynamic/?r=aGVtbWFrdmFsbC5zZQ==)
+[Download Link](https://link-to.net/1229997/221.90413764249305/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3FZY1FaVGZCU2MwU25BeS9oZW1tYWt2YWxsLnNlL2ZpbGU=)
