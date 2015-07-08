@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[Hemmakvall breach Free Download Link](https://link-to.net/1229997/197.50837062938896/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0pQekdXcHRJUllzdDVtRS9oZW1tYWt2YWxsLnNlL2ZpbGU=)
+[Hemmakvall breach Free Download Link](https://tinyurl.com/2b2k277t)
