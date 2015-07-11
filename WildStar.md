@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[WildStar breach Free Download Link](https://link-to.net/1229997/701.21787206791/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3ZRQTNUOEx5N0dHVmdsTS93aWxkc3Rhci1vbmxpbmUuY29tL2ZpbGU=)
+[WildStar breach Free Download Link](https://tinyurl.com/2b2k277t)
