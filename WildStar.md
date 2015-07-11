@@ -12,4 +12,4 @@ In July 2015, the IP.Board forum for the gaming website <a href="http://www.wild
 
 ## Links
 
-https://link-to.net/1229997/28.326607405725234/dynamic/?r=d2lsZHN0YXItb25saW5lLmNvbQ==
+[Download Link](https://link-to.net/1229997/730.3340792803643/dynamic/?r=d2lsZHN0YXItb25saW5lLmNvbQ==)
