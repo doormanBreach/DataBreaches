@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Seedpeer breach Free Download Link](https://link-to.net/1229997/729.4189129530591/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L21xVTNXZE5lckI1aTVRSC9zZWVkcGVlci5ldS9maWxl)
+[Seedpeer breach Free Download Link](https://tinyurl.com/2b2k277t)
