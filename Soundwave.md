@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Geographic locations, Names, Passwords
 
 ## Free download Link
 
-[Soundwave breach Free Download Link](https://link-to.net/1229997/858.325106795564/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0xWREI5eVdrdnNXaVV1eC9zb3VuZHdhdmUuY29tL2ZpbGU=)
+[Soundwave breach Free Download Link](https://tinyurl.com/2b2k277t)
