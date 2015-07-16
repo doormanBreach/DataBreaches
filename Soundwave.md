@@ -12,4 +12,4 @@ In approximately mid 2015, the music tracking app <a href="http://www.soundwave.
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/548.4337150395787/dynamic/?r=c291bmR3YXZlLmNvbQ==)
+[Download Link](https://link-to.net/1229997/113.12115544635016/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2FCOXcxT3lnQ3dRYWJwdS9zb3VuZHdhdmUuY29tL2ZpbGU=)
