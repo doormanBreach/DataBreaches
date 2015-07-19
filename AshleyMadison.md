@@ -12,4 +12,4 @@ In July 2015, the infidelity website Ashley Madison <a href="http://krebsonsecur
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/644.3696082811626/dynamic/?r=YXNobGV5bWFkaXNvbi5jb20=)
+[Download Link](https://link-to.net/1229997/685.105634462997/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzR3WGhUYWlsb29IdzBCYS9hc2hsZXltYWRpc29uLmNvbS9maWxl)
