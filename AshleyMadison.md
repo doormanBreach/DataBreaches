@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Ethnicities, Genders, Names, Passwords, Payment
 
 ## Free download Link
 
-[AshleyMadison breach Free Download Link](https://link-to.net/1229997/770.7262247512645/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1NKWTE0VWl3dzZMVHBoQy9hc2hsZXltYWRpc29uLmNvbS9maWxl)
+[AshleyMadison breach Free Download Link](https://tinyurl.com/2b2k277t)
