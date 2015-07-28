@@ -12,4 +12,4 @@ In July 2015, the French Pokémon site <a href="https://www.pokebip.com/news3382
 
 ## Links
 
-https://link-to.net/1229997/737.5051992096664/dynamic/?r=cG9rZWJpcC5jb20=
+[Download Link](https://link-to.net/1229997/14.800635731099243/dynamic/?r=cG9rZWJpcC5jb20=)
