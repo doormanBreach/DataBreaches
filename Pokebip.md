@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Time zones, Usernames, Website activit
 
 ## Free download Link
 
-[Pokebip breach Free Download Link](https://link-to.net/1229997/691.5872882184673/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L29tVGh4ZU1xS295MDJNTS9wb2tlYmlwLmNvbS9maWxl)
+[Pokebip breach Free Download Link](https://tinyurl.com/2b2k277t)
