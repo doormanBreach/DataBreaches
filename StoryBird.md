@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Usernames
 
 ## Free download Link
 
-[StoryBird breach Free Download Link](https://link-to.net/1229997/697.6819505429241/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09idG91eDRTYkhyQ3RDWi9zdG9yeWJpcmQuY29tL2ZpbGU=)
+[StoryBird breach Free Download Link](https://tinyurl.com/2b2k277t)
