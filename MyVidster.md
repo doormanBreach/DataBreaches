@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[MyVidster breach Free Download Link](https://link-to.net/1229997/663.0389139661496/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RqM3NEQVdJeGQ3bXJWei9teXZpZHN0ZXIuY29tL2ZpbGU=)
+[MyVidster breach Free Download Link](https://tinyurl.com/2b2k277t)
