@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, IP addresses, Names, Passwords, Phone 
 
 ## Free download Link
 
-[ClearVoiceSurveys breach Free Download Link](https://link-to.net/1229997/839.8599199972949/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRwYVFZUDNNM0JBcmZZTi9jbGVhcnZvaWNlc3VydmV5cy5jb20vZmlsZQ==)
+[ClearVoiceSurveys breach Free Download Link](https://tinyurl.com/2b2k277t)
