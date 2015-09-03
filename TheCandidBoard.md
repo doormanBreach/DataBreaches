@@ -12,4 +12,4 @@ In September 2015, the non-consensual voyeurism site <a href="http://www.ibtimes
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/647.909690750308/dynamic/?r=dGhlY2FuZGlkYm9hcmQuY29t)
+[Download Link](https://link-to.net/1229997/64.47028894654471/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0RxU21MUkJtQTF1RnBwby90aGVjYW5kaWRib2FyZC5jb20vZmlsZQ==)
