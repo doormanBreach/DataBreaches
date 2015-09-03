@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Geographic locations, IP addresses, Passwords, 
 
 ## Free download Link
 
-[TheCandidBoard breach Free Download Link](https://link-to.net/1229997/979.2351760887566/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1cyUFplQVpiS2NyUE5qVi90aGVjYW5kaWRib2FyZC5jb20vZmlsZQ==)
+[TheCandidBoard breach Free Download Link](https://tinyurl.com/2b2k277t)
