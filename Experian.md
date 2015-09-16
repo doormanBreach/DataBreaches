@@ -12,4 +12,4 @@ In September 2015, the US based credit bureau and consumer data broker <a href="
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/897.5915759741143/dynamic/?r=ZXhwZXJpYW4uY29t)
+[Download Link](https://link-to.net/1229997/45.65724454041165/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzlsdVZLMWoxOFpZQWtySS9leHBlcmlhbi5jb20vZmlsZQ==)
