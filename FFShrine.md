@@ -12,4 +12,4 @@ In September 2015, <a href="http://ffshrine.org" target="_blank" rel="noopener">
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/741.8513680442666/dynamic/?r=ZmZzaHJpbmUub3Jn)
+[Download Link](https://link-to.net/1229997/584.2419432215484/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L21abk94Z3AxYzNqWGpsMi9mZnNocmluZS5vcmcvZmlsZQ==)
