@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[WIIUISO breach Free Download Link](https://link-to.net/1229997/108.75404652996956/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzROVU1tNnpFMlJLZE1HWi93aWl1aXNvLmNvbS9maWxl)
+[WIIUISO breach Free Download Link](https://tinyurl.com/2b2k277t)
