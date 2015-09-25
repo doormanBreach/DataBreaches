@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[PSPISO breach Free Download Link](https://link-to.net/1229997/150.43974570840425/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFYOUhObEZManlWOEhVdC9wc3Bpc28uY29tL2ZpbGU=)
+[PSPISO breach Free Download Link](https://tinyurl.com/2b2k277t)
