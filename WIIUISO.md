@@ -12,4 +12,4 @@ In September 2015, the Nintendo Wii U forum known as <a href="http://www.wiiuiso
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/270.0845329692806/dynamic/?r=d2lpdWlzby5jb20=)
+[Download Link](https://link-to.net/1229997/274.72441272277894/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2NiVzh3VXVRWjc3aFBjMC93aWl1aXNvLmNvbS9maWxl)
