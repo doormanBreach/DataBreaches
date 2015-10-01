@@ -12,4 +12,4 @@ Email addresses, Passwords, Payment histories, Physical addresses, Private messa
 
 ## Free download Link
 
-[Patreon breach Free Download Link](https://link-to.net/1229997/330.0474079859953/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2dXcldrN3FQVjZ4M25HbS9wYXRyZW9uLmNvbS9maWxl)
+[Patreon breach Free Download Link](https://tinyurl.com/2b2k277t)
