@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, IP addresses, Names, Physical addresse
 
 ## Free download Link
 
-[SpecialKSpamList breach Free Download Link](https://link-to.net/1229997/185.18439082310456/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0k3TldsT0tQbnFJWnltei9kYXRhNG1hcmtldGVycy5jb20vZmlsZQ==)
+[SpecialKSpamList breach Free Download Link](https://tinyurl.com/2b2k277t)
