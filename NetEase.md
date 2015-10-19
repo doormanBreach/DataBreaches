@@ -12,4 +12,4 @@ In October 2015, the Chinese site known as <a href="http://www.163.com" target="
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/784.6878752117648/dynamic/?r=MTYzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/516.0284458178496/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJNVjc1cTRvdUxjSXFuZS8xNjMuY29tL2ZpbGU=)
