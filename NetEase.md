@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[NetEase breach Free Download Link](https://link-to.net/1229997/593.1398858004641/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25BZ3JEOFY2SWRKa3Vhay8xNjMuY29tL2ZpbGU=)
+[NetEase breach Free Download Link](https://tinyurl.com/2b2k277t)
