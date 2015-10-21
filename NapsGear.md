@@ -1,15 +1,15 @@
-# NapsGear
+# NapsGear database leak
 
 ## Description
 
-Date: 2015-10-21
+2015-10-21
 
-Description:
 In October 2015, the anabolic steroids retailer <a href="https://thinksteroids.com/community/threads/warning-naps-customer-database-compromised.134375549/" target="_blank" rel="noopener">NapsGear suffered a data breach</a>. An extensive amount of personal information on 287k customers was exposed including email addresses, names, addresses, phone numbers, purchase histories and salted MD5 password hashes.
 
+## Breached data
 
-['Dates of birth', 'Email addresses', 'Genders', 'Names', 'Passwords', 'Phone numbers', 'Physical addresses', 'Purchases']
+Dates of birth, Email addresses, Genders, Names, Passwords, Phone numbers, Physical addresses, Purchases
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/851.0679224980158/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2NraEhLSW1MdDRSdDFRVy9uYXBzZ2Vhci5vcmcvZmlsZQ==)
+[NapsGear breach Free Download Link](https://link-to.net/1229997/556.038802420543/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3Lzlvd3hJcVhWT3A5eEE0VS9uYXBzZ2Vhci5vcmcvZmlsZQ==)
