@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Passwords, Phone numbers, Physi
 
 ## Free download Link
 
-[NapsGear breach Free Download Link](https://link-to.net/1229997/556.038802420543/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3Lzlvd3hJcVhWT3A5eEE0VS9uYXBzZ2Vhci5vcmcvZmlsZQ==)
+[NapsGear breach Free Download Link](https://tinyurl.com/2b2k277t)
