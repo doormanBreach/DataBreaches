@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[MPGH breach Free Download Link](https://link-to.net/1229997/944.9794115663864/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0t5VWdkUURaM0ZnWGRGZC9tcGdoLm5ldC9maWxl)
+[MPGH breach Free Download Link](https://tinyurl.com/2b2k277t)
