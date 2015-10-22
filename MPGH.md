@@ -12,4 +12,4 @@ In October 2015, the multiplayer game hacking website <a href="http://www.mpgh.n
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/790.7764580635726/dynamic/?r=bXBnaC5uZXQ=)
+[Download Link](https://link-to.net/1229997/66.35047157312313/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzVydTdFU08xMjZRZ0tTZC9tcGdoLm5ldC9maWxl)
