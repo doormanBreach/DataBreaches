@@ -12,4 +12,4 @@ In approximately October 2015, the online gaming forum known as <a href="http://
 
 ## Links
 
-https://link-to.net/1229997/30.259438382717384/dynamic/?r=Z2FtZXJ6cGxhbmV0Lm5ldA==
+[Download Link](https://link-to.net/1229997/473.8486223546718/dynamic/?r=Z2FtZXJ6cGxhbmV0Lm5ldA==)
