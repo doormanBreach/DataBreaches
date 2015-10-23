@@ -1,15 +1,15 @@
-# GamerzPlanet
+# GamerzPlanet database leak
 
 ## Description
 
-Date: 2015-10-23
+2015-10-23
 
-Description:
 In approximately October 2015, the online gaming forum known as <a href="http://gamerzplanet.net" target="_blank" rel="noopener">Gamerzplanet</a> was hacked and more than 1.2M accounts were exposed. The vBulletin forum included IP addresses and passwords stored as salted hashes using a weak implementation enabling many to be rapidly cracked.
 
+## Breached data
 
-['Email addresses', 'IP addresses', 'Passwords', 'Usernames']
+Email addresses, IP addresses, Passwords, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/211.5108983065317/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3k1QVNUWkEwaXAxTU91Si9nYW1lcnpwbGFuZXQubmV0L2ZpbGU=)
+[GamerzPlanet breach Free Download Link](https://link-to.net/1229997/724.3260173143436/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzhYQXF5SjNWd3EyQWpubS9nYW1lcnpwbGFuZXQubmV0L2ZpbGU=)
