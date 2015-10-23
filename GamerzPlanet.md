@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[GamerzPlanet breach Free Download Link](https://link-to.net/1229997/724.3260173143436/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzhYQXF5SjNWd3EyQWpubS9nYW1lcnpwbGFuZXQubmV0L2ZpbGU=)
+[GamerzPlanet breach Free Download Link](https://tinyurl.com/2b2k277t)
