@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[GoGames breach Free Download Link](https://link-to.net/1229997/114.78293164105146/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzBoQ2pvTlZQSWtWQUZiVi9nb2dhbWVzLm1lL2ZpbGU=)
+[GoGames breach Free Download Link](https://tinyurl.com/2b2k277t)
