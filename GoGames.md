@@ -12,4 +12,4 @@ In approximately October 2015, the manga website <a href="http://gogames.me" tar
 
 ## Links
 
-https://link-to.net/YOUR_USER/445.4072430499397/dynamic/?r=Z29nYW1lcy5tZQ==
+https://link-to.net/YOUR_USER/595.2382030186258/dynamic/?r=Z29nYW1lcy5tZQ==
