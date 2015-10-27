@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames, Website act
 
 ## Free download Link
 
-[PHPFreaks breach Free Download Link](https://link-to.net/1229997/375.31854372654504/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZuVmJtUVlHNWtlNnRoNC9waHBmcmVha3MuY29tL2ZpbGU=)
+[PHPFreaks breach Free Download Link](https://tinyurl.com/2b2k277t)
