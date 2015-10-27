@@ -12,4 +12,4 @@ In October 2015, the PHP discussion board <a href="http://forums.phpfreaks.com/t
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/736.8327164983918/dynamic/?r=cGhwZnJlYWtzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/432.4326175222294/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3F1VUlMcG56Sjc2ZHJZbS9waHBmcmVha3MuY29tL2ZpbGU=)
