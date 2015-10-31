@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Mac-Torrents breach Free Download Link](https://link-to.net/1229997/565.956194590218/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1NBWnBNSWNvNUp5MXNZaC9tYWMtdG9ycmVudHMuY29tL2ZpbGU=)
+[Mac-Torrents breach Free Download Link](https://tinyurl.com/2b2k277t)
