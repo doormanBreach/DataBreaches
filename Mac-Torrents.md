@@ -12,4 +12,4 @@ In October 2015, the torrent site <a href="http://www.mac-torrents.com" target="
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/984.0094792962406/dynamic/?r=bWFjLXRvcnJlbnRzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/533.2609936780726/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0xYeUdzUHBsR0NJNVNydS9tYWMtdG9ycmVudHMuY29tL2ZpbGU=)
