@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[R2Games breach Free Download Link](https://link-to.net/1229997/862.642737899335/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzBjTkJHRU9JWE1Dd1JtNy9yMmdhbWVzLmNvbS9maWxl)
+[R2Games breach Free Download Link](https://tinyurl.com/2b2k277t)
