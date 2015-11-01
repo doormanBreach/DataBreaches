@@ -12,4 +12,4 @@ In late 2015, the gaming website <a href="https://www.r2games.com" target="_blan
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/503.6649770232323/dynamic/?r=cjJnYW1lcy5jb20=)
+[Download Link](https://link-to.net/1229997/390.1525467557978/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09SczBxUVZFSjNDbDJBYi9yMmdhbWVzLmNvbS9maWxl)
