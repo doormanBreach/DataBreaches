@@ -12,4 +12,4 @@ In November 2015, the gaming website dedicated to classic DOS games <a href="htt
 
 ## Links
 
-https://link-to.net/YOUR_USER/503.64780013201425/dynamic/?r=YWJhbmRvbmlhLmNvbQ==
+https://link-to.net/1229997/258.1274939325038/dynamic/?r=YWJhbmRvbmlhLmNvbQ==
