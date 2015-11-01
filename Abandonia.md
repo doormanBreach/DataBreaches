@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Abandonia breach Free Download Link](https://link-to.net/1229997/73.62285089614406/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRjbDVpTXY0bjhPNzNDNC9hYmFuZG9uaWEuY29tL2ZpbGU=)
+[Abandonia breach Free Download Link](https://tinyurl.com/2b2k277t)
