@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Homepage URLs, Instant messenger identities, IP
 
 ## Free download Link
 
-[VBulletin breach Free Download Link](https://link-to.net/1229997/493.52205408482564/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1lzTTVJMVN3MEMwa3BlQy92YnVsbGV0aW4uY29tL2ZpbGU=)
+[VBulletin breach Free Download Link](https://tinyurl.com/2b2k277t)
