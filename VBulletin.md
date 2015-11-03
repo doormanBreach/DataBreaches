@@ -12,4 +12,4 @@ In November 2015, the forum software maker <a href="http://www.theregister.co.uk
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/913.9870064767406/dynamic/?r=dmJ1bGxldGluLmNvbQ==)
+[Download Link](https://link-to.net/1229997/9.479467360786975/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VUMWQ3WVhMSGJOWWhrUS92YnVsbGV0aW4uY29tL2ZpbGU=)
