@@ -12,4 +12,4 @@ In November 2015, the online chatroom known as <a href="http://xat.com/databreac
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/422.3254416817526/dynamic/?r=eGF0LmNvbQ==)
+[Download Link](https://link-to.net/1229997/188.19126903415784/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2pZbDFteDNHNU5IeDJxVy94YXQuY29tL2ZpbGU=)
