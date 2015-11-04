@@ -12,4 +12,4 @@ In late 2015, the online penpal site InterPals had their website hacked and 3.4 
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/996.5314048955388/dynamic/?r=aW50ZXJwYWxzLm5ldA==)
+[Download Link](https://link-to.net/1229997/606.4132343333586/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0EwdnFDNWF1UFVvbHFONC9pbnRlcnBhbHMubmV0L2ZpbGU=)
