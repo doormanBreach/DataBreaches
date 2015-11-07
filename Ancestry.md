@@ -12,4 +12,4 @@ In November 2015, an Ancestry service known as <a href="https://blogs.ancestry.c
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/563.5419233416075/dynamic/?r=YW5jZXN0cnkuY29t)
+[Download Link](https://link-to.net/1229997/681.2833048120261/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1YyZGZRTUFzT1JjMGNWQy9hbmNlc3RyeS5jb20vZmlsZQ==)
