@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Ancestry breach Free Download Link](https://link-to.net/1229997/78.73674880950176/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2VhRVNzOGhIejF3Vm1rUS9hbmNlc3RyeS5jb20vZmlsZQ==)
+[Ancestry breach Free Download Link](https://tinyurl.com/2b2k277t)
