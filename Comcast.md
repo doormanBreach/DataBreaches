@@ -12,4 +12,4 @@ Email addresses, Passwords, Physical addresses
 
 ## Free download Link
 
-[Comcast breach Free Download Link](https://link-to.net/1229997/542.8288231927002/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1NvSDczNm40ajI1RnhaQy9jb21jYXN0Lm5ldC9maWxl)
+[Comcast breach Free Download Link](https://tinyurl.com/2b2k277t)
