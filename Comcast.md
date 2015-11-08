@@ -12,4 +12,4 @@ In November 2015, the US internet and cable TV provider Comcast <a href="http://
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/97.07746789052962/dynamic/?r=Y29tY2FzdC5uZXQ=)
+[Download Link](https://link-to.net/1229997/342.3197518051937/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3pLUEhnZkVSMjc4Uk95ai9jb21jYXN0Lm5ldC9maWxl)
