@@ -12,4 +12,4 @@ Beauty ratings, Car ownership statuses, Dates of birth, Drinking habits, Educati
 
 ## Free download Link
 
-[BeautifulPeople breach Free Download Link](https://link-to.net/1229997/696.0695859121262/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzUzNUl3TGRmaXJ4VjB5Qi9iZWF1dGlmdWxwZW9wbGUuY29tL2ZpbGU=)
+[BeautifulPeople breach Free Download Link](https://tinyurl.com/2b2k277t)
