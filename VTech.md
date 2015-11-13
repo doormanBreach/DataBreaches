@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Family members' names, Genders, IP addresses, N
 
 ## Free download Link
 
-[VTech breach Free Download Link](https://link-to.net/1229997/16.533458254269995/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L291TlQxVndGWHRVNWc5Ry92dGVjaGRhLmNvbS9maWxl)
+[VTech breach Free Download Link](https://tinyurl.com/2b2k277t)
