@@ -12,4 +12,4 @@ In November 2015, <a href="http://www.troyhunt.com/2015/11/when-children-are-bre
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/675.3463017339432/dynamic/?r=dnRlY2hkYS5jb20=)
+[Download Link](https://link-to.net/1229997/417.8356788971672/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3Lzc3MnFkYkVRZzNTTzdNaS92dGVjaGRhLmNvbS9maWxl)
