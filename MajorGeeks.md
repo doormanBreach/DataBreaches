@@ -12,4 +12,4 @@ In November 2015, almost 270k accounts from the <a href="http://www.majorgeeks.c
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/83.75463021841301/dynamic/?r=bWFqb3JnZWVrcy5jb20=)
+[Download Link](https://link-to.net/1229997/540.397477827446/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0hWTFRrZjNBVmpWaUdGQy9tYWpvcmdlZWtzLmNvbS9maWxl)
