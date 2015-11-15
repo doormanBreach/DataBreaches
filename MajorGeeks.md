@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[MajorGeeks breach Free Download Link](https://link-to.net/1229997/594.1503917906231/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1BCeWtiVUNkUFR3OUtHRy9tYWpvcmdlZWtzLmNvbS9maWxl)
+[MajorGeeks breach Free Download Link](https://tinyurl.com/2b2k277t)
