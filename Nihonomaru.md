@@ -12,4 +12,4 @@ In late 2015, the anime community known as Nihonomaru had their vBulletin forum 
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/721.9986167868448/dynamic/?r=bmlob25vbWFydS5uZXQ=)
+[Download Link](https://link-to.net/1229997/757.2210488188485/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2U5b2YxUHhOYUE5ZjlJbi9uaWhvbm9tYXJ1Lm5ldC9maWxl)
