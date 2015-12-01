@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Nihonomaru breach Free Download Link](https://link-to.net/1229997/879.3810409560234/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3UwcVlGYmpFM3BpdFBhcC9uaWhvbm9tYXJ1Lm5ldC9maWxl)
+[Nihonomaru breach Free Download Link](https://tinyurl.com/2b2k277t)
