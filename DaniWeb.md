@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords
 
 ## Free download Link
 
-[DaniWeb breach Free Download Link](https://link-to.net/1229997/323.86894555059064/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25YR0hNbmF2WU00MmsxNC9kYW5pd2ViLmNvbS9maWxl)
+[DaniWeb breach Free Download Link](https://tinyurl.com/2b2k277t)
