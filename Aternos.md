@@ -12,4 +12,4 @@ In December 2015, the service for creating and running free Minecraft servers kn
 
 ## Links
 
-https://link-to.net/1229997/941.8389005079769/dynamic/?r=YXRlcm5vcy5vcmc=
+[Download Link](https://link-to.net/1229997/457.1431275594705/dynamic/?r=YXRlcm5vcy5vcmc=)
