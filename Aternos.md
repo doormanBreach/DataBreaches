@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames, Website activity
 
 ## Free download Link
 
-[Aternos breach Free Download Link](https://link-to.net/1229997/346.5793173123365/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RTSVp4a2lSWG9iSmd6Vi9hdGVybm9zLm9yZy9maWxl)
+[Aternos breach Free Download Link](https://tinyurl.com/2b2k277t)
