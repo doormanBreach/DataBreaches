@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames, Website act
 
 ## Free download Link
 
-[QuinStreet breach Free Download Link](https://link-to.net/1229997/69.14019004425897/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0M4cmVPZ2UySm1hZ0c2bS9xdWluc3RyZWV0LmNvbS9maWxl)
+[QuinStreet breach Free Download Link](https://tinyurl.com/2b2k277t)
