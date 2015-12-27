@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Names, Passwords, Usernames
 
 ## Free download Link
 
-[Trillian breach Free Download Link](https://link-to.net/1229997/664.4685537986331/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1JUbmpjN0t3M0R2T2NMYi90cmlsbGlhbi5pbS9maWxl)
+[Trillian breach Free Download Link](https://tinyurl.com/2b2k277t)
