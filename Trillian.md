@@ -12,4 +12,4 @@ In December 2015, the instant messaging application <a href="https://www.trillia
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/826.5087914932041/dynamic/?r=dHJpbGxpYW4uaW0=)
+[Download Link](https://link-to.net/1229997/301.7213710440392/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3p6VlExRmxHYXNEZE5EOS90cmlsbGlhbi5pbS9maWxl)
