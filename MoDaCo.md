@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[MoDaCo breach Free Download Link](https://link-to.net/1229997/641.8212856294583/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VFdTYzTE1YYkpoTE56TC9tb2RhY28uY29tL2ZpbGU=)
+[MoDaCo breach Free Download Link](https://tinyurl.com/2b2k277t)
