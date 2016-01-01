@@ -12,4 +12,4 @@ In approximately early 2016, the gaming website <a href="http://www.xpgamesaves.
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/643.8811158340256/dynamic/?r=eHBnYW1lc2F2ZXMuY29t)
+[Download Link](https://link-to.net/1229997/395.0943278888087/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L051eVhpMzY4WGVRc21zOS94cGdhbWVzYXZlcy5jb20vZmlsZQ==)
