@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Lifeboat breach Free Download Link](https://link-to.net/1229997/22.448681299831243/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0c4SUtSM0MzbnJCTk55Sy9sYnNnLm5ldC9maWxl)
+[Lifeboat breach Free Download Link](https://tinyurl.com/2b2k277t)
