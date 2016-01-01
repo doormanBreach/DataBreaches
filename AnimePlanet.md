@@ -12,4 +12,4 @@ In approximately 2016, the anime website <a href="https://www.anime-planet.com/"
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/559.7689377460812/dynamic/?r=YW5pbWUtcGxhbmV0LmNvbQ==)
+[Download Link](https://link-to.net/1229997/610.1514902896748/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0NXN0l0eWx6S2RJMkpjaS9hbmltZS1wbGFuZXQuY29tL2ZpbGU=)
