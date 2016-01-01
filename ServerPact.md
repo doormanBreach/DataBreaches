@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[ServerPact breach Free Download Link](https://link-to.net/1229997/272.65973870279316/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0hwRnhJTlJCdEVleE1GRi9zZXJ2ZXJwYWN0LmNvbS9maWxl)
+[ServerPact breach Free Download Link](https://tinyurl.com/2b2k277t)
