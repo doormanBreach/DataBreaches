@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[AnimePlanet breach Free Download Link](https://link-to.net/1229997/862.5153857358563/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzR6ZE1VdE5jRXdSaFhEUS9hbmltZS1wbGFuZXQuY29tL2ZpbGU=)
+[AnimePlanet breach Free Download Link](https://tinyurl.com/2b2k277t)
