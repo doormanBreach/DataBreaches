@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[XPGameSaves breach Free Download Link](https://link-to.net/1229997/180.56998281217074/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2hQeEpXeGNsWHZEcWE3aS94cGdhbWVzYXZlcy5jb20vZmlsZQ==)
+[XPGameSaves breach Free Download Link](https://tinyurl.com/2b2k277t)
