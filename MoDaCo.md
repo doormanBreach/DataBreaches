@@ -12,4 +12,4 @@ In approximately January 2016, the UK based Android community known as <a href="
 
 ## Links
 
-https://link-to.net/1229997/757.2486266132106/dynamic/?r=bW9kYWNvLmNvbQ==
+[Download Link](https://link-to.net/1229997/506.9811823603526/dynamic/?r=bW9kYWNvLmNvbQ==)
