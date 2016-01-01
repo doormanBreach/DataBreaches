@@ -12,4 +12,4 @@ In January 2016, the online virtual world known as <a href="http://www.onverse.c
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/259.99975242935267/dynamic/?r=b252ZXJzZS5jb20=)
+[Download Link](https://link-to.net/1229997/638.9219175715286/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3dNT3ljNW9VVTBVSlJzdC9vbnZlcnNlLmNvbS9maWxl)
