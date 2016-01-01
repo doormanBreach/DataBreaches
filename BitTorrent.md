@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[BitTorrent breach Free Download Link](https://link-to.net/1229997/314.0707940808374/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzNONkhIZXA3OGx0cUQ1WC9iaXR0b3JyZW50LmNvbS9maWxl)
+[BitTorrent breach Free Download Link](https://tinyurl.com/2b2k277t)
