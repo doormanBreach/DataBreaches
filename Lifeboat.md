@@ -12,4 +12,4 @@ In January 2016, the Minecraft community known as Lifeboat <a href="https://moth
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/630.3548665856379/dynamic/?r=bGJzZy5uZXQ=)
+[Download Link](https://link-to.net/1229997/91.30464349428024/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZvcVFHQWxYc3hEUUlyeC9sYnNnLm5ldC9maWxl)
