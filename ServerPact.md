@@ -12,4 +12,4 @@ In mid-2015, the Dutch Minecraft site <a href="https://twitter.com/serverpact/st
 
 ## Links
 
-https://link-to.net/1229997/830.723212409227/dynamic/?r=c2VydmVycGFjdC5jb20=
+[Download Link](https://link-to.net/1229997/476.01443754292694/dynamic/?r=c2VydmVycGFjdC5jb20=)
