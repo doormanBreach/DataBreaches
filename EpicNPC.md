@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[EpicNPC breach Free Download Link](https://link-to.net/1229997/841.4213654373115/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRENWZIcjJ4aWdYRWg5eC9lcGljbnBjLmNvbS9maWxl)
+[EpicNPC breach Free Download Link](https://tinyurl.com/2b2k277t)
