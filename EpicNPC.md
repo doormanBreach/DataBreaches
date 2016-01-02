@@ -12,4 +12,4 @@ In January 2016, the hacked account reseller <a href="https://www.epicnpc.com" t
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/867.2015367511987/dynamic/?r=ZXBpY25wYy5jb20=)
+[Download Link](https://link-to.net/1229997/827.3668823102629/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L05sa2x1NkxLc2Y2bGpROC9lcGljbnBjLmNvbS9maWxl)
