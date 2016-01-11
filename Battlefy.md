@@ -12,4 +12,4 @@ In January 2016, the esports website <a href="https://dotesports.com/general/new
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/75.283885054653/dynamic/?r=YmF0dGxlZnkuY29t)
+[Download Link](https://link-to.net/1229997/883.064727130962/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzlBbnhnQ0twbkNQcmE5Wi9iYXR0bGVmeS5jb20vZmlsZQ==)
