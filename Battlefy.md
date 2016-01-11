@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Battlefy breach Free Download Link](https://link-to.net/1229997/390.33039793235656/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L05kUEZMMW5zY0V5cUs1eS9iYXR0bGVmeS5jb20vZmlsZQ==)
+[Battlefy breach Free Download Link](https://tinyurl.com/2b2k277t)
