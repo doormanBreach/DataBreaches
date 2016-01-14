@@ -12,4 +12,4 @@ In early 2016, the forum for the uTorrent BitTorrent client <a href="https://tor
 
 ## Links
 
-https://link-to.net/1229997/352.0676583935598/dynamic/?r=dXRvcnJlbnQuY29t
+[Download Link](https://link-to.net/1229997/511.7843624925682/dynamic/?r=dXRvcnJlbnQuY29t)
