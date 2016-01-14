@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[uTorrent breach Free Download Link](https://link-to.net/1229997/449.5965392333042/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0tKSk5QdWxUaXJhRkY2dy91dG9ycmVudC5jb20vZmlsZQ==)
+[uTorrent breach Free Download Link](https://tinyurl.com/2b2k277t)
