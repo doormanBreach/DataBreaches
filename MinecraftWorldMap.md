@@ -12,4 +12,4 @@ In approximately January 2016, the Minecraft World Map site designed for sharing
 
 ## Links
 
-https://link-to.net/YOUR_USER/189.7400609671188/dynamic/?r=bWluZWNyYWZ0d29ybGRtYXAuY29t
+https://link-to.net/1229997/286.0259944367771/dynamic/?r=bWluZWNyYWZ0d29ybGRtYXAuY29t
