@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[MinecraftWorldMap breach Free Download Link](https://link-to.net/1229997/336.9949724031318/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25PTnpiU2pMbTZQVVJ1aC9taW5lY3JhZnR3b3JsZG1hcC5jb20vZmlsZQ==)
+[MinecraftWorldMap breach Free Download Link](https://tinyurl.com/2b2k277t)
