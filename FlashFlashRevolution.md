@@ -12,4 +12,4 @@ In February 2016, the music-based rhythm game known as <a href="http://www.flash
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/959.0760085198978/dynamic/?r=Zmxhc2hmbGFzaHJldm9sdXRpb24uY29t)
+[Download Link](https://link-to.net/1229997/222.3580931178718/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2RXUmtkU2hIUHRLQVFrMC9mbGFzaGZsYXNocmV2b2x1dGlvbi5jb20vZmlsZQ==)
