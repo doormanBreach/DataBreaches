@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[FlashFlashRevolution breach Free Download Link](https://link-to.net/1229997/485.31355632311335/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzNCVEZVbkFNRXgxNE1keC9mbGFzaGZsYXNocmV2b2x1dGlvbi5jb20vZmlsZQ==)
+[FlashFlashRevolution breach Free Download Link](https://tinyurl.com/2b2k277t)
