@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[VTightGel breach Free Download Link](https://link-to.net/1229997/539.1818323002725/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VGcnZlVzNYZDVNRUloRC92dGlnaHRnZWwuY29tL2ZpbGU=)
+[VTightGel breach Free Download Link](https://tinyurl.com/2b2k277t)
