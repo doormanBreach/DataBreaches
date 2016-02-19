@@ -12,4 +12,4 @@ In February 2016, the Slovak torrent tracking site SkTorrent <a href="http://tec
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/566.4072236698685/dynamic/?r=c2t0b3JyZW50LmV1)
+[Download Link](https://link-to.net/1229997/222.88775787840808/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0pBejdpN3dNRFk5TWhUbC9za3RvcnJlbnQuZXUvZmlsZQ==)
