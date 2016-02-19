@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[SkTorrent breach Free Download Link](https://link-to.net/1229997/362.2581221655388/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L080Z2NNVks1RVNoQmdTUy9za3RvcnJlbnQuZXUvZmlsZQ==)
+[SkTorrent breach Free Download Link](https://tinyurl.com/2b2k277t)
