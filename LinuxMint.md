@@ -12,4 +12,4 @@ Avatars, Dates of birth, Email addresses, Geographic locations, IP addresses, Pa
 
 ## Free download Link
 
-[LinuxMint breach Free Download Link](https://link-to.net/1229997/570.2515091095147/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZBNDh5b3RsdEl5SE1yMC9saW51eG1pbnQuY29tL2ZpbGU=)
+[LinuxMint breach Free Download Link](https://tinyurl.com/2b2k277t)
