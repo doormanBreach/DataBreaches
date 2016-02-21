@@ -12,4 +12,4 @@ In February 2016, the website for the Linux distro known as Linux Mint <a href="
 
 ## Links
 
-https://link-to.net/1229997/856.2184012402342/dynamic/?r=bGludXhtaW50LmNvbQ==
+[Download Link](https://link-to.net/1229997/914.3476344744012/dynamic/?r=bGludXhtaW50LmNvbQ==)
