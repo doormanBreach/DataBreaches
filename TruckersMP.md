@@ -12,4 +12,4 @@ In February 2016, the online trucking simulator mod <a href="http://truckersmp.c
 
 ## Links
 
-https://link-to.net/1229997/776.112616741993/dynamic/?r=dHJ1Y2tlcnNtcC5jb20=
+[Download Link](https://link-to.net/1229997/881.5568142295776/dynamic/?r=dHJ1Y2tlcnNtcC5jb20=)
