@@ -12,4 +12,4 @@ Avatars, Dates of birth, Email addresses, Genders, Names, Spoken languages, User
 
 ## Free download Link
 
-[Nival breach Free Download Link](https://link-to.net/1229997/663.6347504059346/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RLYk12U3hHczh2V2l5ei9uaXZhbC5jb20vZmlsZQ==)
+[Nival breach Free Download Link](https://tinyurl.com/2b2k277t)
