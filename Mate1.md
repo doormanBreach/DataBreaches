@@ -12,4 +12,4 @@ Astrological signs, Dates of birth, Drinking habits, Drug habits, Education leve
 
 ## Free download Link
 
-[Mate1 breach Free Download Link](https://link-to.net/1229997/829.8250966423899/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09CTlB6VjJKNVd4MFB5Ti9tYXRlMS5jb20vZmlsZQ==)
+[Mate1 breach Free Download Link](https://tinyurl.com/2b2k277t)
