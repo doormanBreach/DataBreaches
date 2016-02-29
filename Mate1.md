@@ -12,4 +12,4 @@ In February 2016, the dating site <a href="http://motherboard.vice.com/read/hack
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/754.8258675436111/dynamic/?r=bWF0ZTEuY29t)
+[Download Link](https://link-to.net/1229997/190.5821372195019/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3RVZFpJWWZRQ0MwRHZYdy9tYXRlMS5jb20vZmlsZQ==)
