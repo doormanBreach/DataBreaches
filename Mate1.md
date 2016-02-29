@@ -1,15 +1,15 @@
-# Mate1
+# Mate1 database leak
 
 ## Description
 
-Date: 2016-02-29
+2016-02-29
 
-Description:
 In February 2016, the dating site <a href="http://motherboard.vice.com/read/hacker-claims-to-have-sold-27m-dating-site-passwords-mate1-com-hell-forum" target="_blank" rel="noopener">mate1.com suffered a huge data breach</a> resulting in the disclosure of over 27 million subscribers' information. The data included deeply personal information about their private lives including drug and alcohol habits, incomes levels and sexual fetishes as well as passwords stored in plain text.
 
+## Breached data
 
-['Astrological signs', 'Dates of birth', 'Drinking habits', 'Drug habits', 'Education levels', 'Email addresses', 'Ethnicities', 'Fitness levels', 'Genders', 'Geographic locations', 'Income levels', 'Job titles', 'Names', 'Parenting plans', 'Passwords', 'Personal descriptions', 'Physical attributes', 'Political views', 'Relationship statuses', 'Religions', 'Sexual fetishes', 'Travel habits', 'Usernames', 'Website activity', 'Work habits']
+Astrological signs, Dates of birth, Drinking habits, Drug habits, Education levels, Email addresses, Ethnicities, Fitness levels, Genders, Geographic locations, Income levels, Job titles, Names, Parenting plans, Passwords, Personal descriptions, Physical attributes, Political views, Relationship statuses, Religions, Sexual fetishes, Travel habits, Usernames, Website activity, Work habits
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/190.5821372195019/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3RVZFpJWWZRQ0MwRHZYdy9tYXRlMS5jb20vZmlsZQ==)
+[Mate1 breach Free Download Link](https://link-to.net/1229997/829.8250966423899/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09CTlB6VjJKNVd4MFB5Ti9tYXRlMS5jb20vZmlsZQ==)
