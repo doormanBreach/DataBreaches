@@ -12,4 +12,4 @@ In February 2016, the Russian portal and email service <a href="http://km.ru" ta
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/694.7093622622754/dynamic/?r=a20ucnU=)
+[Download Link](https://link-to.net/1229997/604.6765181762312/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzVsNlB6Z09jVlFmNWpvSy9rbS5ydS9maWxl)
