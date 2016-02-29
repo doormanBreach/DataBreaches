@@ -12,4 +12,4 @@ In February 2016, the Russian gaming company <a href="http://nival.com" target="
 
 ## Links
 
-https://link-to.net/1229997/963.1224812651167/dynamic/?r=bml2YWwuY29t
+[Download Link](https://link-to.net/1229997/409.08361737031737/dynamic/?r=bml2YWwuY29t)
