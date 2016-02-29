@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Geographic locations, Recovery email a
 
 ## Free download Link
 
-[KMRU breach Free Download Link](https://link-to.net/1229997/978.8439763511849/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0w1OUxmM0NaQUtzbmZVaS9rbS5ydS9maWxl)
+[KMRU breach Free Download Link](https://tinyurl.com/2b2k277t)
