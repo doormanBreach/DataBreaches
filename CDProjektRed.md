@@ -12,4 +12,4 @@ In March 2016, <a href="http://forums.cdprojektred.com/forum/en/the-witcher-seri
 
 ## Links
 
-https://link-to.net/1229997/141.75755643051235/dynamic/?r=Y2Rwcm9qZWt0cmVkLmNvbQ==
+[Download Link](https://link-to.net/1229997/948.8873847137235/dynamic/?r=Y2Rwcm9qZWt0cmVkLmNvbQ==)
