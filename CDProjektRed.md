@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[CDProjektRed breach Free Download Link](https://link-to.net/1229997/693.9962147141362/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2lGZkUzQnFxUE45c0x2cy9jZHByb2pla3RyZWQuY29tL2ZpbGU=)
+[CDProjektRed breach Free Download Link](https://tinyurl.com/2b2k277t)
