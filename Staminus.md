@@ -12,4 +12,4 @@ In March 2016, the DDoS protection service <a href="https://krebsonsecurity.com/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/418.3534303248954/dynamic/?r=c3RhbWludXMubmV0)
+[Download Link](https://link-to.net/1229997/896.5129633061373/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0YzMm9IN3pQSWIxYUw4Ti9zdGFtaW51cy5uZXQvZmlsZQ==)
