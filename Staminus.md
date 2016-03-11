@@ -12,4 +12,4 @@ Credit cards, Email addresses, IP addresses, Passwords, Support tickets, Usernam
 
 ## Free download Link
 
-[Staminus breach Free Download Link](https://link-to.net/1229997/893.0331345304771/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pMMUtLUEp5NXBteG94Mi9zdGFtaW51cy5uZXQvZmlsZQ==)
+[Staminus breach Free Download Link](https://tinyurl.com/2b2k277t)
