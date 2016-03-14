@@ -12,4 +12,4 @@ In March 2016, the adult website <a href="http://www.forbes.com/sites/thomasbrew
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/776.6610163933371/dynamic/?r=bmF1Z2h0eWFtZXJpY2EuY29t)
+[Download Link](https://link-to.net/1229997/766.0285567121315/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1R4SE5GSjhaMHR4WDdNdy9uYXVnaHR5YW1lcmljYS5jb20vZmlsZQ==)
