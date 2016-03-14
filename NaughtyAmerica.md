@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames, Website act
 
 ## Free download Link
 
-[NaughtyAmerica breach Free Download Link](https://link-to.net/1229997/238.8499503842866/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZsZVd2aEhJeDJRVlV3VS9uYXVnaHR5YW1lcmljYS5jb20vZmlsZQ==)
+[NaughtyAmerica breach Free Download Link](https://tinyurl.com/2b2k277t)
