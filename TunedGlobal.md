@@ -1,15 +1,15 @@
-# TunedGlobal
+# TunedGlobal database leak
 
 ## Description
 
-Date: 2016-03-16
+2016-03-16
 
-Description:
 In January 2021, <a href="https://siliconangle.com/2021/01/20/shinyhunters-publishes-1-9m-stolen-user-credentials-photo-editing-site-pixlr/" target="_blank" rel="noopener">data from a number of breached services including Tuned Global were released to a public hacking forum</a>. The breach appears to date back to 2016 and includes 985k records containing email addresses, names, a small number of physical addresses and phone numbers and passwords stored in plain text.
 
+## Breached data
 
-['Email addresses', 'Names', 'Passwords', 'Phone numbers', 'Physical addresses']
+Email addresses, Names, Passwords, Phone numbers, Physical addresses
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/415.79435673718746/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZSTkFpaE1QdWVhS2V5Ti90dW5lZGdsb2JhbC5jb20vZmlsZQ==)
+[TunedGlobal breach Free Download Link](https://link-to.net/1229997/961.8440128956098/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRsQ1huOUNWZVZHYzN1Zy90dW5lZGdsb2JhbC5jb20vZmlsZQ==)
