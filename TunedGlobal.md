@@ -12,4 +12,4 @@ In January 2021, <a href="https://siliconangle.com/2021/01/20/shinyhunters-publi
 
 ## Links
 
-https://link-to.net/1229997/649.2485100153817/dynamic/?r=dHVuZWRnbG9iYWwuY29t
+[Download Link](https://link-to.net/1229997/406.2817423245982/dynamic/?r=dHVuZWRnbG9iYWwuY29t)
