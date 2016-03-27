@@ -12,4 +12,4 @@ In March 2016, <a href="http://www.comelec.gov.ph/" target="_blank" rel="noopene
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/300.5180502492788/dynamic/?r=Y29tZWxlYy5nb3YucGg=)
+[Download Link](https://link-to.net/1229997/996.329952225625/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJVNTZJN1lIUFkwaGVNUC9jb21lbGVjLmdvdi5waC9maWxl)
