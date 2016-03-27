@@ -12,4 +12,4 @@ Biometric data, Dates of birth, Email addresses, Family members' names, Genders,
 
 ## Free download Link
 
-[COMELEC breach Free Download Link](https://link-to.net/1229997/377.0774144530353/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzhCZkdXU0Q5bUVhZnNwSi9jb21lbGVjLmdvdi5waC9maWxl)
+[COMELEC breach Free Download Link](https://tinyurl.com/2b2k277t)
