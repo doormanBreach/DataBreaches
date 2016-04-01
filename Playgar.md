@@ -12,4 +12,4 @@ In approximately April 2016, the gaming website <a href="https://www.play-gar.co
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/186.49863071231354/dynamic/?r=cGxheS1nYXIuY29t)
+[Download Link](https://link-to.net/1229997/880.1012961692802/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2QycXFRWmIyQ2pCUHZmSC9wbGF5LWdhci5jb20vZmlsZQ==)
