@@ -12,4 +12,4 @@ In approximately April 2016, the &quot;marketing automation for agents and profe
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/469.8307325704902/dynamic/?r=a25vd25jaXJjbGUuY29t)
+[Download Link](https://link-to.net/1229997/416.4088806797848/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzdWSDZNdG51eXJYcXNZcC9rbm93bmNpcmNsZS5jb20vZmlsZQ==)
