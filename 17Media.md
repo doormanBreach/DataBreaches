@@ -12,4 +12,4 @@ Device information, Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[17Media breach Free Download Link](https://link-to.net/1229997/623.1706655866216/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3ZwdnduUWtmQ08zdFU1MC8xN2FwcC5jby9maWxl)
+[17Media breach Free Download Link](https://tinyurl.com/2b2k277t)
