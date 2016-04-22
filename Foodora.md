@@ -12,4 +12,4 @@ In April 2016, the online food delivery service <a href="https://www.databreacht
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/670.727435632451/dynamic/?r=Zm9vZG9yYS5jb20=)
+[Download Link](https://link-to.net/1229997/763.6511206207923/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzMzaWlrbDRXWVptd0JneS9mb29kb3JhLmNvbS9maWxl)
