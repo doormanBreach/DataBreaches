@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[Foodora breach Free Download Link](https://link-to.net/1229997/190.103602529319/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2xWTnlCT2wyVGtWVFdxVy9mb29kb3JhLmNvbS9maWxl)
+[Foodora breach Free Download Link](https://tinyurl.com/2b2k277t)
