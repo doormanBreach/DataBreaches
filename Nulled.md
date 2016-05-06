@@ -12,4 +12,4 @@ In May 2016, the cracking community forum known as <a href="http://nulled.cr/" t
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/692.3188959232413/dynamic/?r=bnVsbGVkLmNy)
+[Download Link](https://link-to.net/1229997/352.39219810667544/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pyVU5GcUZQQWQ2bWxESi9udWxsZWQuY3IvZmlsZQ==)
