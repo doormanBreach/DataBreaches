@@ -12,4 +12,4 @@ In May 2016, the multiplayer server for Minecraft service <a href="https://shotb
 
 ## Links
 
-https://link-to.net/1229997/71.03572081861576/dynamic/?r=c2hvdGJvdy5uZXQ=
+[Download Link](https://link-to.net/1229997/381.0602855005731/dynamic/?r=c2hvdGJvdy5uZXQ=)
