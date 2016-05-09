@@ -12,4 +12,4 @@ Some time prior to May 2016, <a href="https://motherboard.vice.com/read/rosebutt
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/869.822385625427/dynamic/?r=cm9zZWJ1dHRib2FyZC5jb20=)
+[Download Link](https://link-to.net/1229997/9.337104602251344/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VzOWpkNXZaNUZGTVY5cC9yb3NlYnV0dGJvYXJkLmNvbS9maWxl)
