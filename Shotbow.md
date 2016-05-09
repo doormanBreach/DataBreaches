@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Shotbow breach Free Download Link](https://link-to.net/1229997/103.67243499991675/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3pnQ1lpSjBCTjZUc1FsVS9zaG90Ym93Lm5ldC9maWxl)
+[Shotbow breach Free Download Link](https://tinyurl.com/2b2k277t)
