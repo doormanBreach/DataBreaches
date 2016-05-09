@@ -1,15 +1,15 @@
-# Shotbow
+# Shotbow database leak
 
 ## Description
 
-Date: 2016-05-09
+2016-05-09
 
-Description:
 In May 2016, the multiplayer server for Minecraft service <a href="https://shotbow.net/forum/threads/security-data-breach-and-information-leak.346321/" target="_blank" rel="noopener">Shotbow announced they'd suffered a data breach</a>. The incident resulted in the exposure of over 1 million unique email addresses, usernames and salted SHA-256 password hashes.
 
+## Breached data
 
-['Email addresses', 'Passwords', 'Usernames']
+Email addresses, Passwords, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/559.6547361119036/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzI5UFNsNUFmQmY2dGVyVS9zaG90Ym93Lm5ldC9maWxl)
+[Shotbow breach Free Download Link](https://link-to.net/1229997/103.67243499991675/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3pnQ1lpSjBCTjZUc1FsVS9zaG90Ym93Lm5ldC9maWxl)
