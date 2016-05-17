@@ -12,4 +12,4 @@ In May 2016, the Fur Affinity website for people with an interest in anthropomor
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/398.41590049430107/dynamic/?r=ZnVyYWZmaW5pdHkubmV0)
+[Download Link](https://link-to.net/1229997/995.9880613110389/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3hrdFBtdDRpRDBQSDBsYS9mdXJhZmZpbml0eS5uZXQvZmlsZQ==)
