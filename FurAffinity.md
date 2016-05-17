@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[FurAffinity breach Free Download Link](https://link-to.net/1229997/642.0874167348087/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1l2S2xkMnh3TTl3SDNCcy9mdXJhZmZpbml0eS5uZXQvZmlsZQ==)
+[FurAffinity breach Free Download Link](https://tinyurl.com/2b2k277t)
