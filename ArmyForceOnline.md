@@ -12,4 +12,4 @@ Avatars, Email addresses, Geographic locations, IP addresses, Names, Passwords, 
 
 ## Free download Link
 
-[ArmyForceOnline breach Free Download Link](https://link-to.net/1229997/156.22383300466058/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZmUFZFNzNNU3I4Y1dBRS9hcm15Zm9yY2VvbmxpbmUuY29tL2ZpbGU=)
+[ArmyForceOnline breach Free Download Link](https://tinyurl.com/2b2k277t)
