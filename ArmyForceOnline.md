@@ -12,4 +12,4 @@ In May 2016, the online gaming site <a href="http://armyforceonline.com" target=
 
 ## Links
 
-https://link-to.net/1229997/328.01474339856287/dynamic/?r=YXJteWZvcmNlb25saW5lLmNvbQ==
+[Download Link](https://link-to.net/1229997/804.3914985292898/dynamic/?r=YXJteWZvcmNlb25saW5lLmNvbQ==)
