@@ -12,4 +12,4 @@ In July 2016, a tweet was posted with a link to an alleged data breach of <a hre
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/805.2776726352052/dynamic/?r=Ymx1ZXNuYXAuY29t)
+[Download Link](https://link-to.net/1229997/514.3985408353022/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3E0RGVLcDVsaEZ3cTRLOC9ibHVlc25hcC5jb20vZmlsZQ==)
