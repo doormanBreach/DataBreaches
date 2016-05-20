@@ -12,4 +12,4 @@ Browser user agent details, Credit card CVV, Email addresses, IP addresses, Name
 
 ## Free download Link
 
-[BlueSnapRegpack breach Free Download Link](https://link-to.net/1229997/115.0740412731982/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L013ZnpYS0ZGcHBzaTU5ei9ibHVlc25hcC5jb20vZmlsZQ==)
+[BlueSnapRegpack breach Free Download Link](https://tinyurl.com/2b2k277t)
