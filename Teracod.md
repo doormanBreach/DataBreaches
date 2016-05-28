@@ -12,4 +12,4 @@ In May 2015, almost 100k user records were extracted from the Hungarian torrent 
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/431.2287746866181/dynamic/?r=dGVyYWNvZC5vcmc=)
+[Download Link](https://link-to.net/1229997/745.4701393505783/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0RraWk1aVE0cTZZM2F1eC90ZXJhY29kLm9yZy9maWxl)
