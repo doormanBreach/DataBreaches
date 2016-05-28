@@ -12,4 +12,4 @@ Avatars, Email addresses, IP addresses, Passwords, Payment histories, Private me
 
 ## Free download Link
 
-[Teracod breach Free Download Link](https://link-to.net/1229997/408.46512215341414/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1VHTlRaM1E1RE9hYWtpbi90ZXJhY29kLm9yZy9maWxl)
+[Teracod breach Free Download Link](https://tinyurl.com/2b2k277t)
