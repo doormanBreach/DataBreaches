@@ -12,4 +12,4 @@ Email addresses, Genders, Names, Social connections, Website activity
 
 ## Free download Link
 
-[Uiggy breach Free Download Link](https://link-to.net/1229997/436.8631831764226/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3dNa0hlWnpGenAyQTZHaS91aWdneS5jb20vZmlsZQ==)
+[Uiggy breach Free Download Link](https://tinyurl.com/2b2k277t)
