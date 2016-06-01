@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[MangaFox breach Free Download Link](https://link-to.net/1229997/481.3097155403433/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3gyR2J6b3pEUVQzOTVtRC9tYW5nYWZveC5tZS9maWxl)
+[MangaFox breach Free Download Link](https://tinyurl.com/2b2k277t)
