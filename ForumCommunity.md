@@ -12,4 +12,4 @@ In approximately mid-2016, the Italian-based service for creating forums known a
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/819.2114822801019/dynamic/?r=Zm9ydW1jb21tdW5pdHkubmV0)
+[Download Link](https://link-to.net/1229997/953.682119344513/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1VNelRHSzh3RGRwU3BEOS9mb3J1bWNvbW11bml0eS5uZXQvZmlsZQ==)
