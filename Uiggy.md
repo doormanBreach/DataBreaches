@@ -12,4 +12,4 @@ In June 2016, the Facebook application known as <a href="http://www.uiggy.com" t
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/236.08513101646435/dynamic/?r=dWlnZ3kuY29t)
+[Download Link](https://link-to.net/1229997/979.7752928317615/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1VKcXdNUkpNYWVYZDk0Zy91aWdneS5jb20vZmlsZQ==)
