@@ -12,4 +12,4 @@ In approximately July 2016, the manga website known as <a href="http://mangafox.
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/153.14009104137227/dynamic/?r=bWFuZ2Fmb3gubWU=)
+[Download Link](https://link-to.net/1229997/690.5924858907173/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0R2UHFwUjlMNktsaEk1ei9tYW5nYWZveC5tZS9maWxl)
