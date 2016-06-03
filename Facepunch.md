@@ -12,4 +12,4 @@ In June 2016, the game development studio <a href="https://facepunch.com/" targe
 
 ## Links
 
-https://link-to.net/1229997/134.53764354144593/dynamic/?r=ZmFjZXB1bmNoLmNvbQ==
+[Download Link](https://link-to.net/1229997/161.41215598714254/dynamic/?r=ZmFjZXB1bmNoLmNvbQ==)
