@@ -12,4 +12,4 @@ In June 2016, the &quot;home of competitive Counter Strike&quot; website <a href
 
 ## Links
 
-https://link-to.net/1229997/237.83979304440638/dynamic/?r=aGx0di5vcmc=
+[Download Link](https://link-to.net/1229997/271.8236720436724/dynamic/?r=aGx0di5vcmc=)
