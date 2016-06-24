@@ -12,4 +12,4 @@ In June 2016, <a href="https://motherboard.vice.com/read/hacked-private-messages
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/160.02268124325414/dynamic/?r=bXVzbGltbWF0Y2guY29t)
+[Download Link](https://link-to.net/1229997/776.4202246188447/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01lbFJFTmlKSENUS01DaC9tdXNsaW1tYXRjaC5jb20vZmlsZQ==)
