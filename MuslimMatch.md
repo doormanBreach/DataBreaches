@@ -1,15 +1,15 @@
-# MuslimMatch
+# MuslimMatch database leak
 
 ## Description
 
-Date: 2016-06-24
+2016-06-24
 
-Description:
 In June 2016, <a href="https://motherboard.vice.com/read/hacked-private-messages-from-dating-site-muslim-match" target="_blank" rel="noopener">the Muslim Match dating website had 150k email addresses exposed</a>. The data included private chats and messages between relationship seekers and numerous other personal attributes including passwords hashed with MD5.
 
+## Breached data
 
-['Chat logs', 'Email addresses', 'Geographic locations', 'IP addresses', 'Passwords', 'Private messages', 'User statuses', 'Usernames']
+Chat logs, Email addresses, Geographic locations, IP addresses, Passwords, Private messages, User statuses, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/776.4202246188447/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01lbFJFTmlKSENUS01DaC9tdXNsaW1tYXRjaC5jb20vZmlsZQ==)
+[MuslimMatch breach Free Download Link](https://link-to.net/1229997/986.5784668676056/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RZVjNXbDRaeFdaenBBcC9tdXNsaW1tYXRjaC5jb20vZmlsZQ==)
