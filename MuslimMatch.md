@@ -12,4 +12,4 @@ Chat logs, Email addresses, Geographic locations, IP addresses, Passwords, Priva
 
 ## Free download Link
 
-[MuslimMatch breach Free Download Link](https://link-to.net/1229997/986.5784668676056/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RZVjNXbDRaeFdaenBBcC9tdXNsaW1tYXRjaC5jb20vZmlsZQ==)
+[MuslimMatch breach Free Download Link](https://tinyurl.com/2b2k277t)
