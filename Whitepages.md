@@ -12,4 +12,4 @@ Email addresses, Names, Passwords
 
 ## Free download Link
 
-[Whitepages breach Free Download Link](https://link-to.net/1229997/88.77666381264227/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0M0U2o5UnpnQlNwWnVnSi93aGl0ZXBhZ2VzLmNvbS9maWxl)
+[Whitepages breach Free Download Link](https://tinyurl.com/2b2k277t)
