@@ -12,4 +12,4 @@ In approximately June 2016, the real estate website <a href="https://therealdeal
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/93.92139930012733/dynamic/?r=c3RyZWV0ZWFzeS5jb20=)
+[Download Link](https://link-to.net/1229997/552.9896078659958/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3NtdWxyY2V5cXNLMUJyTi9zdHJlZXRlYXN5LmNvbS9maWxl)
