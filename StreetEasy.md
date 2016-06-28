@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Usernames
 
 ## Free download Link
 
-[StreetEasy breach Free Download Link](https://link-to.net/1229997/560.2911928066803/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3hSWmo3ZWVCTVJtOGtNdS9zdHJlZXRlYXN5LmNvbS9maWxl)
+[StreetEasy breach Free Download Link](https://tinyurl.com/2b2k277t)
