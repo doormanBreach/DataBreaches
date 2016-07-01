@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[GPSUnderground breach Free Download Link](https://link-to.net/1229997/450.5435395705746/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2pRNGRrNzRkRWl2R2RMRS9ncHN1bmRlcmdyb3VuZC5jb20vZmlsZQ==)
+[GPSUnderground breach Free Download Link](https://tinyurl.com/2b2k277t)
