@@ -12,4 +12,4 @@ Device information, Email addresses, Names, Phone numbers, Physical addresses, P
 
 ## Free download Link
 
-[FreshMenu breach Free Download Link](https://link-to.net/1229997/779.5903852279398/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3djUG55c2N1MW5EZk0xSS9mcmVzaG1lbnUuY29tL2ZpbGU=)
+[FreshMenu breach Free Download Link](https://tinyurl.com/2b2k277t)
