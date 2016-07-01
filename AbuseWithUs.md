@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[AbuseWithUs breach Free Download Link](https://link-to.net/1229997/448.06100536677974/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0xINlRJSHN0N2o2eTB5ai9hYnVzZXdpdGgudXMvZmlsZQ==)
+[AbuseWithUs breach Free Download Link](https://tinyurl.com/2b2k277t)
