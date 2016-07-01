@@ -12,4 +12,4 @@ In early 2017, <a href="https://www.hackread.com/vbulletin-forums-hacked-account
 
 ## Links
 
-https://link-to.net/1229997/583.6926535367526/dynamic/?r=Z3BzdW5kZXJncm91bmQuY29t
+[Download Link](https://link-to.net/1229997/752.7078758893036/dynamic/?r=Z3BzdW5kZXJncm91bmQuY29t)
