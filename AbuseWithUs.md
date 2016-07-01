@@ -12,4 +12,4 @@ In 2016, the site dedicated to helping people hack email and online gaming accou
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/15.879661130151268/dynamic/?r=YWJ1c2V3aXRoLnVz)
+[Download Link](https://link-to.net/1229997/951.939964377801/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25lbVhjbDNRd0FnVFUwWS9hYnVzZXdpdGgudXMvZmlsZQ==)
