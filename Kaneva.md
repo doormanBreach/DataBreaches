@@ -12,4 +12,4 @@ In July 2016, now defunct website Kaneva, the service to &quot;build and explore
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/636.471930504064/dynamic/?r=a2FuZXZhLmNvbQ==)
+[Download Link](https://link-to.net/1229997/708.0869429297493/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2g2Y1FZSEFVZGV6bFhhNi9rYW5ldmEuY29tL2ZpbGU=)
