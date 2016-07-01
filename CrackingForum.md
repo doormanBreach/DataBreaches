@@ -12,4 +12,4 @@ In approximately mid-2016, the cracking community forum known as <a href="http:/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/522.123226384681/dynamic/?r=Y3JhY2tpbmdmb3J1bS5jb20=)
+[Download Link](https://link-to.net/1229997/421.6875218760603/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3lGRzJkWGl4THNnT0VvRy9jcmFja2luZ2ZvcnVtLmNvbS9maWxl)
