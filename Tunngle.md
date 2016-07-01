@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Tunngle breach Free Download Link](https://link-to.net/1229997/133.37585038141196/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1VrcFg1dmhKaDAwanJQZy90dW5uZ2xlLm5ldC9maWxl)
+[Tunngle breach Free Download Link](https://tinyurl.com/2b2k277t)
