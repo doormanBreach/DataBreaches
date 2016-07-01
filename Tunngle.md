@@ -12,4 +12,4 @@ In 2016, the now defunct global LAN gaming network <a href="https://web.archive.
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/41.07892843999561/dynamic/?r=dHVubmdsZS5uZXQ=)
+[Download Link](https://link-to.net/1229997/440.63020149544184/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0NvUXVkZ0JWVk9Ra1NxeS90dW5uZ2xlLm5ldC9maWxl)
