@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Kaneva breach Free Download Link](https://link-to.net/1229997/773.9679209243143/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2trOW1FRng3cmZUWHNMRC9rYW5ldmEuY29tL2ZpbGU=)
+[Kaneva breach Free Download Link](https://tinyurl.com/2b2k277t)
