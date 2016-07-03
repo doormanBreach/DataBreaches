@@ -12,4 +12,4 @@ In July 2016, the self-proclaimed &quot;Ultimate Source For Your Mac&quot; websi
 
 ## Links
 
-https://link-to.net/1229997/95.34331692861386/dynamic/?r=bWFjLWZvcnVtcy5jb20=
+[Download Link](https://link-to.net/1229997/949.5169518020198/dynamic/?r=bWFjLWZvcnVtcy5jb20=)
