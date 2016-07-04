@@ -12,4 +12,4 @@ In July 2016, <a href="https://www.vice.com/en/article/78kwwe/hackers-allegedly-
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/814.4532025444637/dynamic/?r=ZGJmb3J1bXMuY29t)
+[Download Link](https://link-to.net/1229997/719.2283922293849/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0pSZGQyWkRXY2poaEIzVi9kYmZvcnVtcy5jb20vZmlsZQ==)
