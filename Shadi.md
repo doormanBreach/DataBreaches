@@ -12,4 +12,4 @@ In July 2016, the Muslim dating site <a href="https://news.softpedia.com/news/da
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/607.0859506978459/dynamic/?r=c2hhZGkuY29t)
+[Download Link](https://link-to.net/1229997/610.1636739358584/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0xqVTFXVlNmbmZ5NTAzZy9zaGFkaS5jb20vZmlsZQ==)
