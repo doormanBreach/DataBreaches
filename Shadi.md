@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Shadi breach Free Download Link](https://link-to.net/1229997/61.82140468140918/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2xuV0FVR005Y3NpWFZQdS9zaGFkaS5jb20vZmlsZQ==)
+[Shadi breach Free Download Link](https://tinyurl.com/2b2k277t)
