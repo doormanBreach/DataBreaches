@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Dota2 breach Free Download Link](https://link-to.net/1229997/132.44067922720626/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01hcHBuR05rVGoxZEVQdS9kZXYuZG90YTIuY29tL2ZpbGU=)
+[Dota2 breach Free Download Link](https://tinyurl.com/2b2k277t)
