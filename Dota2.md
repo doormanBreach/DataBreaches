@@ -12,4 +12,4 @@ In July 2016, <a href="https://news.softpedia.com/news/data-of-nearly-2-million-
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/668.3528547901601/dynamic/?r=ZGV2LmRvdGEyLmNvbQ==)
+[Download Link](https://link-to.net/1229997/857.757438967969/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2hQeXp6S2FrMkhkS0JxVy9kZXYuZG90YTIuY29tL2ZpbGU=)
