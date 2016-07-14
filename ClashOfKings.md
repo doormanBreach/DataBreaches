@@ -12,4 +12,4 @@ In July 2016, <a href="https://www.zdnet.com/article/hacker-steals-forums-of-cla
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/720.5466477782827/dynamic/?r=Zi5lbGV4LmNvbQ==)
+[Download Link](https://link-to.net/1229997/717.97802962637/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2hnSXZ4ajJvZmpkNFluaS9mLmVsZXguY29tL2ZpbGU=)
