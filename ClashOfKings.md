@@ -1,15 +1,15 @@
-# ClashOfKings
+# ClashOfKings database leak
 
 ## Description
 
-Date: 2016-07-14
+2016-07-14
 
-Description:
 In July 2016, <a href="https://www.zdnet.com/article/hacker-steals-forums-of-clash-of-kings-mobile-game/" target="_blank" rel="noopener">the forum for the game &quot;Clash of Kings&quot; suffered a data breach</a> that impacted 1.6 million subscribers. The impacted data included usernames, IP and email addresses and passwords stored as MD5 hashes. The data was provided to HIBP by <a href="https://dehashed.com/" target="_blank" rel="noopener">dehashed.com</a>.
 
+## Breached data
 
-['Email addresses', 'IP addresses', 'Passwords', 'Usernames']
+Email addresses, IP addresses, Passwords, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/717.97802962637/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2hnSXZ4ajJvZmpkNFluaS9mLmVsZXguY29tL2ZpbGU=)
+[ClashOfKings breach Free Download Link](https://link-to.net/1229997/723.9253760285344/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3FKTGR2QnhkRXZGanZUUC9mLmVsZXguY29tL2ZpbGU=)
