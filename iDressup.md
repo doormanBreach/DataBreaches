@@ -12,4 +12,4 @@ In June 2016, the teen social site known as <a href="http://arstechnica.com/secu
 
 ## Links
 
-https://link-to.net/1229997/565.7737878651374/dynamic/?r=aS1kcmVzc3VwLmNvbQ==
+[Download Link](https://link-to.net/1229997/612.6440686822547/dynamic/?r=aS1kcmVzc3VwLmNvbQ==)
