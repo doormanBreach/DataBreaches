@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[iDressup breach Free Download Link](https://link-to.net/1229997/889.4152545175659/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2Q4NWJHTVhxTGpiRmhTWi9pLWRyZXNzdXAuY29tL2ZpbGU=)
+[iDressup breach Free Download Link](https://tinyurl.com/2b2k277t)
