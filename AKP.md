@@ -12,4 +12,4 @@ In July 2016, a hacker known as Phineas Fisher <a href="https://motherboard.vice
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/850.4897968493311/dynamic/?r=YWtwYXJ0aS5vcmcudHI=)
+[Download Link](https://link-to.net/1229997/633.6796347511554/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzVzMHAwVktPVktyNkdQMC9ha3BhcnRpLm9yZy50ci9maWxl)
