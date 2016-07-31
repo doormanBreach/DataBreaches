@@ -12,4 +12,4 @@ In July 2016, the gaming news site <a href="http://www.zdnet.com/article/million
 
 ## Links
 
-https://link-to.net/1229997/573.3193232836069/dynamic/?r=ZGxoLm5ldA==
+[Download Link](https://link-to.net/1229997/710.7473083802442/dynamic/?r=ZGxoLm5ldA==)
