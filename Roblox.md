@@ -12,4 +12,4 @@ Account balances, Email addresses, IP addresses, Purchases, Usernames
 
 ## Free download Link
 
-[Roblox breach Free Download Link](https://link-to.net/1229997/743.896327880121/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3RodzJFeGp3bnc1alNZWi9yb2Jsb3guY29tL2ZpbGU=)
+[Roblox breach Free Download Link](https://tinyurl.com/2b2k277t)
