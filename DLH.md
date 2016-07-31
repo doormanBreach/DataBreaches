@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names, Passwords, Usernames, Website activity
 
 ## Free download Link
 
-[DLH breach Free Download Link](https://link-to.net/1229997/190.9614696289076/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0FKTnZHek9LN1Q0eWliQy9kbGgubmV0L2ZpbGU=)
+[DLH breach Free Download Link](https://tinyurl.com/2b2k277t)
