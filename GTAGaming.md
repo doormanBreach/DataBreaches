@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames, Website act
 
 ## Free download Link
 
-[GTAGaming breach Free Download Link](https://link-to.net/1229997/920.7023524791834/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0dXaVhXejYxc003Y0FodS9ndGFnYW1pbmcuY29tL2ZpbGU=)
+[GTAGaming breach Free Download Link](https://tinyurl.com/2b2k277t)
