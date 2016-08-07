@@ -12,4 +12,4 @@ Auth tokens, Dates of birth, Email addresses, Genders, Names, Phone numbers, Use
 
 ## Free download Link
 
-[Wishbone breach Free Download Link](https://link-to.net/1229997/710.4813938639127/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L21WWVhBTTVoejg2V0RBMi93aXNoYm9uZS5pby9maWxl)
+[Wishbone breach Free Download Link](https://tinyurl.com/2b2k277t)
