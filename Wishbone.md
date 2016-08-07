@@ -12,4 +12,4 @@ In August 2016, the mobile app to &quot;compare anything&quot; known as <a href=
 
 ## Links
 
-https://link-to.net/1229997/85.34472404341076/dynamic/?r=d2lzaGJvbmUuaW8=
+[Download Link](https://link-to.net/1229997/126.93380155549605/dynamic/?r=d2lzaGJvbmUuaW8=)
