@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[CrossFire breach Free Download Link](https://link-to.net/1229997/246.96980237829368/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzBpS2hGZG1lZzhPcmRpTS9jZmlyZS5tYWlsLnJ1L2ZpbGU=)
+[CrossFire breach Free Download Link](https://tinyurl.com/2b2k277t)
