@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Parapa breach Free Download Link](https://link-to.net/1229997/814.2921917454634/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2dzNVJ1TFdwUzloNFcwdS9wYXJhcGEubWFpbC5ydS9maWxl)
+[Parapa breach Free Download Link](https://tinyurl.com/2b2k277t)
