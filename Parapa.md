@@ -12,4 +12,4 @@ In August 2016, <a href="http://www.zdnet.com/article/over-25-million-accounts-s
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/227.15060230056983/dynamic/?r=cGFyYXBhLm1haWwucnU=)
+[Download Link](https://link-to.net/1229997/608.177090797372/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25DT0k5RzlUZ2I3VXFpRC9wYXJhcGEubWFpbC5ydS9maWxl)
