@@ -12,4 +12,4 @@ In August 2016, <a href="http://www.zdnet.com/article/epic-games-unreal-engine-f
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/952.0482627470807/dynamic/?r=ZXBpY2dhbWVzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/524.7756173937582/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0lnOTZUOG9PRjljaUpJNS9lcGljZ2FtZXMuY29tL2ZpbGU=)
