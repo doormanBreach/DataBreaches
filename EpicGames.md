@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[EpicGames breach Free Download Link](https://link-to.net/1229997/601.1893059936009/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0FHWVpWZFpaNDVuSlN6YS9lcGljZ2FtZXMuY29tL2ZpbGU=)
+[EpicGames breach Free Download Link](https://tinyurl.com/2b2k277t)
