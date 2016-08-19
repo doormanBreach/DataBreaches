@@ -12,4 +12,4 @@ In August 2016, the pocket PC fan site forum <a href="https://web.archive.org/we
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/736.1521739598961/dynamic/?r=cHBjZ2Vla3MuY29t)
+[Download Link](https://link-to.net/1229997/456.6635535604612/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3pGNlFJODJUWEEwZHV2Uy9wcGNnZWVrcy5jb20vZmlsZQ==)
