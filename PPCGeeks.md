@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[PPCGeeks breach Free Download Link](https://link-to.net/1229997/946.0584533155495/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2U4VTZnNEJMaDV6YXpvTy9wcGNnZWVrcy5jb20vZmlsZQ==)
+[PPCGeeks breach Free Download Link](https://tinyurl.com/2b2k277t)
