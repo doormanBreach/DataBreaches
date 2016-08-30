@@ -12,4 +12,4 @@ In August 2016, the Swiss scholarly open access publisher known as <a href="http
 
 ## Links
 
-https://link-to.net/1229997/801.7613845230909/dynamic/?r=bWRwaS5jb20=
+[Download Link](https://link-to.net/1229997/243.0226759238182/dynamic/?r=bWRwaS5jb20=)
