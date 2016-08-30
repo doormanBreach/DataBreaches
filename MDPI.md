@@ -12,4 +12,4 @@ Email addresses, Email messages, IP addresses, Names
 
 ## Free download Link
 
-[MDPI breach Free Download Link](https://link-to.net/1229997/731.6060523143749/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L21UZFZoN1F4SFp4NTlDRS9tZHBpLmNvbS9maWxl)
+[MDPI breach Free Download Link](https://tinyurl.com/2b2k277t)
