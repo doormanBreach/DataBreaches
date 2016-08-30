@@ -1,15 +1,15 @@
-# MDPI
+# MDPI database leak
 
 ## Description
 
-Date: 2016-08-30
+2016-08-30
 
-Description:
 In August 2016, the Swiss scholarly open access publisher known as <a href="http://mdpi.com" target="_blank" rel="noopener">MDPI</a> had 17.5GB of data obtained from an unprotected Mongo DB instance. The data contained email exchanges between MDPI and their authors and reviewers which included 845k unique email addresses. MDPI have confirmed that the system has since been protected and that no data of a sensitive nature was impacted. As such, they concluded that notification to their subscribers was not necessary due to the fact that all their authors and reviewers are available online on their website.
 
+## Breached data
 
-['Email addresses', 'Email messages', 'IP addresses', 'Names']
+Email addresses, Email messages, IP addresses, Names
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/344.0120593028615/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3Lzd5NjBPWVhCZjhvVFRScy9tZHBpLmNvbS9maWxl)
+[MDPI breach Free Download Link](https://link-to.net/1229997/731.6060523143749/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L21UZFZoN1F4SFp4NTlDRS9tZHBpLmNvbS9maWxl)
