@@ -12,4 +12,4 @@ In 2016, a list of over 33 million individuals in corporate America sourced from
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/972.4822414843608/dynamic/?r=bmV0cHJvc3BleC5jb20=)
+[Download Link](https://link-to.net/1229997/773.3979532786977/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3A0OFl2UXBZbDVPc1U0Vi9uZXRwcm9zcGV4LmNvbS9maWxl)
