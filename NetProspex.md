@@ -12,4 +12,4 @@ Email addresses, Employers, Job titles, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[NetProspex breach Free Download Link](https://link-to.net/1229997/439.6559806771687/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0x0RndleXpYRmt1cjJKQS9uZXRwcm9zcGV4LmNvbS9maWxl)
+[NetProspex breach Free Download Link](https://tinyurl.com/2b2k277t)
