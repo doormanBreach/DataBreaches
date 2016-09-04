@@ -12,4 +12,4 @@ In September 2016, the paid-to-click site <a href="http://cybercashworldwide.com
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/206.8485497715795/dynamic/?r=Y2xpeHNlbnNlLmNvbQ==)
+[Download Link](https://link-to.net/1229997/720.0598243777602/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZDQW9lanJKdzRZOFhPdS9jbGl4c2Vuc2UuY29tL2ZpbGU=)
