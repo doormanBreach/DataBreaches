@@ -12,4 +12,4 @@ Account balances, Dates of birth, Email addresses, Genders, IP addresses, Names,
 
 ## Free download Link
 
-[ClixSense breach Free Download Link](https://link-to.net/1229997/764.2604377420902/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0k5cjdOclNSM05BQVU3bC9jbGl4c2Vuc2UuY29tL2ZpbGU=)
+[ClixSense breach Free Download Link](https://tinyurl.com/2b2k277t)
