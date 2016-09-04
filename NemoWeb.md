@@ -12,4 +12,4 @@ Email addresses, Names
 
 ## Free download Link
 
-[NemoWeb breach Free Download Link](https://link-to.net/1229997/715.6930765621202/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0h0REJleno2UHAzQ0phRi9uZW1vd2ViLm5ldC9maWxl)
+[NemoWeb breach Free Download Link](https://tinyurl.com/2b2k277t)
