@@ -12,4 +12,4 @@ In September 2016, over 16GB of logs from a service indicated to be digimon.co.i
 
 ## Links
 
-https://link-to.net/1229997/178.169616717601/dynamic/?r=ZGlnaW1vbi5jby5pbg==
+[Download Link](https://link-to.net/1229997/311.7968696314747/dynamic/?r=ZGlnaW1vbi5jby5pbg==)
