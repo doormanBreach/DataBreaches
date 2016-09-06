@@ -12,4 +12,4 @@ In September 2016, the real estate investment site <a href="https://realestatemo
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/10.381892360784018/dynamic/?r=cmVhbGVzdGF0ZW1vZ3VsLmNvbQ==)
+[Download Link](https://link-to.net/1229997/65.02179317603007/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1BiaXJFN0FJTXlmTTIwSi9yZWFsZXN0YXRlbW9ndWwuY29tL2ZpbGU=)
