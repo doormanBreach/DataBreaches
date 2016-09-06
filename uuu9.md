@@ -12,4 +12,4 @@ In September 2016, data was allegedly obtained from the Chinese website known as
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/141.2198189556786/dynamic/?r=dXV1OS5jb20=)
+[Download Link](https://link-to.net/1229997/133.35407457401016/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0pMU29GT1NUZ3RSY2Z5Yi91dXU5LmNvbS9maWxl)
