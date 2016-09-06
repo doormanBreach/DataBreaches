@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[uuu9 breach Free Download Link](https://link-to.net/1229997/806.3812940245364/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0tvam12M3o3cVM5N1diMi91dXU5LmNvbS9maWxl)
+[uuu9 breach Free Download Link](https://tinyurl.com/2b2k277t)
