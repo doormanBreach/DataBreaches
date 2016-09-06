@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[RealEstateMogul breach Free Download Link](https://link-to.net/1229997/810.89436626284/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFFcmJxd1dqbjVHejVOSC9yZWFsZXN0YXRlbW9ndWwuY29tL2ZpbGU=)
+[RealEstateMogul breach Free Download Link](https://tinyurl.com/2b2k277t)
