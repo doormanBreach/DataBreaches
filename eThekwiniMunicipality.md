@@ -12,4 +12,4 @@ In September 2016, <a href="http://eservices.durban.gov.za" target="_blank" rel=
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/207.12659891201866/dynamic/?r=ZXNlcnZpY2VzLmR1cmJhbi5nb3YuemE=)
+[Download Link](https://link-to.net/1229997/627.0703063631319/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1dMdmlrVXI1UWd3dGNwVi9lc2VydmljZXMuZHVyYmFuLmdvdi56YS9maWxl)
