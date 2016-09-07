@@ -12,4 +12,4 @@ Dates of birth, Deceased date, Email addresses, Genders, Government issued IDs, 
 
 ## Free download Link
 
-[eThekwiniMunicipality breach Free Download Link](https://link-to.net/1229997/995.7550737396626/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3ZxcU9lNElKZkx6R3Nubi9lc2VydmljZXMuZHVyYmFuLmdvdi56YS9maWxl)
+[eThekwiniMunicipality breach Free Download Link](https://tinyurl.com/2b2k277t)
