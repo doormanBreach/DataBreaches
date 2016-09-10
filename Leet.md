@@ -12,4 +12,4 @@ In August 2016, the service for creating and running Pocket Minecraft edition se
 
 ## Links
 
-https://link-to.net/YOUR_USER/361.7282414461667/dynamic/?r=bGVldC5jYw==
+https://link-to.net/1229997/227.88379516254076/dynamic/?r=bGVldC5jYw==
