@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames, Website activity
 
 ## Free download Link
 
-[Leet breach Free Download Link](https://link-to.net/1229997/662.5323363505725/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0NHbndhN3BQb2ZHdkFPNS9sZWV0LmNjL2ZpbGU=)
+[Leet breach Free Download Link](https://tinyurl.com/2b2k277t)
