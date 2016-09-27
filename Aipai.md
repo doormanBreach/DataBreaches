@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Aipai breach Free Download Link](https://link-to.net/1229997/789.1167738286971/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2ZPUDJsOVpZVndGaUNlNC9haXBhaS5jb20vZmlsZQ==)
+[Aipai breach Free Download Link](https://tinyurl.com/2b2k277t)
