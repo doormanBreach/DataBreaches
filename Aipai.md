@@ -12,4 +12,4 @@ In September 2016, data allegedly obtained from the Chinese gaming website known
 
 ## Links
 
-https://link-to.net/1229997/974.4212356226445/dynamic/?r=YWlwYWkuY29t
+[Download Link](https://link-to.net/1229997/566.8826239722734/dynamic/?r=YWlwYWkuY29t)
