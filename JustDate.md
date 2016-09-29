@@ -12,4 +12,4 @@ An alleged breach of the dating website <a href="http://www.justdate.com/" targe
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/47.03810381392337/dynamic/?r=anVzdGRhdGUuY29t)
+[Download Link](https://link-to.net/1229997/580.5275503048482/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZkMnoxelRrSmZySHJkVS9qdXN0ZGF0ZS5jb20vZmlsZQ==)
