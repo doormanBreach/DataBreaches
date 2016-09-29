@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Geographic locations, Names
 
 ## Free download Link
 
-[JustDate breach Free Download Link](https://link-to.net/1229997/830.8820602215903/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0p4MUtMSE5QWTZoYVJMZy9qdXN0ZGF0ZS5jb20vZmlsZQ==)
+[JustDate breach Free Download Link](https://tinyurl.com/2b2k277t)
