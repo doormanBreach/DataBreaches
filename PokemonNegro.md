@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords
 
 ## Free download Link
 
-[PokemonNegro breach Free Download Link](https://link-to.net/1229997/656.1677020871599/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2phSWR1SUpMc2R5bzJaeC9wb2tlbW9ubmVncm8uY29tL2ZpbGU=)
+[PokemonNegro breach Free Download Link](https://tinyurl.com/2b2k277t)
