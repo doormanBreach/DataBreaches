@@ -12,4 +12,4 @@ In approximately October 2016, the Spanish Pokémon site <a href="http://pokemon
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/220.3224235040262/dynamic/?r=cG9rZW1vbm5lZ3JvLmNvbQ==)
+[Download Link](https://link-to.net/1229997/308.46451258955267/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZDcFFUUzdtZHZpM1l0eC9wb2tlbW9ubmVncm8uY29tL2ZpbGU=)
