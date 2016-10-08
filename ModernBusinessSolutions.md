@@ -12,4 +12,4 @@ In October 2016, a large Mongo DB file containing tens of millions of accounts <
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/561.9134297071506/dynamic/?r=bW9kYnNvbHV0aW9ucy5jb20=)
+[Download Link](https://link-to.net/1229997/990.5961318034632/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1FpUk1mak1SemlDMlhNZy9tb2Ric29sdXRpb25zLmNvbS9maWxl)
