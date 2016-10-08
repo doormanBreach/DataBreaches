@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, IP addresses, Job titles, Names, Phone
 
 ## Free download Link
 
-[ModernBusinessSolutions breach Free Download Link](https://link-to.net/1229997/140.87372732449566/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3lIeGtIN3dQbDBGd2VBZy9tb2Ric29sdXRpb25zLmNvbS9maWxl)
+[ModernBusinessSolutions breach Free Download Link](https://tinyurl.com/2b2k277t)
