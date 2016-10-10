@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[GFAN breach Free Download Link](https://link-to.net/1229997/442.4505798386363/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2lsVTQ3RHVORngyVWJvci9nZmFuLmNvbS9maWxl)
+[GFAN breach Free Download Link](https://tinyurl.com/2b2k277t)
