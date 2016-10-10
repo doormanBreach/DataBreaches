@@ -12,4 +12,4 @@ In October 2016, data surfaced that was allegedly obtained from the Chinese webs
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/556.5178324739325/dynamic/?r=Z2Zhbi5jb20=)
+[Download Link](https://link-to.net/1229997/663.8575101047135/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2ZjeW1GcUh2ZVNjQ3I0by9nZmFuLmNvbS9maWxl)
