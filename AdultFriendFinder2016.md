@@ -12,4 +12,4 @@ In October 2016, the adult entertainment company <a href="https://www.zdnet.com/
 
 ## Links
 
-https://link-to.net/1229997/806.1949511526071/dynamic/?r=YWR1bHRmcmllbmRmaW5kZXIuY29t
+[Download Link](https://link-to.net/1229997/426.6485713179442/dynamic/?r=YWR1bHRmcmllbmRmaW5kZXIuY29t)
