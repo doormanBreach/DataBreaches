@@ -12,4 +12,4 @@ Email addresses, Passwords, Spoken languages, Usernames
 
 ## Free download Link
 
-[AdultFriendFinder2016 breach Free Download Link](https://link-to.net/1229997/392.64320454016234/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0lmT1NuYVV4RGRVWmF5Mi9hZHVsdGZyaWVuZGZpbmRlci5jb20vZmlsZQ==)
+[AdultFriendFinder2016 breach Free Download Link](https://tinyurl.com/2b2k277t)
