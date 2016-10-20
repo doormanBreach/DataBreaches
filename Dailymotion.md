@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Dailymotion breach Free Download Link](https://link-to.net/1229997/419.12652144552055/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZPM3hRTDJsZzRqbWFzTy9kYWlseW1vdGlvbi5jb20vZmlsZQ==)
+[Dailymotion breach Free Download Link](https://tinyurl.com/2b2k277t)
