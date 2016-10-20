@@ -12,4 +12,4 @@ In October 2016, the video sharing platform <a href="http://thehackernews.com/20
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/940.9759758868047/dynamic/?r=ZGFpbHltb3Rpb24uY29t)
+[Download Link](https://link-to.net/1229997/978.9032291301465/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0xTb1NJNjdSVldqRHpkdS9kYWlseW1vdGlvbi5jb20vZmlsZQ==)
