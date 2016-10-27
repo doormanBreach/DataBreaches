@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames, Website activity
 
 ## Free download Link
 
-[MCBans breach Free Download Link](https://link-to.net/1229997/693.7874722002385/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZOcHFUdkhxU2JWa2JWeS9tY2JhbnMuY29tL2ZpbGU=)
+[MCBans breach Free Download Link](https://tinyurl.com/2b2k277t)
