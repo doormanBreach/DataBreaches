@@ -12,4 +12,4 @@ In October 2016, the Minecraft banning service known as <a href="https://www.mcb
 
 ## Links
 
-https://link-to.net/1229997/382.0126621106764/dynamic/?r=bWNiYW5zLmNvbQ==
+[Download Link](https://link-to.net/1229997/872.9127034653214/dynamic/?r=bWNiYW5zLmNvbQ==)
