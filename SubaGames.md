@@ -12,4 +12,4 @@ In November 2016, the game developer <a href="https://www.hackread.com/vbulletin
 
 ## Links
 
-https://link-to.net/1229997/800.4828685927691/dynamic/?r=c3ViYWdhbWVzLmNvbQ==
+[Download Link](https://link-to.net/1229997/961.4202938639671/dynamic/?r=c3ViYWdhbWVzLmNvbQ==)
