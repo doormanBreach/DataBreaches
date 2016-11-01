@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[SubaGames breach Free Download Link](https://link-to.net/1229997/39.0713354266633/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2I1eGZxa2Jmd0h6dzBKYS9zdWJhZ2FtZXMuY29tL2ZpbGU=)
+[SubaGames breach Free Download Link](https://tinyurl.com/2b2k277t)
