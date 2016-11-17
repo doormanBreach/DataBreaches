@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Physical addresses
 
 ## Free download Link
 
-[CashCrate breach Free Download Link](https://link-to.net/1229997/501.8919967467562/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3p0dlZ4TTB6VTlUWWp3RS9jYXNoY3JhdGUuY29tL2ZpbGU=)
+[CashCrate breach Free Download Link](https://tinyurl.com/2b2k277t)
