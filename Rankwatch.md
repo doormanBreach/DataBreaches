@@ -12,4 +12,4 @@ Email addresses, Employers, Job titles, Names, Phone numbers
 
 ## Free download Link
 
-[Rankwatch breach Free Download Link](https://link-to.net/1229997/739.0372831286121/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRvVmlGMUVSMklNdXI3NC9yYW5rd2F0Y2guY29tL2ZpbGU=)
+[Rankwatch breach Free Download Link](https://tinyurl.com/2b2k277t)
