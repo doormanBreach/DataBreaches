@@ -12,4 +12,4 @@ In approximately November 2016, the search engine optimisation management compan
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/600.9138685710823/dynamic/?r=cmFua3dhdGNoLmNvbQ==)
+[Download Link](https://link-to.net/1229997/817.2003539107334/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1dLOTVxaTBsRWwwT3Fxei9yYW5rd2F0Y2guY29tL2ZpbGU=)
