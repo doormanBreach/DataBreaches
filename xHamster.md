@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[xHamster breach Free Download Link](https://link-to.net/1229997/873.8854932359069/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1Y3R1BsQXlHYlg5OGdDbi94aGFtc3Rlci5jb20vZmlsZQ==)
+[xHamster breach Free Download Link](https://tinyurl.com/2b2k277t)
