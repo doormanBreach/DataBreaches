@@ -12,4 +12,4 @@ In November 2016, news broke that <a href="https://motherboard.vice.com/en_us/ar
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/308.80077175370644/dynamic/?r=eGhhbXN0ZXIuY29t)
+[Download Link](https://link-to.net/1229997/778.7575601814021/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0IwOTVIdmtPcHBCSHozcS94aGFtc3Rlci5jb20vZmlsZQ==)
