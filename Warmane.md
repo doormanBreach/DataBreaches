@@ -12,4 +12,4 @@ In approximately December 2016, the online service for World of Warcraft private
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/328.80341859037253/dynamic/?r=d2FybWFuZS5jb20=)
+[Download Link](https://link-to.net/1229997/304.94044711011503/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1BUMXF1RWJTSU9Wd3dhZC93YXJtYW5lLmNvbS9maWxl)
