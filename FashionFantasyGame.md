@@ -12,4 +12,4 @@ In late 2016, the fashion gaming website <a href="http://www.zdnet.com/article/a
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/213.06419874084614/dynamic/?r=ZmFzaGlvbmZhbnRhc3lnYW1lLmNvbQ==)
+[Download Link](https://link-to.net/1229997/497.5885060654309/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01VMEE0YldldVFSVjJBci9mYXNoaW9uZmFudGFzeWdhbWUuY29tL2ZpbGU=)
