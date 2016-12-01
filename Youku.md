@@ -12,4 +12,4 @@ In late 2016, the online Chinese video service <a href="http://www.youku.com" ta
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/610.2938403121918/dynamic/?r=eW91a3UuY29t)
+[Download Link](https://link-to.net/1229997/785.4530115377104/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzdYcGlyYjlHOFZCNlBOZi95b3VrdS5jb20vZmlsZQ==)
