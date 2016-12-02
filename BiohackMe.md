@@ -12,4 +12,4 @@ Email addresses, Passwords, Private messages, Usernames
 
 ## Free download Link
 
-[BiohackMe breach Free Download Link](https://link-to.net/1229997/287.49047859176903/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L29CVnllZWdyaEUxb0JIai9iaW9oYWNrLm1lL2ZpbGU=)
+[BiohackMe breach Free Download Link](https://tinyurl.com/2b2k277t)
