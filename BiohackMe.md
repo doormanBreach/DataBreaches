@@ -12,4 +12,4 @@ In December 2016, the forum for the biohacking website <a href="https://forum.bi
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/764.6805398015505/dynamic/?r=YmlvaGFjay5tZQ==)
+[Download Link](https://link-to.net/1229997/431.9197858016212/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3NudG9hWjBiUlFmRjZ0ei9iaW9oYWNrLm1lL2ZpbGU=)
