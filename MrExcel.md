@@ -12,4 +12,4 @@ In December 2016, the forum for the Microsoft Excel tips and solutions site <a h
 
 ## Links
 
-https://link-to.net/1229997/49.19940590465455/dynamic/?r=bXJleGNlbC5jb20=
+[Download Link](https://link-to.net/1229997/924.2461316009123/dynamic/?r=bXJleGNlbC5jb20=)
