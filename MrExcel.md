@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Social connections, Us
 
 ## Free download Link
 
-[MrExcel breach Free Download Link](https://link-to.net/1229997/905.0143638792882/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3NMT0kxUlZoV25vRHlGNC9tcmV4Y2VsLmNvbS9maWxl)
+[MrExcel breach Free Download Link](https://tinyurl.com/2b2k277t)
