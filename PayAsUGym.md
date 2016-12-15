@@ -12,4 +12,4 @@ Browser user agent details, Email addresses, IP addresses, Names, Partial credit
 
 ## Free download Link
 
-[PayAsUGym breach Free Download Link](https://link-to.net/1229997/999.6599080874541/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1lFUGV0SmNCTE83NUthZC9wYXlhc3VneW0uY29tL2ZpbGU=)
+[PayAsUGym breach Free Download Link](https://tinyurl.com/2b2k277t)
