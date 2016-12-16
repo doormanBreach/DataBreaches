@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Private messages, Usernames, Website a
 
 ## Free download Link
 
-[Ethereum breach Free Download Link](https://link-to.net/1229997/549.9789425179108/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1VmZWxGQ2djM2N4cHowdi9ldGhlcmV1bS5vcmcvZmlsZQ==)
+[Ethereum breach Free Download Link](https://tinyurl.com/2b2k277t)
