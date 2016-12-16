@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[AntiPublic breach Free Download Link](https://link-to.net/1229997/419.81411704290906/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3Fua2lUdW11Q2ZCa2RVbC8vZmlsZQ==)
+[AntiPublic breach Free Download Link](https://tinyurl.com/2b2k277t)
