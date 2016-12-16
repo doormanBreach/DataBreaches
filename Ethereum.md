@@ -12,4 +12,4 @@ In December 2016, the forum for the public blockchain-based distributed computin
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/214.5485158229974/dynamic/?r=ZXRoZXJldW0ub3Jn)
+[Download Link](https://link-to.net/1229997/93.91041092356522/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1JjeDVPUWNBSXJ3cVczVS9ldGhlcmV1bS5vcmcvZmlsZQ==)
