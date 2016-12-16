@@ -12,4 +12,4 @@ In December 2016, a huge list of email address and password pairs appeared in a 
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/503.3721607570539/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/332.801057583681/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0RkSndaTElGZnNXa05RcC8vZmlsZQ==)
