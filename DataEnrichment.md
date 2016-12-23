@@ -1,15 +1,15 @@
-# DataEnrichment
+# DataEnrichment database leak
 
 ## Description
 
-Date: 2016-12-23
+2016-12-23
 
-Description:
 In December 2016, <a href="http://www.csoonline.com/article/3149713/security/data-enrichment-records-for-200-million-people-up-for-sale-on-the-darknet.html" target="_blank" rel="noopener">more than 200 million &quot;data enrichment profiles&quot; were found for sale on the darknet</a>. The seller claimed the data was sourced from Experian and whilst that claim was rejected by the company, the data itself was found to be legitimate suggesting it may have been sourced from other legitimate locations. In total, there were more than 8 million unique email addresses in the data which also contained a raft of other personal attributes including credit ratings, home ownership status, family structure and other fields described in the story linked to above. The email addresses alone were provided to HIBP.
 
+## Breached data
 
-['Buying preferences', 'Charitable donations', 'Credit status information', 'Dates of birth', 'Email addresses', 'Family structure', 'Financial investments', 'Home ownership statuses', 'Income levels', 'Job titles', 'Marital statuses', 'Names', 'Net worths', 'Phone numbers', 'Physical addresses', 'Political donations']
+Buying preferences, Charitable donations, Credit status information, Dates of birth, Email addresses, Family structure, Financial investments, Home ownership statuses, Income levels, Job titles, Marital statuses, Names, Net worths, Phone numbers, Physical addresses, Political donations
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/725.7374076317212/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZSdlR4S3FHUHB3T2FFcS8vZmlsZQ==)
+[DataEnrichment breach Free Download Link](https://link-to.net/1229997/255.89205215669898/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzVqdERHUUNSTE5KcUMxbi8vZmlsZQ==)
