@@ -12,4 +12,4 @@ In December 2016, <a href="http://www.csoonline.com/article/3149713/security/dat
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/919.4317144726137/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/725.7374076317212/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZSdlR4S3FHUHB3T2FFcS8vZmlsZQ==)
