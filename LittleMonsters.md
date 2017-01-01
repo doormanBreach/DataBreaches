@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[LittleMonsters breach Free Download Link](https://link-to.net/1229997/389.7237816266106/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzlBdHdoSTJYTHNqTEExUy9saXR0bGVtb25zdGVycy5jb20vZmlsZQ==)
+[LittleMonsters breach Free Download Link](https://tinyurl.com/2b2k277t)
