@@ -12,4 +12,4 @@ In mid-2019, <a href="https://news.ycombinator.com/item?id=20426997&fbclid=IwAR2
 
 ## Links
 
-https://link-to.net/YOUR_USER/40.62654347327354/dynamic/?r=bGl2ZWpvdXJuYWwuY29t
+https://link-to.net/1229997/10.410623807394547/dynamic/?r=bGl2ZWpvdXJuYWwuY29t
