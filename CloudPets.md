@@ -12,4 +12,4 @@ Email addresses, Family members' names, Passwords
 
 ## Free download Link
 
-[CloudPets breach Free Download Link](https://link-to.net/1229997/431.7588619314916/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJVd1p2TnYyZ0NrMlgxSS9jbG91ZHBldHMuY29tL2ZpbGU=)
+[CloudPets breach Free Download Link](https://tinyurl.com/2b2k277t)
