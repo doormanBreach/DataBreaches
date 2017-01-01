@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Physical addresses
 
 ## Free download Link
 
-[RiverCityMedia breach Free Download Link](https://link-to.net/1229997/531.5024463419246/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09kQnY3QTNMZTQ5Z084dC9yaXZlcmNpdHltZWRpYW9ubGluZS5jb20vZmlsZQ==)
+[RiverCityMedia breach Free Download Link](https://tinyurl.com/2b2k277t)
