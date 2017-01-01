@@ -12,4 +12,4 @@ In approximately 2017, the website for Russian speakers in America known as <a h
 
 ## Links
 
-https://link-to.net/1229997/540.307581004984/dynamic/?r=cnVzc2lhbmFtZXJpY2EuY29t
+[Download Link](https://link-to.net/1229997/98.24941336945392/dynamic/?r=cnVzc2lhbmFtZXJpY2EuY29t)
