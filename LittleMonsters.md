@@ -12,4 +12,4 @@ In approximately January 2017, <a href="https://www.heise.de/security/meldung/Li
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/57.609848238259985/dynamic/?r=bGl0dGxlbW9uc3RlcnMuY29t)
+[Download Link](https://link-to.net/1229997/757.3301062185988/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1dwb0FkRVN5S3dGS3FSWS9saXR0bGVtb25zdGVycy5jb20vZmlsZQ==)
