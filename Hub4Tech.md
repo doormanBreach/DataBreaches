@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Hub4Tech breach Free Download Link](https://link-to.net/1229997/167.5952507997528/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzBvTXBFQnlnMlZna3lVcS9odWI0dGVjaC5jb20vZmlsZQ==)
+[Hub4Tech breach Free Download Link](https://tinyurl.com/2b2k277t)
