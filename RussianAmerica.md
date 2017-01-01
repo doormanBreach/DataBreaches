@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers
 
 ## Free download Link
 
-[RussianAmerica breach Free Download Link](https://link-to.net/1229997/774.7432858818914/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1l3TTFnYTIydlRKRVV0dC9ydXNzaWFuYW1lcmljYS5jb20vZmlsZQ==)
+[RussianAmerica breach Free Download Link](https://tinyurl.com/2b2k277t)
