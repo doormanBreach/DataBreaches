@@ -12,4 +12,4 @@ In January 2017, <a href="https://web.archive.org/web/20170426084052/https://mac
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/573.3140488922855/dynamic/?r=cml2ZXJjaXR5bWVkaWFvbmxpbmUuY29t)
+[Download Link](https://link-to.net/1229997/853.23528607641/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25vb3JqWmJxdmt4UEZORy9yaXZlcmNpdHltZWRpYW9ubGluZS5jb20vZmlsZQ==)
