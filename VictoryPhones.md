@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Names, Phone numbers, Physical ad
 
 ## Free download Link
 
-[VictoryPhones breach Free Download Link](https://link-to.net/1229997/694.8166885164061/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0xzclkwRUNYTnZqZHRHcC92aWN0b3J5cGhvbmVzLmNvbS9maWxl)
+[VictoryPhones breach Free Download Link](https://tinyurl.com/2b2k277t)
