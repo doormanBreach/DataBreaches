@@ -12,4 +12,4 @@ In January 2017, the automated telephony services company <a href="http://www.zd
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/854.7261096285476/dynamic/?r=dmljdG9yeXBob25lcy5jb20=)
+[Download Link](https://link-to.net/1229997/40.00995279218944/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0dQMUdGSkhxNWdHTklYeS92aWN0b3J5cGhvbmVzLmNvbS9maWxl)
