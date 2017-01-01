@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[LiveJournal breach Free Download Link](https://link-to.net/1229997/776.0855412698028/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzA1ajZXa3gxbWRwTE9sbS9saXZlam91cm5hbC5jb20vZmlsZQ==)
+[LiveJournal breach Free Download Link](https://tinyurl.com/2b2k277t)
