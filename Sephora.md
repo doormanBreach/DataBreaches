@@ -12,4 +12,4 @@ In approximately January 2017, the beauty store <a href="https://www.zdnet.com/a
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/540.1247283461175/dynamic/?r=c2VwaG9yYS5jb20uYXU=)
+[Download Link](https://link-to.net/1229997/137.49440638435385/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3pmY3o3NWRSaHRJdnFBVS9zZXBob3JhLmNvbS5hdS9maWxl)
