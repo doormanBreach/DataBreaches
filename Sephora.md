@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Ethnicities, Genders, Names, Physical attribute
 
 ## Free download Link
 
-[Sephora breach Free Download Link](https://link-to.net/1229997/293.095727443753/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3h2NU83eDdJZlpSNXhndC9zZXBob3JhLmNvbS5hdS9maWxl)
+[Sephora breach Free Download Link](https://tinyurl.com/2b2k277t)
