@@ -12,4 +12,4 @@ In January 2016, <a href="http://news.softpedia.com/news/vbulletin-hack-exposes-
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/855.2686576887162/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/69.4161167641818/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2tKTEtsMmdmWlN3NjlqQy8vZmlsZQ==)
