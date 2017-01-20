@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[SwordFantasy breach Free Download Link](https://link-to.net/1229997/706.8699299846434/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VRVHNpRUdWWUdzOWh1Qi9zd29yZGZhbnRhc3kuY29tL2ZpbGU=)
+[SwordFantasy breach Free Download Link](https://tinyurl.com/2b2k277t)
