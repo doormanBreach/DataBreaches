@@ -12,4 +12,4 @@ In January 2019, the now defunct MMO and RPG game SwordFantasy suffered a data b
 
 ## Links
 
-https://link-to.net/1229997/385.2814717840263/dynamic/?r=c3dvcmRmYW50YXN5LmNvbQ==
+[Download Link](https://link-to.net/1229997/914.6793984060791/dynamic/?r=c3dvcmRmYW50YXN5LmNvbQ==)
