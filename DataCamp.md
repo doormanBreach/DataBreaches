@@ -12,4 +12,4 @@ In December 2018, the data science website <a href="https://support.datacamp.com
 
 ## Links
 
-https://link-to.net/1229997/533.2474601551597/dynamic/?r=ZGF0YWNhbXAuY29t
+[Download Link](https://link-to.net/1229997/997.2114303077399/dynamic/?r=ZGF0YWNhbXAuY29t)
