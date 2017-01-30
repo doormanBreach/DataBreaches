@@ -12,4 +12,4 @@ Email addresses, Geographic locations, IP addresses, Names, Passwords
 
 ## Free download Link
 
-[DataCamp breach Free Download Link](https://link-to.net/1229997/938.9796036264878/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3NlQ3M5TEQyS21RRGc1Vy9kYXRhY2FtcC5jb20vZmlsZQ==)
+[DataCamp breach Free Download Link](https://tinyurl.com/2b2k277t)
