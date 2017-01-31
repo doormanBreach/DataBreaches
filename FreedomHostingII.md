@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[FreedomHostingII breach Free Download Link](https://link-to.net/1229997/125.39982291470686/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3dNSWRPOTV3WTZjUFhJeC9maG9zdGluZ2VzcHM2Ymx5Lm9uaW9uL2ZpbGU=)
+[FreedomHostingII breach Free Download Link](https://tinyurl.com/2b2k277t)
