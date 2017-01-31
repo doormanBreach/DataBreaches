@@ -12,4 +12,4 @@ In January 2017, the free hidden service host <a href="http://www.theverge.com/2
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/432.6109938829996/dynamic/?r=Zmhvc3Rpbmdlc3BzNmJseS5vbmlvbg==)
+[Download Link](https://link-to.net/1229997/975.3643546413836/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1FDUzd6S1NOZGVxTG92WC9maG9zdGluZ2VzcHM2Ymx5Lm9uaW9uL2ZpbGU=)
