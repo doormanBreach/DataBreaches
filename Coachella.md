@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Coachella breach Free Download Link](https://link-to.net/1229997/150.08439263395636/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzN0blBXOGxwODN6SkxRZi9jb2FjaGVsbGEuY29tL2ZpbGU=)
+[Coachella breach Free Download Link](https://tinyurl.com/2b2k277t)
