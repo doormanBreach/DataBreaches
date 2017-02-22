@@ -12,4 +12,4 @@ In February 2017, <a href="https://motherboard.vice.com/en_us/article/mgkzkp/som
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/729.0474879264931/dynamic/?r=Y29hY2hlbGxhLmNvbQ==)
+[Download Link](https://link-to.net/1229997/536.294595391639/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3B1V1dPeWtwbUc4dTk1TC9jb2FjaGVsbGEuY29tL2ZpbGU=)
