@@ -12,4 +12,4 @@ In February 2017, the mobile device monitoring software developer Retina-X was h
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/776.5076014640837/dynamic/?r=cmV0aW5heC5jb20=)
+[Download Link](https://link-to.net/1229997/843.6069140479816/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3B2bU1iM0lPQTZMWklsWC9yZXRpbmF4LmNvbS9maWxl)
