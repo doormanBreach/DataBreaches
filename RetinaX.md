@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[RetinaX breach Free Download Link](https://link-to.net/1229997/684.9044497422358/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3RybW01VmV2U0k4TDZjNS9yZXRpbmF4LmNvbS9maWxl)
+[RetinaX breach Free Download Link](https://tinyurl.com/2b2k277t)
