@@ -12,4 +12,4 @@ In approximately March 2017, the file sharing website <a href="http://bolt.cd/" 
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/187.17001912303277/dynamic/?r=Ym9sdC5jZA==)
+[Download Link](https://link-to.net/1229997/31.1294110590824/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3cwcGlLMm85dUl3NXE0SC9ib2x0LmNkL2ZpbGU=)
