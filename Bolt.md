@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Bolt breach Free Download Link](https://link-to.net/1229997/582.9389928842066/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L29wc0RwMEtXRmtNSUFDOS9ib2x0LmNkL2ZpbGU=)
+[Bolt breach Free Download Link](https://tinyurl.com/2b2k277t)
