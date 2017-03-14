@@ -12,4 +12,4 @@ In March 2017, a 27GB database backup file named "Master Deeds" was sent to HIBP
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/387.5794476763499/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/842.1486696291942/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L096TURXSWtUYmlhZHI2dy8vZmlsZQ==)
