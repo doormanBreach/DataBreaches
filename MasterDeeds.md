@@ -12,4 +12,4 @@ Dates of birth, Deceased statuses, Email addresses, Employers, Ethnicities, Gend
 
 ## Free download Link
 
-[MasterDeeds breach Free Download Link](https://link-to.net/1229997/293.53658744712743/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3dMdTZkNUx2a3lxdVppVS8vZmlsZQ==)
+[MasterDeeds breach Free Download Link](https://tinyurl.com/2b2k277t)
