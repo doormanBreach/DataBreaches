@@ -12,4 +12,4 @@ In March 2017, a file containing 8M rows of data <a href="https://www.troyhunt.c
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/393.7969415643067/dynamic/?r=ZmFjdHVhbC5jb20=)
+[Download Link](https://link-to.net/1229997/854.3188281377497/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1lVQ1phZHlrTTFGeDAzQS9mYWN0dWFsLmNvbS9maWxl)
