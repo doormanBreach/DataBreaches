@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Health insurance information, IP addre
 
 ## Free download Link
 
-[HealthNowNetworks breach Free Download Link](https://link-to.net/1229997/376.2774335873471/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3d0RVA5Mm5paEFJU0lLQS9oZWFsdGhub3cuY28vZmlsZQ==)
+[HealthNowNetworks breach Free Download Link](https://tinyurl.com/2b2k277t)
