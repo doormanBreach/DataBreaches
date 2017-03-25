@@ -12,4 +12,4 @@ In March 2017, the French Flatsharing site known as <a href="https://www.apparto
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/585.8309097851011/dynamic/?r=YXBwYXJ0b28uY29t)
+[Download Link](https://link-to.net/1229997/945.0443083694478/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VWUUdJVmdYbGg1bnVSQy9hcHBhcnRvby5jb20vZmlsZQ==)
