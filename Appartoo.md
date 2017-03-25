@@ -12,4 +12,4 @@ Ages, Auth tokens, Email addresses, Employment statuses, Genders, IP addresses, 
 
 ## Free download Link
 
-[Appartoo breach Free Download Link](https://link-to.net/1229997/524.1461390321609/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25hMnNUaUNqVmdlbm4yWi9hcHBhcnRvby5jb20vZmlsZQ==)
+[Appartoo breach Free Download Link](https://tinyurl.com/2b2k277t)
