@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[DuelingNetwork breach Free Download Link](https://link-to.net/1229997/60.183705502651286/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1prdGtEOFdMeG83UjhEVy9kdWVsaW5nbmV0d29yay5jb20vZmlsZQ==)
+[DuelingNetwork breach Free Download Link](https://tinyurl.com/2b2k277t)
