@@ -12,4 +12,4 @@ In March 2017, the Flash game based on the Yu-Gi-Oh trading card game <a href="h
 
 ## Links
 
-https://link-to.net/YOUR_USER/540.7810342817714/dynamic/?r=ZHVlbGluZ25ldHdvcmsuY29t
+https://link-to.net/1229997/441.16683496678843/dynamic/?r=ZHVlbGluZ25ldHdvcmsuY29t
