@@ -12,4 +12,4 @@ In April 2017, <a href="http://underworldempireforums.com/" target="_blank" rel=
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/37.027318683270806/dynamic/?r=dW5kZXJ3b3JsZGVtcGlyZWZvcnVtcy5jb20=)
+[Download Link](https://link-to.net/1229997/857.3992046176911/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2hxOWYxYlJtN2hjRDFuRy91bmRlcndvcmxkZW1waXJlZm9ydW1zLmNvbS9maWxl)
