@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Social media profiles
 
 ## Free download Link
 
-[Gett breach Free Download Link](https://link-to.net/1229997/398.7766237784188/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RnMWh4ZDZPNDNwUU9HdC9nZS50dC9maWxl)
+[Gett breach Free Download Link](https://tinyurl.com/2b2k277t)
