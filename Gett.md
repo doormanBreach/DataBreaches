@@ -12,4 +12,4 @@ In May 2017, the file sharing platform <a href="https://www.zdnet.com/article/12
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/306.5874267860513/dynamic/?r=Z2UudHQ=)
+[Download Link](https://link-to.net/1229997/763.86094405923/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3hUOFpYOVFlb2lvcTNldi9nZS50dC9maWxl)
