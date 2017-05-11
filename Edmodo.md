@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Edmodo breach Free Download Link](https://link-to.net/1229997/529.6163651763235/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzlKZ01JQ3hqdkhScVdocy9lZG1vZG8uY29tL2ZpbGU=)
+[Edmodo breach Free Download Link](https://tinyurl.com/2b2k277t)
