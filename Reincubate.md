@@ -12,4 +12,4 @@ In October 2020, the app data company <a href="https://reincubate.com/blog/secur
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/834.8560000010791/dynamic/?r=cmVpbmN1YmF0ZS5jb20=)
+[Download Link](https://link-to.net/1229997/658.0698011834666/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2pUR1dmb0c1MzBxcDhTTi9yZWluY3ViYXRlLmNvbS9maWxl)
