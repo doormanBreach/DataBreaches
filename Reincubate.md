@@ -12,4 +12,4 @@ Email addresses, Names, Passwords
 
 ## Free download Link
 
-[Reincubate breach Free Download Link](https://link-to.net/1229997/509.70251575946446/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0JFRFBiVmZoaUxUMDhYdy9yZWluY3ViYXRlLmNvbS9maWxl)
+[Reincubate breach Free Download Link](https://tinyurl.com/2b2k277t)
