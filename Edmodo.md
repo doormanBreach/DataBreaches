@@ -12,4 +12,4 @@ In May 2017, the education platform <a href="https://motherboard.vice.com/en_us/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/228.04787277509564/dynamic/?r=ZWRtb2RvLmNvbQ==)
+[Download Link](https://link-to.net/1229997/413.4944438096841/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3Lzh4YUJRd053Z3J5NHE4ci9lZG1vZG8uY29tL2ZpbGU=)
