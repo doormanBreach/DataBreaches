@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[DaFont breach Free Download Link](https://link-to.net/1229997/248.39735526146455/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0NLTHc4Tzhjc2VzZUJtUS9kYWZvbnQuY29tL2ZpbGU=)
+[DaFont breach Free Download Link](https://tinyurl.com/2b2k277t)
