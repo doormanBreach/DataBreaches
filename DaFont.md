@@ -12,4 +12,4 @@ In May 2017, <a href="http://www.zdnet.com/article/font-sharing-site-dafont-hack
 
 ## Links
 
-https://link-to.net/1229997/625.8793300838355/dynamic/?r=ZGFmb250LmNvbQ==
+[Download Link](https://link-to.net/1229997/177.40941701168066/dynamic/?r=ZGFmb250LmNvbQ==)
