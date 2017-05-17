@@ -12,4 +12,4 @@ In May 2017, the restaurant guide website <a href="https://www.hackread.com/zoma
 
 ## Links
 
-https://link-to.net/1229997/173.04373535115224/dynamic/?r=em9tYXRvLmNvbQ==
+[Download Link](https://link-to.net/1229997/542.2160029257099/dynamic/?r=em9tYXRvLmNvbQ==)
