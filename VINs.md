@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Family structure, Genders, Names, Phone numbers
 
 ## Free download Link
 
-[VINs breach Free Download Link](https://link-to.net/1229997/820.3162610256386/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2tsOThLckozSlZjUk9haC8vZmlsZQ==)
+[VINs breach Free Download Link](https://tinyurl.com/2b2k277t)
