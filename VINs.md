@@ -12,4 +12,4 @@ In June 2017, <a href="https://www.bleepingcomputer.com/news/security/car-thieve
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/432.0433806599779/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/874.3439205066963/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1hBb1o5SXJDSkNFR2lJVi8vZmlsZQ==)
