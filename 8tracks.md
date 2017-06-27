@@ -12,4 +12,4 @@ In June 2017, the online playlists service known as <a href="https://blog.8track
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/713.4501300681547/dynamic/?r=OHRyYWNrcy5jb20=)
+[Download Link](https://link-to.net/1229997/318.51642868171103/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2Z6TG52Yzc1VFljR0xRaS84dHJhY2tzLmNvbS9maWxl)
