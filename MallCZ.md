@@ -12,4 +12,4 @@ In July 2017, the Czech Republic e-commerce site <a href="https://blog.mall.cz/o
 
 ## Links
 
-https://link-to.net/1229997/680.4489883592152/dynamic/?r=bWFsbC5jeg==
+[Download Link](https://link-to.net/1229997/136.82994625946776/dynamic/?r=bWFsbC5jeg==)
