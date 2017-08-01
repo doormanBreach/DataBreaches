@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Taringa breach Free Download Link](https://link-to.net/1229997/883.6471106692366/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2plQkNoZ3ZFWnBZdGpCUS90YXJpbmdhLm5ldC9maWxl)
+[Taringa breach Free Download Link](https://tinyurl.com/2b2k277t)
