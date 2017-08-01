@@ -12,4 +12,4 @@ In September 2017, news broke that <a href="https://thehackernews.com/2017/09/ta
 
 ## Links
 
-https://link-to.net/1229997/49.76790319282986/dynamic/?r=dGFyaW5nYS5uZXQ=
+[Download Link](https://link-to.net/1229997/558.6860538873271/dynamic/?r=dGFyaW5nYS5uZXQ=)
