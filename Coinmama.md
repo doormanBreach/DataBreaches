@@ -12,4 +12,4 @@ In August 2017, the crypto coin brokerage service <a href="https://cointelegraph
 
 ## Links
 
-https://link-to.net/1229997/410.69689018137177/dynamic/?r=Y29pbm1hbWEuY29t
+[Download Link](https://link-to.net/1229997/647.6743813014148/dynamic/?r=Y29pbm1hbWEuY29t)
