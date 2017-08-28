@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[OnlinerSpambot breach Free Download Link](https://link-to.net/1229997/313.32038616412297/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3ZoSXdvbmlLb0xNR1ZHRS8vZmlsZQ==)
+[OnlinerSpambot breach Free Download Link](https://tinyurl.com/2b2k277t)
