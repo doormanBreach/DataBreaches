@@ -12,4 +12,4 @@ In August 2017, a spambot by the name of <a href="https://benkowlab.blogspot.com
 
 ## Links
 
-https://link-to.net/1229997/787.5461503736973/dynamic/?r=
+[Download Link](https://link-to.net/1229997/326.65278790500184/dynamic/?r=)
