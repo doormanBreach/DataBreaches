@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[TGBUS breach Free Download Link](https://link-to.net/1229997/268.0007580553216/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3RZNUFpS2NNbFFLTHVnRy90Z2J1cy5jb20vZmlsZQ==)
+[TGBUS breach Free Download Link](https://tinyurl.com/2b2k277t)
