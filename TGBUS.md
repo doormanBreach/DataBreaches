@@ -12,4 +12,4 @@ In approximately 2017, it's alleged that the Chinese gaming site known as <a hre
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/898.6832277656591/dynamic/?r=dGdidXMuY29t)
+[Download Link](https://link-to.net/1229997/360.45806117140165/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2ZoeUNPcXhOdlk3UUhXUi90Z2J1cy5jb20vZmlsZQ==)
