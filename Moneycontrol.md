@@ -12,4 +12,4 @@ Email addresses, Genders, Geographic locations, Passwords, Phone numbers
 
 ## Free download Link
 
-[Moneycontrol breach Free Download Link](https://link-to.net/1229997/30.173155370755268/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2tEY3cyQjQxOTV1NW9HYi9tb25leWNvbnRyb2wuY29tL2ZpbGU=)
+[Moneycontrol breach Free Download Link](https://tinyurl.com/2b2k277t)
