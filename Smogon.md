@@ -12,4 +12,4 @@ Email addresses, Genders, Geographic locations, Passwords, Usernames, Website ac
 
 ## Free download Link
 
-[Smogon breach Free Download Link](https://link-to.net/1229997/604.7420327918138/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3V0U01pQmQwTHZoQVFCMS9zbW9nb24uY29tL2ZpbGU=)
+[Smogon breach Free Download Link](https://tinyurl.com/2b2k277t)
