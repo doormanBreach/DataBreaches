@@ -12,4 +12,4 @@ In April 2018, the Pokémon website known as <a href="https://www.smogon.com/for
 
 ## Links
 
-https://link-to.net/1229997/570.1317561623945/dynamic/?r=c21vZ29uLmNvbQ==
+[Download Link](https://link-to.net/1229997/20.71958178492128/dynamic/?r=c21vZ29uLmNvbQ==)
