@@ -12,4 +12,4 @@ In October 2017, the now defunct Brazilian service for retrieving subtitles in P
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/926.4163374095106/dynamic/?r=bGVnZW5kYXMudHY=)
+[Download Link](https://link-to.net/1229997/669.3980399848328/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2M0bmNsZ2lzZjF3bXZCQi9sZWdlbmRhcy50di9maWxl)
