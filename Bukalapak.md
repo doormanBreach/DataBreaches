@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Passwords, Usernames
 
 ## Free download Link
 
-[Bukalapak breach Free Download Link](https://link-to.net/1229997/772.8830169259542/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzBFZWl3Vk9ubUpoOUhTVS9idWthbGFwYWsuY29tL2ZpbGU=)
+[Bukalapak breach Free Download Link](https://tinyurl.com/2b2k277t)
