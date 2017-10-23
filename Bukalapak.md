@@ -12,4 +12,4 @@ In March 2019, the Indonesian e-commerce website <a href="https://www.bukalapak.
 
 ## Links
 
-https://link-to.net/YOUR_USER/578.2321996026582/dynamic/?r=YnVrYWxhcGFrLmNvbQ==
+https://link-to.net/YOUR_USER/510.1890861944658/dynamic/?r=YnVrYWxhcGFrLmNvbQ==
