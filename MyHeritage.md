@@ -12,4 +12,4 @@ In October 2017, the genealogy website <a href="https://blog.myheritage.com/2018
 
 ## Links
 
-https://link-to.net/1229997/333.211143038031/dynamic/?r=bXloZXJpdGFnZS5jb20=
+[Download Link](https://link-to.net/1229997/190.33685719536751/dynamic/?r=bXloZXJpdGFnZS5jb20=)
