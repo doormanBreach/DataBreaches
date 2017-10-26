@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[MyHeritage breach Free Download Link](https://link-to.net/1229997/222.5855197655644/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3U1c2ZBend3ZHpKRWlxUi9teWhlcml0YWdlLmNvbS9maWxl)
+[MyHeritage breach Free Download Link](https://tinyurl.com/2b2k277t)
