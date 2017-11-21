@@ -12,4 +12,4 @@ In November 2017, the open television database known as <a href="https://forums.
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/166.98421269352426/dynamic/?r=dGhldHZkYi5jb20=)
+[Download Link](https://link-to.net/1229997/707.5616751668533/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L21QUVBqMHNJaGdjQ04wNC90aGV0dmRiLmNvbS9maWxl)
