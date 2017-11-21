@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[TheTVDB breach Free Download Link](https://link-to.net/1229997/973.1621893220336/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1UydGthYldIaE5TblpnQi90aGV0dmRiLmNvbS9maWxl)
+[TheTVDB breach Free Download Link](https://tinyurl.com/2b2k277t)
