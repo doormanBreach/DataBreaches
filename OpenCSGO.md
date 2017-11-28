@@ -12,4 +12,4 @@ In December 2017, the website for purchasing Counter-Strike skins known as <a hr
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/768.9189888661223/dynamic/?r=b3BlbmNzZ28uY29t)
+[Download Link](https://link-to.net/1229997/440.016213172022/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3hUYWw5YnpMN1k5dkJNSC9vcGVuY3Nnby5jb20vZmlsZQ==)
