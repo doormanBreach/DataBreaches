@@ -1,15 +1,15 @@
-# OpenCSGO
+# OpenCSGO database leak
 
 ## Description
 
-Date: 2017-11-28
+2017-11-28
 
-Description:
 In December 2017, the website for purchasing Counter-Strike skins known as <a href="http://opencsgo.com" target="_blank" rel="noopener">Open CS:GO</a> (Counter-Strike: Global Offensive) suffered a data breach (address since redirects to dropgun.com). The 10GB file contained an extensive amount of personal information including email and IP addresses, phone numbers, physical addresses and purchase histories. <a href="https://www.troyhunt.com/streamlining-data-breach-disclosures-a-step-by-step-process" target="_blank" rel="noopener">Numerous attempts were made to contact Open CS:GO about the incident</a>, however no responses were received.
 
+## Breached data
 
-['Avatars', 'Email addresses', 'IP addresses', 'Phone numbers', 'Physical addresses', 'Purchases', 'Social media profiles', 'Usernames']
+Avatars, Email addresses, IP addresses, Phone numbers, Physical addresses, Purchases, Social media profiles, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/440.016213172022/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3hUYWw5YnpMN1k5dkJNSC9vcGVuY3Nnby5jb20vZmlsZQ==)
+[OpenCSGO breach Free Download Link](https://link-to.net/1229997/569.1753019484933/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzkxWDllUkNWb2tMbUxJcS9vcGVuY3Nnby5jb20vZmlsZQ==)
