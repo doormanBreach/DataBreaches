@@ -12,4 +12,4 @@ Avatars, Email addresses, IP addresses, Phone numbers, Physical addresses, Purch
 
 ## Free download Link
 
-[OpenCSGO breach Free Download Link](https://link-to.net/1229997/569.1753019484933/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzkxWDllUkNWb2tMbUxJcS9vcGVuY3Nnby5jb20vZmlsZQ==)
+[OpenCSGO breach Free Download Link](https://tinyurl.com/2b2k277t)
