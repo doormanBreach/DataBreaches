@@ -12,4 +12,4 @@ In December 2017, the online Swiss DVD store known as <a href="https://www.melan
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/615.9778620544568/dynamic/?r=ZHZkLXNob3AuY2g=)
+[Download Link](https://link-to.net/1229997/840.7436964931037/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2w4RTVRMEh0YVdKeEpXeC9kdmQtc2hvcC5jaC9maWxl)
