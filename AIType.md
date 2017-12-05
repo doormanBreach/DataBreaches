@@ -12,4 +12,4 @@ In December 2017, the virtual keyboard application <a href="https://mackeepersec
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/790.432719975913/dynamic/?r=YWl0eXBlLmNvbQ==)
+[Download Link](https://link-to.net/1229997/549.2599404728612/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0tzQTNpQWFFMVppY1ViUS9haXR5cGUuY29tL2ZpbGU=)
