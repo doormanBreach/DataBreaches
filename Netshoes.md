@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names, Purchases
 
 ## Free download Link
 
-[Netshoes breach Free Download Link](https://link-to.net/1229997/820.6901153980934/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3JDYUJvTUs1amZEaUQ4SC9uZXRzaG9lcy5jb20uYnIvZmlsZQ==)
+[Netshoes breach Free Download Link](https://tinyurl.com/2b2k277t)
