@@ -12,4 +12,4 @@ In approximately December 2017, the online photo editing site <a href="https://w
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/846.260471046191/dynamic/?r=cGl6YXAuY29t)
+[Download Link](https://link-to.net/1229997/906.3262827686973/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2lJNTF5OThnWDNrUG9Bby9waXphcC5jb20vZmlsZQ==)
