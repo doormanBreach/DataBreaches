@@ -12,4 +12,4 @@ In December 2017, the online Brazilian retailer known as <a href="https://www.da
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/889.9389329133484/dynamic/?r=bmV0c2hvZXMuY29tLmJy)
+[Download Link](https://link-to.net/1229997/254.65518537960486/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2JLQXpTSHJpOW5aOUV4Vi9uZXRzaG9lcy5jb20uYnIvZmlsZQ==)
