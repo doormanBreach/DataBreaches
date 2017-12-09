@@ -12,4 +12,4 @@ In December 2017, the pet care delivery service <a href="https://techcrunch.com/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/835.6015547600059/dynamic/?r=cGV0Zmxvdy5jb20=)
+[Download Link](https://link-to.net/1229997/108.74251765351606/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0JmbEs1bTlJbXFqTHhpQS9wZXRmbG93LmNvbS9maWxl)
