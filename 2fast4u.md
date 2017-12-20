@@ -12,4 +12,4 @@ In December 2017, the Belgian motorcycle forum <a href="https://www.2fast4u.be" 
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/104.09260751280414/dynamic/?r=MmZhc3Q0dS5iZQ==)
+[Download Link](https://link-to.net/1229997/858.4214998061564/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01sVEhmRHZ2WDJWNE9hYi8yZmFzdDR1LmJlL2ZpbGU=)
