@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[2fast4u breach Free Download Link](https://link-to.net/1229997/30.262667370137496/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3ViN2tReGtKbE1tZGJtdS8yZmFzdDR1LmJlL2ZpbGU=)
+[2fast4u breach Free Download Link](https://tinyurl.com/2b2k277t)
