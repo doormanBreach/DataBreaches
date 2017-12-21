@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[LyricsMania breach Free Download Link](https://link-to.net/1229997/153.62641591703886/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1VJdHc2TkxmS1d1RWpHRS9seXJpY3NtYW5pYS5jb20vZmlsZQ==)
+[LyricsMania breach Free Download Link](https://tinyurl.com/2b2k277t)
