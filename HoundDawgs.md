@@ -12,4 +12,4 @@ In December 2017, the Danish torrent tracker known as <a href="https://torrentfr
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/570.5038719767082/dynamic/?r=aG91bmRkYXdncy5vcmc=)
+[Download Link](https://link-to.net/1229997/699.7780514557612/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3BSNkFMVTFKYWs5VGxIWC9ob3VuZGRhd2dzLm9yZy9maWxl)
