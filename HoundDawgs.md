@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Website activity
 
 ## Free download Link
 
-[HoundDawgs breach Free Download Link](https://link-to.net/1229997/729.0208720241797/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3FnME1nWFVPZlZyMHpTVC9ob3VuZGRhd2dzLm9yZy9maWxl)
+[HoundDawgs breach Free Download Link](https://tinyurl.com/2b2k277t)
