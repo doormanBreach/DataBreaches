@@ -12,4 +12,4 @@ Age groups, Credit cards, Email addresses, Genders, Names, Passwords, Phone numb
 
 ## Free download Link
 
-[TheFlyOnTheWall breach Free Download Link](https://link-to.net/1229997/755.8410041913846/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1FYRktqT0l1TGNRcUNSTC90aGVmbHlvbnRoZXdhbGwuY29tL2ZpbGU=)
+[TheFlyOnTheWall breach Free Download Link](https://tinyurl.com/2b2k277t)
