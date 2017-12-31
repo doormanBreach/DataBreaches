@@ -12,4 +12,4 @@ In December 2017, the stock market news website <a href="http://theflyonthewall.
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/261.45340756411304/dynamic/?r=dGhlZmx5b250aGV3YWxsLmNvbQ==)
+[Download Link](https://link-to.net/1229997/45.22991995470815/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1NmU2F3TDFXalljdzBDVC90aGVmbHlvbnRoZXdhbGwuY29tL2ZpbGU=)
