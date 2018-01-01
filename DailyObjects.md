@@ -12,4 +12,4 @@ In approximately January 2018, a collection of more than 464k customer records f
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/916.8893566991642/dynamic/?r=ZGFpbHlvYmplY3RzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/689.1474066883013/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0gyNmxCZ2ZSYmVLSGVwMy9kYWlseW9iamVjdHMuY29tL2ZpbGU=)
