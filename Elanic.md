@@ -12,4 +12,4 @@ Email addresses, Geographic locations, Usernames
 
 ## Free download Link
 
-[Elanic breach Free Download Link](https://link-to.net/1229997/529.8658149228804/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01kZTVocWFNRWxXZmtYci9lbGFuaWMuaW4vZmlsZQ==)
+[Elanic breach Free Download Link](https://tinyurl.com/2b2k277t)
