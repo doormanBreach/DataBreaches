@@ -1,15 +1,15 @@
-# DailyObjects
+# DailyObjects database leak
 
 ## Description
 
-Date: 2018-01-01
+2018-01-01
 
-Description:
 In approximately January 2018, a collection of more than 464k customer records from the Indian online retailer <a href="https://www.dailyobjects.com/" target="_blank" rel="noopener">DailyObjects</a> were leaked online. The data included names, physical and email addresses, phone numbers and &quot;pincodes&quot; stored in plain text. After multiple attempts to contact them, DailyObjects responded and received a copy of the data for verification, however failed to respond to multiple contact attempts following that.
 
+## Breached data
 
-['Email addresses', 'Names', 'Passwords', 'Phone numbers', 'Physical addresses']
+Email addresses, Names, Passwords, Phone numbers, Physical addresses
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/689.1474066883013/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0gyNmxCZ2ZSYmVLSGVwMy9kYWlseW9iamVjdHMuY29tL2ZpbGU=)
+[DailyObjects breach Free Download Link](https://link-to.net/1229997/143.93919910794762/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzMwT1BLVnRnbUdzenFkci9kYWlseW9iamVjdHMuY29tL2ZpbGU=)
