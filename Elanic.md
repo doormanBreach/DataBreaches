@@ -12,4 +12,4 @@ In January 2020, the Indian fashion marketplace <a href="https://elanic.in/" tar
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/928.5322574235547/dynamic/?r=ZWxhbmljLmlu)
+[Download Link](https://link-to.net/1229997/583.4352735255595/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1JQeG9YU0hLcjJCZ01zSy9lbGFuaWMuaW4vZmlsZQ==)
