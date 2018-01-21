@@ -12,4 +12,4 @@ In January 2018, the children's gaming site <a href="https://community.cprewritt
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/329.8117609143831/dynamic/?r=Y3ByZXdyaXR0ZW4ubmV0)
+[Download Link](https://link-to.net/1229997/163.06903025603947/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2dYRm1ndU9weFZWdkNDVi9jcHJld3JpdHRlbi5uZXQvZmlsZQ==)
