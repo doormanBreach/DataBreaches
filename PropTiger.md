@@ -12,4 +12,4 @@ In January 2018, the Indian property website <a href="https://www.proptiger.com/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/841.9677734724086/dynamic/?r=cHJvcHRpZ2VyLmNvbQ==)
+[Download Link](https://link-to.net/1229997/935.5379506141783/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3JUakx6dEJtSGVpVldaaC9wcm9wdGlnZXIuY29tL2ZpbGU=)
