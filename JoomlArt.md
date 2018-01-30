@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Payment histories, Usernames
 
 ## Free download Link
 
-[JoomlArt breach Free Download Link](https://link-to.net/1229997/51.91142426403961/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2sxSTRDT2tNMzg3cmt3OC9qb29tbGFydC5jb20vZmlsZQ==)
+[JoomlArt breach Free Download Link](https://tinyurl.com/2b2k277t)
