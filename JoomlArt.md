@@ -12,4 +12,4 @@ In January 2018, the Joomla template website <a href="https://www.joomlart.com/"
 
 ## Links
 
-https://link-to.net/YOUR_USER/688.5556492977825/dynamic/?r=am9vbWxhcnQuY29t
+https://link-to.net/1229997/359.80158973029495/dynamic/?r=am9vbWxhcnQuY29t
