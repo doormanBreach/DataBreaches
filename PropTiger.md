@@ -12,4 +12,4 @@ Dates of birth, Device information, Email addresses, Genders, IP addresses, Name
 
 ## Free download Link
 
-[PropTiger breach Free Download Link](https://link-to.net/1229997/650.2020895738694/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0oxd1NHOHp4ekZPWlJSdi9wcm9wdGlnZXIuY29tL2ZpbGU=)
+[PropTiger breach Free Download Link](https://tinyurl.com/2b2k277t)
