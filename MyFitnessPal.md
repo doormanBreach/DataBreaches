@@ -12,4 +12,4 @@ In February 2018, the diet and exercise service <a href="https://content.myfitne
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/257.5038345735707/dynamic/?r=bXlmaXRuZXNzcGFsLmNvbQ==)
+[Download Link](https://link-to.net/1229997/245.067000260338/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2p4NGZvYmExY1p2WjU1OS9teWZpdG5lc3NwYWwuY29tL2ZpbGU=)
