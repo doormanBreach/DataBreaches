@@ -12,4 +12,4 @@ In approximately February 2018, <a href="https://www.zdnet.com/article/hacker-pu
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/145.89437759918988/dynamic/?r=am9iYW5kdGFsZW50LmNvbQ==)
+[Download Link](https://link-to.net/1229997/689.0996379824423/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1lFTlFac2xPTUNyRUpWQS9qb2JhbmR0YWxlbnQuY29tL2ZpbGU=)
