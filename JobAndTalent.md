@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Passwords
 
 ## Free download Link
 
-[JobAndTalent breach Free Download Link](https://link-to.net/1229997/511.48246962887924/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0pjcDJFTkpOVHJTdWZCNi9qb2JhbmR0YWxlbnQuY29tL2ZpbGU=)
+[JobAndTalent breach Free Download Link](https://tinyurl.com/2b2k277t)
