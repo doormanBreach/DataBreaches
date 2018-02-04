@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Autocentrum breach Free Download Link](https://link-to.net/1229997/109.20207955815053/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1kyT0RLMXg2bXFkeUxiTy9hdXRvY2VudHJ1bS5wbC9maWxl)
+[Autocentrum breach Free Download Link](https://tinyurl.com/2b2k277t)
