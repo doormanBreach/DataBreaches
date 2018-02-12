@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names, Passwords, School grades (class levels),
 
 ## Free download Link
 
-[FLVS breach Free Download Link](https://link-to.net/1229997/66.18848802530076/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFtVUFDNVpZU1JsU3JRSC9mbHZzLm5ldC9maWxl)
+[FLVS breach Free Download Link](https://tinyurl.com/2b2k277t)
