@@ -12,4 +12,4 @@ In February 2018, <a href="https://www.troyhunt.com/ive-just-added-2844-new-data
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/712.3329647378985/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/913.921752155958/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFhaXM1MmROZ3ZiRXdoSi8vZmlsZQ==)
