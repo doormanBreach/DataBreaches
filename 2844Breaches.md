@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[2844Breaches breach Free Download Link](https://link-to.net/1229997/616.6250094402926/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3dwcUhJMFJidUxXeVJBeC8vZmlsZQ==)
+[2844Breaches breach Free Download Link](https://tinyurl.com/2b2k277t)
