@@ -12,4 +12,4 @@ Bios, Email addresses, Names, Passwords, Usernames
 
 ## Free download Link
 
-[EyeEm breach Free Download Link](https://link-to.net/1229997/63.8668196232961/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L29KcjVOR1VrTFlvbjR3di9leWVlbS5jb20vZmlsZQ==)
+[EyeEm breach Free Download Link](https://tinyurl.com/2b2k277t)
