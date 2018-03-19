@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Geographic locations, IP addresses, Pa
 
 ## Free download Link
 
-[Bestialitysextaboo breach Free Download Link](https://link-to.net/1229997/185.15402871977273/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2NQMmxLRUpwTmJxdzd2Vi9iZXN0aWFsaXR5c2V4dGFib28uY29tL2ZpbGU=)
+[Bestialitysextaboo breach Free Download Link](https://tinyurl.com/2b2k277t)
