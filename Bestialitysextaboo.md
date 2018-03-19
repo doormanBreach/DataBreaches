@@ -12,4 +12,4 @@ In March 2018, the animal bestiality website known as <a href="https://motherboa
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/401.7300041757886/dynamic/?r=YmVzdGlhbGl0eXNleHRhYm9vLmNvbQ==)
+[Download Link](https://link-to.net/1229997/194.75536043071517/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0JxZmV1T2FCSlQzS0pGYS9iZXN0aWFsaXR5c2V4dGFib28uY29tL2ZpbGU=)
