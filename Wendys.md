@@ -12,4 +12,4 @@ In March 2018, <a href="https://www.rappler.com/technology/202040-wendys-philipp
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/550.9521849513861/dynamic/?r=d2VuZHlzLmNvbS5waA==)
+[Download Link](https://link-to.net/1229997/245.27125051246358/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RxcGIzelZ2bm0zREg4YS93ZW5keXMuY29tLnBoL2ZpbGU=)
