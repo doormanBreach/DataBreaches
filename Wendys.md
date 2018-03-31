@@ -12,4 +12,4 @@ Education levels, Email addresses, IP addresses, Job applications, Names, Passwo
 
 ## Free download Link
 
-[Wendys breach Free Download Link](https://link-to.net/1229997/548.5426750463719/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VkcldrYjBCM3FLMlB2Ri93ZW5keXMuY29tLnBoL2ZpbGU=)
+[Wendys breach Free Download Link](https://tinyurl.com/2b2k277t)
