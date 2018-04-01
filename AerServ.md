@@ -12,4 +12,4 @@ In April 2018, the ad management platform known as <a href="https://www.aerserv.
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/685.1073953870913/dynamic/?r=YWVyc2Vydi5jb20=)
+[Download Link](https://link-to.net/1229997/987.3522840670457/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3Zvb3NBQUFzeGt3MHZOYS9hZXJzZXJ2LmNvbS9maWxl)
