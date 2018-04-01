@@ -12,4 +12,4 @@ In April 2018, the self-proclaimed &quot;biggest retro gaming website on earth&q
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/962.0601222132102/dynamic/?r=ZW11cGFyYWRpc2UubWU=)
+[Download Link](https://link-to.net/1229997/870.7730990303518/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2p3cENtUDIwUkFhYXluRC9lbXVwYXJhZGlzZS5tZS9maWxl)
