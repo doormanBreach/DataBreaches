@@ -12,4 +12,4 @@ In April 2018, the online arts database <a href="https://www.theregister.co.uk/2
 
 ## Links
 
-https://link-to.net/1229997/58.68182916755338/dynamic/?r=YXJ0c3kubmV0
+[Download Link](https://link-to.net/1229997/292.9022581418771/dynamic/?r=YXJ0c3kubmV0)
