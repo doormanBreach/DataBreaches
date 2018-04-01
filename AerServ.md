@@ -12,4 +12,4 @@ Email addresses, Employers, Job titles, Names, Passwords, Phone numbers, Physica
 
 ## Free download Link
 
-[AerServ breach Free Download Link](https://link-to.net/1229997/197.92848814340635/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1VzZTYyU1VYd3dsNlc4Qy9hZXJzZXJ2LmNvbS9maWxl)
+[AerServ breach Free Download Link](https://tinyurl.com/2b2k277t)
