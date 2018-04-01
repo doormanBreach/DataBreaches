@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Passwords
 
 ## Free download Link
 
-[Artsy breach Free Download Link](https://link-to.net/1229997/472.2836390763029/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2toVHl0WlhGMEhCbGRoeC9hcnRzeS5uZXQvZmlsZQ==)
+[Artsy breach Free Download Link](https://tinyurl.com/2b2k277t)
