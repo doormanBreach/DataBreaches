@@ -12,4 +12,4 @@ In April 2018, a credential stuffing list containing 111 million email addresses
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/977.1986216380772/dynamic/?r=cGVtaWJsYW5jLmNvbQ==)
+[Download Link](https://link-to.net/1229997/192.35283201093367/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2lwZWNVVFZNeFRjMUN4RS9wZW1pYmxhbmMuY29tL2ZpbGU=)
