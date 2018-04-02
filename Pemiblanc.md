@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Pemiblanc breach Free Download Link](https://link-to.net/1229997/886.1908321282183/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzVwVkVDZnpsSHlySzhDZS9wZW1pYmxhbmMuY29tL2ZpbGU=)
+[Pemiblanc breach Free Download Link](https://tinyurl.com/2b2k277t)
