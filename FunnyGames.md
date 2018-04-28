@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[FunnyGames breach Free Download Link](https://link-to.net/1229997/339.1458734709617/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0o3VGRkbElCaFdxSWRlUS9mdW5ueS1nYW1lcy5iaXovZmlsZQ==)
+[FunnyGames breach Free Download Link](https://tinyurl.com/2b2k277t)
