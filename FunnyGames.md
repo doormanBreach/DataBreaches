@@ -12,4 +12,4 @@ In April 2018, the online entertainment site <a href="https://www.funny-games.bi
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/980.0034782864411/dynamic/?r=ZnVubnktZ2FtZXMuYml6)
+[Download Link](https://link-to.net/1229997/296.80902273890166/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2tybWl6TmYwWTZrcnczdC9mdW5ueS1nYW1lcy5iaXovZmlsZQ==)
