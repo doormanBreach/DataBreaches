@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers, Physical addresses, Usernames
 
 ## Free download Link
 
-[Chegg breach Free Download Link](https://link-to.net/1229997/718.5193095025405/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2FJakVxTEJRZmRQZ1BzRS9jaGVnZy5jb20vZmlsZQ==)
+[Chegg breach Free Download Link](https://tinyurl.com/2b2k277t)
