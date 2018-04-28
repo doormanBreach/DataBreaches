@@ -12,4 +12,4 @@ In April 2018, the textbook rental service <a href="https://techcrunch.com/2018/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/56.74385071682764/dynamic/?r=Y2hlZ2cuY29t)
+[Download Link](https://link-to.net/1229997/555.5676646933427/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1hVdWNCdmw5QWdVSHI0Qi9jaGVnZy5jb20vZmlsZQ==)
