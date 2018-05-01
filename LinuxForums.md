@@ -12,4 +12,4 @@ In May 2018, <a href="https://web.archive.org/web/20180502093437/http://www.linu
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/770.2097713622711/dynamic/?r=bGludXhmb3J1bXMub3Jn)
+[Download Link](https://link-to.net/1229997/119.16117068499842/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1IyYjJrUUlnWFZFS2RZby9saW51eGZvcnVtcy5vcmcvZmlsZQ==)
