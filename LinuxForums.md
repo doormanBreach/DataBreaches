@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[LinuxForums breach Free Download Link](https://link-to.net/1229997/230.9231548563878/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0Z5WFVCNEVzY2dNaWxtNC9saW51eGZvcnVtcy5vcmcvZmlsZQ==)
+[LinuxForums breach Free Download Link](https://tinyurl.com/2b2k277t)
