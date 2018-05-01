@@ -12,4 +12,4 @@ In May 2018, <a href="http://forums.creative.com/" target="_blank" rel="noopener
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/939.6841486652421/dynamic/?r=Y3JlYXRpdmUuY29t)
+[Download Link](https://link-to.net/1229997/462.5003251907448/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0paNUtpNkljdkoxSml4aS9jcmVhdGl2ZS5jb20vZmlsZQ==)
