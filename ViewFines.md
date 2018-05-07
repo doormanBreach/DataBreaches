@@ -12,4 +12,4 @@ Email addresses, Government issued IDs, Names, Passwords, Phone numbers
 
 ## Free download Link
 
-[ViewFines breach Free Download Link](https://link-to.net/1229997/272.96914360476285/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3FTbmF5eEFUcUdRWEpGVC92aWV3ZmluZXMuY28uemEvZmlsZQ==)
+[ViewFines breach Free Download Link](https://tinyurl.com/2b2k277t)
