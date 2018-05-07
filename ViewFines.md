@@ -12,4 +12,4 @@ In May 2018, the South African website for viewing traffic fines online known as
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/220.94045478692436/dynamic/?r=dmlld2ZpbmVzLmNvLnph)
+[Download Link](https://link-to.net/1229997/824.6204040377654/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3czZDRUYkF3dm9qdkRDRi92aWV3ZmluZXMuY28uemEvZmlsZQ==)
