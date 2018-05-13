@@ -12,4 +12,4 @@ In May 2018, the Russian hacking forum <a href="https://medium.com/breach-report
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/142.09525968689428/dynamic/?r=bG9senRlYW0ubmV0)
+[Download Link](https://link-to.net/1229997/659.7696359293507/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZXVzFrY012RHRkVHZyeS9sb2x6dGVhbS5uZXQvZmlsZQ==)
