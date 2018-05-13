@@ -12,4 +12,4 @@ Email addresses, Usernames
 
 ## Free download Link
 
-[Lolzteam breach Free Download Link](https://link-to.net/1229997/57.03262140047893/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZLdDZxUVNkN1ZOOFoxay9sb2x6dGVhbS5uZXQvZmlsZQ==)
+[Lolzteam breach Free Download Link](https://tinyurl.com/2b2k277t)
