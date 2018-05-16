@@ -12,4 +12,4 @@ Email addresses, Genders, Geographic locations, Names, Passwords, Usernames
 
 ## Free download Link
 
-[Poshmark breach Free Download Link](https://link-to.net/1229997/355.3666875609039/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1YzY1JZT1M3bW9pOVBkdC9wb3NobWFyay5jb20vZmlsZQ==)
+[Poshmark breach Free Download Link](https://tinyurl.com/2b2k277t)
