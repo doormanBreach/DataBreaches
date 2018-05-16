@@ -12,4 +12,4 @@ In mid-2018, social commerce marketplace <a href="https://techcrunch.com/2019/08
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/70.2712255565402/dynamic/?r=cG9zaG1hcmsuY29t)
+[Download Link](https://link-to.net/1229997/419.22005080984337/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3lwelRaRVZvZXo5cjlTSi9wb3NobWFyay5jb20vZmlsZQ==)
