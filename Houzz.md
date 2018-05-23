@@ -12,4 +12,4 @@ Email addresses, Geographic locations, IP addresses, Names, Passwords, Social me
 
 ## Free download Link
 
-[Houzz breach Free Download Link](https://link-to.net/1229997/194.04107373414104/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0JjMG4yMUJHblQ2dWExSS9ob3V6ei5jb20vZmlsZQ==)
+[Houzz breach Free Download Link](https://tinyurl.com/2b2k277t)
