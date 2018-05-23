@@ -12,4 +12,4 @@ In mid-2018, the housing design website <a href="https://help.houzz.com/s/articl
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/798.2664379258385/dynamic/?r=aG91enouY29t)
+[Download Link](https://link-to.net/1229997/779.6452650639817/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzVKUnpGODZPaHJ4M2p0Wi9ob3V6ei5jb20vZmlsZQ==)
