@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names, Passwords
 
 ## Free download Link
 
-[AdultFanFiction breach Free Download Link](https://link-to.net/1229997/118.47651464283548/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2NyejRtOEpXVXpSZ1VZYy9hZHVsdC1mYW5maWN0aW9uLm9yZy9maWxl)
+[AdultFanFiction breach Free Download Link](https://tinyurl.com/2b2k277t)
