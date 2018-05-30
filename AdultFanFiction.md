@@ -12,4 +12,4 @@ In May 2018, the website for sharing adult-orientated works of fiction known as 
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/730.577870691072/dynamic/?r=YWR1bHQtZmFuZmljdGlvbi5vcmc=)
+[Download Link](https://link-to.net/1229997/982.3573941249373/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1R5NlltZ2FvanNCd2tyQy9hZHVsdC1mYW5maWN0aW9uLm9yZy9maWxl)
