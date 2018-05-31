@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[Ticketfly breach Free Download Link](https://link-to.net/1229997/250.023815195735/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2hSOVB5M3RJOHJCSzVkYi90aWNrZXRmbHkuY29tL2ZpbGU=)
+[Ticketfly breach Free Download Link](https://tinyurl.com/2b2k277t)
