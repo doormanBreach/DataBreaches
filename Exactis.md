@@ -12,4 +12,4 @@ In June 2018, <a href="https://www.wired.com/story/exactis-database-leak-340-mil
 
 ## Links
 
-https://link-to.net/1229997/433.7241647612381/dynamic/?r=ZXhhY3Rpcy5jb20=
+[Download Link](https://link-to.net/1229997/927.7097703935852/dynamic/?r=ZXhhY3Rpcy5jb20=)
