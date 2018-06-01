@@ -12,4 +12,4 @@ In June 2018, online fashion retailer <a href="https://www.zdnet.com/article/she
 
 ## Links
 
-https://link-to.net/YOUR_USER/236.24171891143652/dynamic/?r=c2hlaW4uY29t
+https://link-to.net/1229997/351.84235237718076/dynamic/?r=c2hlaW4uY29t
