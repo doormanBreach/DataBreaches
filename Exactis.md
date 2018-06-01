@@ -12,4 +12,4 @@ Credit status information, Dates of birth, Education levels, Email addresses, Et
 
 ## Free download Link
 
-[Exactis breach Free Download Link](https://link-to.net/1229997/501.1824086499361/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01uVjZ3cmdkRGs3dHRLcy9leGFjdGlzLmNvbS9maWxl)
+[Exactis breach Free Download Link](https://tinyurl.com/2b2k277t)
