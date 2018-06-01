@@ -12,4 +12,4 @@ In mid-2018, the Hong Kong-based retailer <a href="https://finance.yahoo.com/fin
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/619.01042888281/dynamic/?r=cm9td2UuY29t)
+[Download Link](https://link-to.net/1229997/418.3401162078654/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3R3dFZwZmlienlVY3lQTS9yb213ZS5jb20vZmlsZQ==)
