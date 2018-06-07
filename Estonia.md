@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Estonia breach Free Download Link](https://link-to.net/1229997/400.0052749022486/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0s3Y2xIcVpKd2syS1dxOS8vZmlsZQ==)
+[Estonia breach Free Download Link](https://tinyurl.com/2b2k277t)
