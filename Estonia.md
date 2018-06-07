@@ -12,4 +12,4 @@ In June 2018, <a href="https://www.troyhunt.com/data-provided-by-the-estonian-ce
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/587.3807853254638/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/680.6210342668585/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzVtSXJqZEptaGc5NnFydS8vZmlsZQ==)
