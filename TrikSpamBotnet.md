@@ -12,4 +12,4 @@ In June 2018, the command and control server of a malicious botnet known as the 
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/474.3924595785225/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/138.48021059905514/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1lLWVBraVlSRnc3RTZwRy8vZmlsZQ==)
