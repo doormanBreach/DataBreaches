@@ -12,4 +12,4 @@ Email addresses
 
 ## Free download Link
 
-[TrikSpamBotnet breach Free Download Link](https://link-to.net/1229997/564.3021995524416/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzhRQ1lvWHMzQzg3cTEySC8vZmlsZQ==)
+[TrikSpamBotnet breach Free Download Link](https://tinyurl.com/2b2k277t)
