@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Physical addresses, Usernames
 
 ## Free download Link
 
-[MortalOnline breach Free Download Link](https://link-to.net/1229997/100.14993949187945/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L21GRGtXR0xMblU0ZDBIdi9tb3J0YWxvbmxpbmUuY29tL2ZpbGU=)
+[MortalOnline breach Free Download Link](https://tinyurl.com/2b2k277t)
