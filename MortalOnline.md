@@ -12,4 +12,4 @@ In June 2018, the massively multiplayer online role-playing game (MMORPG) <a hre
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/157.42926487506082/dynamic/?r=bW9ydGFsb25saW5lLmNvbQ==)
+[Download Link](https://link-to.net/1229997/261.47641112170663/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzNwNTBQcmxhQ3AydWFHZC9tb3J0YWxvbmxpbmUuY29tL2ZpbGU=)
