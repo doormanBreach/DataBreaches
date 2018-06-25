@@ -12,4 +12,4 @@ In June 2018, the World of Warcraft service <a href="https://lightshope.org/news
 
 ## Links
 
-https://link-to.net/YOUR_USER/218.9182514568132/dynamic/?r=bGlnaHRzaG9wZS5vcmc=
+https://link-to.net/1229997/185.84855300087466/dynamic/?r=bGlnaHRzaG9wZS5vcmc=
