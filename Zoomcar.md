@@ -12,4 +12,4 @@ In July 2018, the Indian self-drive car rental company <a href="https://tech.eco
 
 ## Links
 
-https://link-to.net/1229997/992.8540899767861/dynamic/?r=em9vbWNhci5jb20=
+[Download Link](https://link-to.net/1229997/968.389373371022/dynamic/?r=em9vbWNhci5jb20=)
