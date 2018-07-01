@@ -12,4 +12,4 @@ In July 2018, the health and fitness service <a href="https://8fit.zendesk.com/h
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/501.34161526013554/dynamic/?r=OGZpdC5jb20=)
+[Download Link](https://link-to.net/1229997/753.3685693681955/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3FRbmNtRnVXdjlVbUJWSy84Zml0LmNvbS9maWxl)
