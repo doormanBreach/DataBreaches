@@ -12,4 +12,4 @@ Email addresses, Genders, Geographic locations, IP addresses, Names, Passwords
 
 ## Free download Link
 
-[8fit breach Free Download Link](https://link-to.net/1229997/533.1350376094309/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzNXeHlDTm0wejd0RzlOeS84Zml0LmNvbS9maWxl)
+[8fit breach Free Download Link](https://tinyurl.com/2b2k277t)
