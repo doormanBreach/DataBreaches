@@ -1,15 +1,15 @@
-# 8fit
+# 8fit database leak
 
 ## Description
 
-Date: 2018-07-01
+2018-07-01
 
-Description:
 In July 2018, the health and fitness service <a href="https://8fit.zendesk.com/hc/en-us/articles/360017746394-Notice" target="_blank" rel="noopener">8fit suffered a data breach</a>. The data subsequently appeared for sale on a dark web marketplace in February 2019 and included over 15M unique email addresses alongside names, genders, IP addresses and passwords stored as bcrypt hashes. The data was provided to HIBP by <a href="https://dehashed.com/" target="_blank" rel="noopener">dehashed.com</a>.
 
+## Breached data
 
-['Email addresses', 'Genders', 'Geographic locations', 'IP addresses', 'Names', 'Passwords']
+Email addresses, Genders, Geographic locations, IP addresses, Names, Passwords
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/753.3685693681955/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3FRbmNtRnVXdjlVbUJWSy84Zml0LmNvbS9maWxl)
+[8fit breach Free Download Link](https://link-to.net/1229997/533.1350376094309/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzNXeHlDTm0wejd0RzlOeS84Zml0LmNvbS9maWxl)
