@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[StrongholdKingdoms breach Free Download Link](https://link-to.net/1229997/601.8041436042931/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2RPTFF4U21FaHRUeVlkNi9zdHJvbmdob2xka2luZ2RvbXMuY29tL2ZpbGU=)
+[StrongholdKingdoms breach Free Download Link](https://tinyurl.com/2b2k277t)
