@@ -12,4 +12,4 @@ In July 2018, the massive multiplayer online game <a href="https://techraptor.ne
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/304.26576876949787/dynamic/?r=c3Ryb25naG9sZGtpbmdkb21zLmNvbQ==)
+[Download Link](https://link-to.net/1229997/532.7591814848435/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0tScnhxMFNTM01uOHZCZC9zdHJvbmdob2xka2luZ2RvbXMuY29tL2ZpbGU=)
