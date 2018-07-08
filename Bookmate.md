@@ -12,4 +12,4 @@ In mid-2018, the social ebook subscription service <a href="https://www.theregis
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/642.6342370930264/dynamic/?r=Ym9va21hdGUuY29t)
+[Download Link](https://link-to.net/1229997/983.8003254962746/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0pyRXc5Q2xFWGs1VFNCTy9ib29rbWF0ZS5jb20vZmlsZQ==)
