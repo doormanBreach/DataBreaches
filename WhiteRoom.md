@@ -12,4 +12,4 @@ In July 2018, UK-based ecommerce company <a href="https://www.grahamcluley.com/o
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/512.3034918128554/dynamic/?r=ZmFzaGlvbm5leHVzLmNvLnVr)
+[Download Link](https://link-to.net/1229997/892.890586498192/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0M3YlNKOHBKWDZ3VjJDby9mYXNoaW9ubmV4dXMuY28udWsvZmlsZQ==)
