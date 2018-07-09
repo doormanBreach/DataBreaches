@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names, Passwords
 
 ## Free download Link
 
-[ShareThis breach Free Download Link](https://link-to.net/1229997/621.4134685409737/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzI5VEJ0TzZBbGxyU3YzNi9zaGFyZXRoaXMuY29tL2ZpbGU=)
+[ShareThis breach Free Download Link](https://tinyurl.com/2b2k277t)
