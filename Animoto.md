@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Geographic locations, Names, Passwords
 
 ## Free download Link
 
-[Animoto breach Free Download Link](https://link-to.net/1229997/19.591645134767855/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZ1dmx5WE8yeTRRVmhzby9hbmltb3RvLmNvbS9maWxl)
+[Animoto breach Free Download Link](https://tinyurl.com/2b2k277t)
