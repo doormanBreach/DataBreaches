@@ -12,4 +12,4 @@ In July 2018, the cloud-based video making service <a href="https://techcrunch.c
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/295.3694772241124/dynamic/?r=YW5pbW90by5jb20=)
+[Download Link](https://link-to.net/1229997/436.34753131579686/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0xScGxmeFBUQXp4S2lxRC9hbmltb3RvLmNvbS9maWxl)
