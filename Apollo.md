@@ -12,4 +12,4 @@ In July 2018, the sales engagement startup <a href="https://www.wired.com/story/
 
 ## Links
 
-https://link-to.net/1229997/450.5742044246801/dynamic/?r=YXBvbGxvLmlv
+[Download Link](https://link-to.net/1229997/412.0948604931981/dynamic/?r=YXBvbGxvLmlv)
