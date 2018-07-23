@@ -12,4 +12,4 @@ Email addresses, Employers, Geographic locations, Job titles, Names, Phone numbe
 
 ## Free download Link
 
-[Apollo breach Free Download Link](https://link-to.net/1229997/843.7064561814661/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZPeWp6dm16dzNHNU5POC9hcG9sbG8uaW8vZmlsZQ==)
+[Apollo breach Free Download Link](https://tinyurl.com/2b2k277t)
