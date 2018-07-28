@@ -12,4 +12,4 @@ In July 2018, staff of <a href="https://lanwar.com/" target="_blank" rel="noopen
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/544.4451526354276/dynamic/?r=bGFud2FyLmNvbQ==)
+[Download Link](https://link-to.net/1229997/443.991288401/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3o4b0xiSXd5R2pwWndjeS9sYW53YXIuY29tL2ZpbGU=)
