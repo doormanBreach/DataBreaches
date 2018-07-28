@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Physical addresses, Usernames
 
 ## Free download Link
 
-[Lanwar breach Free Download Link](https://link-to.net/1229997/766.1942103062354/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2FXa1R4U2M4SGdWNzVmSS9sYW53YXIuY29tL2ZpbGU=)
+[Lanwar breach Free Download Link](https://tinyurl.com/2b2k277t)
