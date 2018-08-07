@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Geographic locations, Names, Passwords
 
 ## Free download Link
 
-[HauteLook breach Free Download Link](https://link-to.net/1229997/487.31523342789774/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3pVaTRtUU9ZTm1oSkFHaS9oYXV0ZWxvb2suY29tL2ZpbGU=)
+[HauteLook breach Free Download Link](https://tinyurl.com/2b2k277t)
