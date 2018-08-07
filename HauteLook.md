@@ -1,15 +1,15 @@
-# HauteLook
+# HauteLook database leak
 
 ## Description
 
-Date: 2018-08-07
+2018-08-07
 
-Description:
 In mid-2018, the fashion shopping site <a href="https://www.theregister.co.uk/2019/02/11/620_million_hacked_accounts_dark_web/" target="_blank" rel="noopener">HauteLook was among a raft of sites that were breached and their data then sold in early-2019</a>. The data included over 28 million unique email addresses alongside names, genders, dates of birth and passwords stored as bcrypt hashes. The data was provided to HIBP by <a href="https://dehashed.com/" target="_blank" rel="noopener">dehashed.com</a>.
 
+## Breached data
 
-['Dates of birth', 'Email addresses', 'Genders', 'Geographic locations', 'Names', 'Passwords']
+Dates of birth, Email addresses, Genders, Geographic locations, Names, Passwords
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/950.6202855353555/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1YxTnp0ZmNHcDhlUkZWWi9oYXV0ZWxvb2suY29tL2ZpbGU=)
+[HauteLook breach Free Download Link](https://link-to.net/1229997/487.31523342789774/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3pVaTRtUU9ZTm1oSkFHaS9oYXV0ZWxvb2suY29tL2ZpbGU=)
