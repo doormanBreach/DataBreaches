@@ -12,4 +12,4 @@ In mid-2018, the fashion shopping site <a href="https://www.theregister.co.uk/20
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/708.601309382297/dynamic/?r=aGF1dGVsb29rLmNvbQ==)
+[Download Link](https://link-to.net/1229997/950.6202855353555/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1YxTnp0ZmNHcDhlUkZWWi9oYXV0ZWxvb2suY29tL2ZpbGU=)
