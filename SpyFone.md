@@ -12,4 +12,4 @@ In August 2018, the spyware company <a href="https://motherboard.vice.com/en_us/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/708.7946260472794/dynamic/?r=c3B5Zm9uZS5jb20=)
+[Download Link](https://link-to.net/1229997/441.8388935794075/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1VMUkdUeHVNYU4wY0hZbS9zcHlmb25lLmNvbS9maWxl)
