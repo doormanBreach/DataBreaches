@@ -12,4 +12,4 @@ Audio recordings, Browsing histories, Device information, Email addresses, Geogr
 
 ## Free download Link
 
-[SpyFone breach Free Download Link](https://link-to.net/1229997/126.7296032767199/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3pCcDFkUnpkcFphQ1c2RS9zcHlmb25lLmNvbS9maWxl)
+[SpyFone breach Free Download Link](https://tinyurl.com/2b2k277t)
