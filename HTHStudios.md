@@ -12,4 +12,4 @@ Browser user agent details, Dates of birth, Email addresses, IP addresses, Names
 
 ## Free download Link
 
-[HTHStudios breach Free Download Link](https://link-to.net/1229997/201.6911082666144/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1JRdzF6WWdKd1doS1pjby9odGhzdHVkaW9zLmNvbS9maWxl)
+[HTHStudios breach Free Download Link](https://tinyurl.com/2b2k277t)
