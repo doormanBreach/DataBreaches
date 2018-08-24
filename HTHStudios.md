@@ -12,4 +12,4 @@ In August 2018, the adult furry interactive game creator <a href="https://hthstu
 
 ## Links
 
-https://link-to.net/YOUR_USER/218.1246970607178/dynamic/?r=aHRoc3R1ZGlvcy5jb20=
+https://link-to.net/YOUR_USER/109.26217212253508/dynamic/?r=aHRoc3R1ZGlvcy5jb20=
