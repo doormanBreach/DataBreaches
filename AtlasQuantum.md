@@ -12,4 +12,4 @@ In August 2018, the cryptocurrency investment platform <a href="https://www.face
 
 ## Links
 
-https://link-to.net/1229997/334.2456675465743/dynamic/?r=YXRsYXNxdWFudHVtLmNvbQ==
+[Download Link](https://link-to.net/1229997/214.1153729153492/dynamic/?r=YXRsYXNxdWFudHVtLmNvbQ==)
