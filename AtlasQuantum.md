@@ -12,4 +12,4 @@ Account balances, Email addresses, Names, Phone numbers
 
 ## Free download Link
 
-[AtlasQuantum breach Free Download Link](https://link-to.net/1229997/63.92803956436721/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3RwZGhLWHVTN2wya0s0NC9hdGxhc3F1YW50dW0uY29tL2ZpbGU=)
+[AtlasQuantum breach Free Download Link](https://tinyurl.com/2b2k277t)
