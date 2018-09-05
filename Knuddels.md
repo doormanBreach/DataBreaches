@@ -12,4 +12,4 @@ Email addresses, Geographic locations, Names, Passwords, Usernames
 
 ## Free download Link
 
-[Knuddels breach Free Download Link](https://link-to.net/1229997/435.22954905575006/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0V6dFpFYXRiRHpybEpqNC9rbnVkZGVscy5kZS9maWxl)
+[Knuddels breach Free Download Link](https://tinyurl.com/2b2k277t)
