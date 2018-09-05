@@ -12,4 +12,4 @@ In September 2018, the German social media website <a href="https://forum.knudde
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/869.9868474510378/dynamic/?r=a251ZGRlbHMuZGU=)
+[Download Link](https://link-to.net/1229997/972.5973520249026/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2VocFhhNHVHVzRPT2RmNC9rbnVkZGVscy5kZS9maWxl)
