@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[KayoMoe breach Free Download Link](https://link-to.net/1229997/46.83300169412452/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pmSHlNaGtLTU1pTFZmUC8vZmlsZQ==)
+[KayoMoe breach Free Download Link](https://tinyurl.com/2b2k277t)
