@@ -12,4 +12,4 @@ In September 2018, a collection of almost 42 million email address and plain tex
 
 ## Links
 
-https://link-to.net/1229997/894.847217894281/dynamic/?r=
+[Download Link](https://link-to.net/1229997/619.8306111953818/dynamic/?r=)
