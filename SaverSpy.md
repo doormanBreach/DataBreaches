@@ -12,4 +12,4 @@ Email addresses, Genders, Names, Physical addresses
 
 ## Free download Link
 
-[SaverSpy breach Free Download Link](https://link-to.net/1229997/738.9061586870564/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3Z1VmJ6dzg5dG9xcGpDQy8vZmlsZQ==)
+[SaverSpy breach Free Download Link](https://tinyurl.com/2b2k277t)
