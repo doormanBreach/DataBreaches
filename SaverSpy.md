@@ -12,4 +12,4 @@ In September 2018, <a href="https://www.linkedin.com/pulse/another-e-marketing-d
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/390.2733536402193/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/873.8571266228497/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2JMYWNBOXQ0VHdNUnNSVi8vZmlsZQ==)
