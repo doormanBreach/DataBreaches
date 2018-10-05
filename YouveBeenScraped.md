@@ -12,4 +12,4 @@ In October and November 2018, <a href="https://blog.hackenproof.com/industry-new
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/224.98283140147012/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/120.17355719477175/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3JBa2xYTDh3d29qa0FnSS8vZmlsZQ==)
