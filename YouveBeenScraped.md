@@ -12,4 +12,4 @@ Email addresses, Employers, Geographic locations, Job titles, Names, Social medi
 
 ## Free download Link
 
-[YouveBeenScraped breach Free Download Link](https://link-to.net/1229997/667.117733879387/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0tQa2VlNkJlcWJkTlFFTC8vZmlsZQ==)
+[YouveBeenScraped breach Free Download Link](https://tinyurl.com/2b2k277t)
