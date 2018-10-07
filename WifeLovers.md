@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Passwords, Usernames
 
 ## Free download Link
 
-[WifeLovers breach Free Download Link](https://link-to.net/1229997/240.90901766958828/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L011MHZRUXluMDI5WTdRMS93aWZlbG92ZXJzLmNvbS9maWxl)
+[WifeLovers breach Free Download Link](https://tinyurl.com/2b2k277t)
