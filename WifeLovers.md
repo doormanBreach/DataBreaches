@@ -1,15 +1,15 @@
-# WifeLovers
+# WifeLovers database leak
 
 ## Description
 
-Date: 2018-10-07
+2018-10-07
 
-Description:
 In October 2018, the site dedicated to posting naked photos and other erotica of wives <a href="https://arstechnica.com/information-technology/2018/10/hack-on-8-adult-websites-exposes-oodles-of-intimate-user-data/" target="_blank" rel="noopener">Wife Lovers suffered a data breach</a>. The underlying database supported a total of 8 different adult websites and contained over 1.2M unique email addresses. <a href="https://web.archive.org/web/20181020185005/http://wifelovers.com/" target="_blank" rel="noopener">Wife Lovers acknowledged the breach</a> which impacted names, usernames, email and IP addresses and passwords hashed using the weak DEScrypt algorithm. The breach has been marked as &quot;sensitive&quot; due to the nature of the site.
 
+## Breached data
 
-['Email addresses', 'IP addresses', 'Names', 'Passwords', 'Usernames']
+Email addresses, IP addresses, Names, Passwords, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/203.3273858500818/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZrTXQ5OUV2b1NkRkR4Mi93aWZlbG92ZXJzLmNvbS9maWxl)
+[WifeLovers breach Free Download Link](https://link-to.net/1229997/240.90901766958828/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L011MHZRUXluMDI5WTdRMS93aWZlbG92ZXJzLmNvbS9maWxl)
