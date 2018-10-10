@@ -12,4 +12,4 @@ In October 2018, the Polish e-commerce website <a href="https://niebezpiecznik.p
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/430.8684201478551/dynamic/?r=bW9yZWxlLm5ldA==)
+[Download Link](https://link-to.net/1229997/143.7561073053486/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFuMzhZbU16dW5lcHVBVy9tb3JlbGUubmV0L2ZpbGU=)
