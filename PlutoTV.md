@@ -12,4 +12,4 @@ Dates of birth, Device information, Email addresses, Genders, IP addresses, Name
 
 ## Free download Link
 
-[PlutoTV breach Free Download Link](https://link-to.net/1229997/694.8812143782894/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2JrSVBIc1RYZms2MkpjdC9wbHV0by50di9maWxl)
+[PlutoTV breach Free Download Link](https://tinyurl.com/2b2k277t)
