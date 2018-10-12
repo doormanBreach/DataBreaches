@@ -12,4 +12,4 @@ In October 2018, the internet television service <a href="https://www.vice.com/e
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/984.40478906918/dynamic/?r=cGx1dG8udHY=)
+[Download Link](https://link-to.net/1229997/838.9748793285648/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0ZSZmptS0gyWVpkeFhyWi9wbHV0by50di9maWxl)
