@@ -12,4 +12,4 @@ In October 2018, the restaurant reservation service <a href="https://www.channel
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/671.9374714940072/dynamic/?r=ZWF0aWdvLmNvbQ==)
+[Download Link](https://link-to.net/1229997/555.5197759879208/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pvdXdtVjNzTjBscnF0Qy9lYXRpZ28uY29tL2ZpbGU=)
