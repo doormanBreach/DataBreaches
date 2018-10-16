@@ -12,4 +12,4 @@ Email addresses, Genders, Names, Passwords, Phone numbers, Social media profiles
 
 ## Free download Link
 
-[Eatigo breach Free Download Link](https://link-to.net/1229997/93.48018743907238/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3ZHV0J4RUNzRTBVOXZhdi9lYXRpZ28uY29tL2ZpbGU=)
+[Eatigo breach Free Download Link](https://tinyurl.com/2b2k277t)
