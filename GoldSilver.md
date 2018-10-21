@@ -12,4 +12,4 @@ Bank account numbers, Email addresses, IP addresses, Names, Partial credit card 
 
 ## Free download Link
 
-[GoldSilver breach Free Download Link](https://link-to.net/1229997/385.1366386444922/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3ZMWUl0bmx3bkRtRVlRcy9nb2xkc2lsdmVyLmNvbS9maWxl)
+[GoldSilver breach Free Download Link](https://tinyurl.com/2b2k277t)
