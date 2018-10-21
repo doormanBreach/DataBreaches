@@ -12,4 +12,4 @@ In October 2018, the bullion education and dealer services site <a href="https:/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/41.91362784783681/dynamic/?r=Z29sZHNpbHZlci5jb20=)
+[Download Link](https://link-to.net/1229997/888.5374374170752/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1BDVHlUTFo4VW9NRmQ0cC9nb2xkc2lsdmVyLmNvbS9maWxl)
