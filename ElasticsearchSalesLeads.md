@@ -12,4 +12,4 @@ Email addresses, Employers, Names, Physical addresses
 
 ## Free download Link
 
-[ElasticsearchSalesLeads breach Free Download Link](https://link-to.net/1229997/148.1634706612005/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1hMOEkySlhTUVBUVHBsTS8vZmlsZQ==)
+[ElasticsearchSalesLeads breach Free Download Link](https://tinyurl.com/2b2k277t)
