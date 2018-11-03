@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Passwords, Phone numbers
 
 ## Free download Link
 
-[SIAE breach Free Download Link](https://link-to.net/1229997/347.3609621450122/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pneDY0bWNic0F3ZUZmWC9zaWFlLml0L2ZpbGU=)
+[SIAE breach Free Download Link](https://tinyurl.com/2b2k277t)
