@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[WPSandbox breach Free Download Link](https://link-to.net/1229997/532.006619253528/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L05TYWpYYjU5d0NrUEFURy93cHNhbmRib3guaW8vZmlsZQ==)
+[WPSandbox breach Free Download Link](https://tinyurl.com/2b2k277t)
