@@ -1,15 +1,15 @@
-# Adapt
+# Adapt database leak
 
 ## Description
 
-Date: 2018-11-05
+2018-11-05
 
-Description:
 In November 2018, <a href="https://blog.hackenproof.com/industry-news/another-decision-makers-database-leaked/" target="_blank" rel="noopener">security researcher Bob Diachenko identified an unprotected database hosted by data aggregator &quot;Adapt&quot;</a>. A provider of &quot;Fresh Quality Contacts&quot;, the service exposed over 9.3M unique records of individuals and employer information including their names, employers, job titles, contact information and data relating to the employer including organisation description, size and revenue. No response was received from Adapt when contacted.
 
+## Breached data
 
-['Email addresses', 'Employers', 'Job titles', 'Names', 'Phone numbers', 'Physical addresses', 'Social media profiles']
+Email addresses, Employers, Job titles, Names, Phone numbers, Physical addresses, Social media profiles
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/597.6223268317675/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0wxUUthU0h0bjNxWGpwTi9hZGFwdC5pby9maWxl)
+[Adapt breach Free Download Link](https://link-to.net/1229997/963.6889352424237/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0ZWd3FIRWFhTjlONU9kQy9hZGFwdC5pby9maWxl)
