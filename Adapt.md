@@ -12,4 +12,4 @@ Email addresses, Employers, Job titles, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[Adapt breach Free Download Link](https://link-to.net/1229997/963.6889352424237/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0ZWd3FIRWFhTjlONU9kQy9hZGFwdC5pby9maWxl)
+[Adapt breach Free Download Link](https://tinyurl.com/2b2k277t)
