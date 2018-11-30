@@ -12,4 +12,4 @@ In November 2018, the Minecraft modpack platform known as <a href="https://www.t
 
 ## Links
 
-https://link-to.net/1229997/750.9535044724407/dynamic/?r=dGVjaG5pY3BhY2submV0
+[Download Link](https://link-to.net/1229997/863.3387953924522/dynamic/?r=dGVjaG5pY3BhY2submV0)
