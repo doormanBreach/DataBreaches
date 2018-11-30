@@ -12,4 +12,4 @@ Chat logs, Email addresses, IP addresses, Passwords, Private messages, Time zone
 
 ## Free download Link
 
-[Technic breach Free Download Link](https://link-to.net/1229997/691.5417891088812/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2lKUkEwbTBBOEFHZTZWai90ZWNobmljcGFjay5uZXQvZmlsZQ==)
+[Technic breach Free Download Link](https://tinyurl.com/2b2k277t)
