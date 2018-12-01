@@ -12,4 +12,4 @@ In December 2018, the photo sharing social network <a href="https://www.theregis
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/346.35043568712496/dynamic/?r=Zm90b2xvZy5jb20=)
+[Download Link](https://link-to.net/1229997/740.6691073619368/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0NuNWhiT1N3Zm55MmFJay9mb3RvbG9nLmNvbS9maWxl)
