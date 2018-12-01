@@ -12,4 +12,4 @@ In December 2018, the video messaging service <a href="https://www.theregister.c
 
 ## Links
 
-https://link-to.net/1229997/955.8838313475948/dynamic/?r=ZHVic21hc2guY29t
+[Download Link](https://link-to.net/1229997/837.6638691131961/dynamic/?r=ZHVic21hc2guY29t)
