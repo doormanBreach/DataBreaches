@@ -1,15 +1,15 @@
-# Fotolog
+# Fotolog database leak
 
 ## Description
 
-Date: 2018-12-01
+2018-12-01
 
-Description:
 In December 2018, the photo sharing social network <a href="https://www.theregister.com/2019/02/11/620_million_hacked_accounts_dark_web/" target="_blank" rel="noopener">Fotolog suffered a data breach</a> that exposed 16.7 million unique email addresses. The data also included usernames and unsalted SHA-256 password hashes. The site was dissolved the following year and repurposed as a news website based in Brcko, Bosnia and Herzegovina.
 
+## Breached data
 
-['Email addresses', 'Passwords', 'Usernames']
+Email addresses, Passwords, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/740.6691073619368/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0NuNWhiT1N3Zm55MmFJay9mb3RvbG9nLmNvbS9maWxl)
+[Fotolog breach Free Download Link](https://link-to.net/1229997/119.58940494258319/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pSNkRkcUdPWDVFTTBRQS9mb3RvbG9nLmNvbS9maWxl)
