@@ -12,4 +12,4 @@ Email addresses, Geographic locations, Names, Passwords, Phone numbers, Spoken l
 
 ## Free download Link
 
-[Dubsmash breach Free Download Link](https://link-to.net/1229997/860.9749448118487/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VydzRBM1lDMDlmQlFldy9kdWJzbWFzaC5jb20vZmlsZQ==)
+[Dubsmash breach Free Download Link](https://tinyurl.com/2b2k277t)
