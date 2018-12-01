@@ -1,15 +1,15 @@
-# Dubsmash
+# Dubsmash database leak
 
 ## Description
 
-Date: 2018-12-01
+2018-12-01
 
-Description:
 In December 2018, the video messaging service <a href="https://www.theregister.co.uk/2019/02/11/620_million_hacked_accounts_dark_web/" target="_blank" rel="noopener">Dubsmash suffered a data breach</a>. The incident exposed 162 million unique email addresses alongside usernames and PBKDF2 password hashes. In 2019, the data appeared listed for sale on a dark web marketplace (along with several other large breaches) and subsequently began circulating more broadly. The data was provided to HIBP by a source who requested it to be attributed to &quot;BenjaminBlue@exploit.im&quot;.
 
+## Breached data
 
-['Email addresses', 'Geographic locations', 'Names', 'Passwords', 'Phone numbers', 'Spoken languages', 'Usernames']
+Email addresses, Geographic locations, Names, Passwords, Phone numbers, Spoken languages, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/512.2278456280507/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VyNlpEc296RjFNRWlNQy9kdWJzbWFzaC5jb20vZmlsZQ==)
+[Dubsmash breach Free Download Link](https://link-to.net/1229997/860.9749448118487/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VydzRBM1lDMDlmQlFldy9kdWJzbWFzaC5jb20vZmlsZQ==)
