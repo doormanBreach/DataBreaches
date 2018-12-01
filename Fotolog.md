@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Fotolog breach Free Download Link](https://link-to.net/1229997/119.58940494258319/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pSNkRkcUdPWDVFTTBRQS9mb3RvbG9nLmNvbS9maWxl)
+[Fotolog breach Free Download Link](https://tinyurl.com/2b2k277t)
