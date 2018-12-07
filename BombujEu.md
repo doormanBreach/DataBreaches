@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[BombujEu breach Free Download Link](https://link-to.net/1229997/893.9895112174022/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2xtWGxzNmoyZEk1dm01My9ib21idWouZXUvZmlsZQ==)
+[BombujEu breach Free Download Link](https://tinyurl.com/2b2k277t)
