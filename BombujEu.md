@@ -1,15 +1,15 @@
-# BombujEu
+# BombujEu database leak
 
 ## Description
 
-Date: 2018-12-07
+2018-12-07
 
-Description:
 In December 2018, the Slovak website for watching movies online for free <a href="https://www.bombuj.eu" target="_blank" rel="noopener">Bombuj.eu</a> suffered a data breach. The incident exposed over 575k unique email addresses and passwords stored as unsalted MD5 hashes. No response was received from Bombuj.eu when contacted about the incident.
 
+## Breached data
 
-['Email addresses', 'Passwords']
+Email addresses, Passwords
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/636.7508795557451/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2c4VnNaWWtWRlVROTBuVi9ib21idWouZXUvZmlsZQ==)
+[BombujEu breach Free Download Link](https://link-to.net/1229997/893.9895112174022/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2xtWGxzNmoyZEk1dm01My9ib21idWouZXUvZmlsZQ==)
