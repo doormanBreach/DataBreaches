@@ -12,4 +12,4 @@ In December 2018, the mapping website <a href="http://www.mappery.com" target="_
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/904.3358817871165/dynamic/?r=bWFwcGVyeS5jb20=)
+[Download Link](https://link-to.net/1229997/637.5482103167983/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0hLVTBVeEhramtQRHFlUy9tYXBwZXJ5LmNvbS9maWxl)
