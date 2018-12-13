@@ -12,4 +12,4 @@ In approximately December 2018, the digital mall <a href="https://www.zdnet.com/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/130.3244510248456/dynamic/?r=d2FuZWxvLmNvbQ==)
+[Download Link](https://link-to.net/1229997/213.5101639798991/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2k2REI5R2ZGaksydW5jcy93YW5lbG8uY29tL2ZpbGU=)
