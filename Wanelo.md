@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Passwords, Physical addresses
 
 ## Free download Link
 
-[Wanelo breach Free Download Link](https://link-to.net/1229997/307.75930467845757/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzBPY2tFbUhOcnhmb1VuSC93YW5lbG8uY29tL2ZpbGU=)
+[Wanelo breach Free Download Link](https://tinyurl.com/2b2k277t)
