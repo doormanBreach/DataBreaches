@@ -12,4 +12,4 @@ Dates of birth, Education levels, Email addresses, Genders, Geographic locations
 
 ## Free download Link
 
-[Ajarn breach Free Download Link](https://link-to.net/1229997/843.7657310979414/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2pDQXlJRGxJZ0d4NTVQaC9hamFybi5jb20vZmlsZQ==)
+[Ajarn breach Free Download Link](https://tinyurl.com/2b2k277t)
