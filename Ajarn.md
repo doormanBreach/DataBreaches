@@ -1,15 +1,15 @@
-# Ajarn
+# Ajarn database leak
 
 ## Description
 
-Date: 2018-12-13
+2018-12-13
 
-Description:
 In September 2021, the Thai-based English language teaching website <a href="https://www.ajarn.com/data-breach" target="_blank" rel="noopener">Ajarn discovered they'd been the victim of a data breach dating back to December 2018</a>. The breach was self-submitted to HIBP and included 266k email addresses, names, genders, phone numbers and other personal information. Hashed passwords were also impacted in the breach.
 
+## Breached data
 
-['Dates of birth', 'Education levels', 'Email addresses', 'Genders', 'Geographic locations', 'Job applications', 'Marital statuses', 'Names', 'Nationalities', 'Passwords', 'Phone numbers', 'Profile photos']
+Dates of birth, Education levels, Email addresses, Genders, Geographic locations, Job applications, Marital statuses, Names, Nationalities, Passwords, Phone numbers, Profile photos
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/927.892790475514/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L29mUWhMVWlLTHpFN1pqbS9hamFybi5jb20vZmlsZQ==)
+[Ajarn breach Free Download Link](https://link-to.net/1229997/843.7657310979414/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2pDQXlJRGxJZ0d4NTVQaC9hamFybi5jb20vZmlsZQ==)
