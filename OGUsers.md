@@ -12,4 +12,4 @@ In May 2019, the account hijacking and SIM swapping forum <a href="https://krebs
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/989.1729417269022/dynamic/?r=b2d1c2Vycy5jb20=)
+[Download Link](https://link-to.net/1229997/338.63412927256655/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzdtRVQ2SWR0aFBFQzdCdC9vZ3VzZXJzLmNvbS9maWxl)
