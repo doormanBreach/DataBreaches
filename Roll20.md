@@ -12,4 +12,4 @@ In December 2018, the tabletop role-playing games website <a href="https://app.r
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/745.2933591885966/dynamic/?r=cm9sbDIwLm5ldA==)
+[Download Link](https://link-to.net/1229997/383.0168800574212/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0dxem4yTDY0NzE4TXo3dy9yb2xsMjAubmV0L2ZpbGU=)
