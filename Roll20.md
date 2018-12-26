@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Partial credit card data, Passwords
 
 ## Free download Link
 
-[Roll20 breach Free Download Link](https://link-to.net/1229997/401.41171845861766/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzhXRWFYT3Q4cFZEOEp0ci9yb2xsMjAubmV0L2ZpbGU=)
+[Roll20 breach Free Download Link](https://tinyurl.com/2b2k277t)
