@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Private messages, Usernames
 
 ## Free download Link
 
-[OGUsers breach Free Download Link](https://link-to.net/1229997/340.6513470788335/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2ZPUU40bFNyaGREN21RTS9vZ3VzZXJzLmNvbS9maWxl)
+[OGUsers breach Free Download Link](https://tinyurl.com/2b2k277t)
