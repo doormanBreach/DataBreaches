@@ -12,4 +12,4 @@ In December 2018, the Town of Salem website produced by <a href="https://blog.de
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/875.8028474481707/dynamic/?r=YmxhbmttZWRpYWdhbWVzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/895.555799457784/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0o2bWd1ck9GSXRSSjJRWi9ibGFua21lZGlhZ2FtZXMuY29tL2ZpbGU=)
