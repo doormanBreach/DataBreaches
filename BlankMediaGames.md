@@ -12,4 +12,4 @@ Browser user agent details, Email addresses, IP addresses, Passwords, Purchases,
 
 ## Free download Link
 
-[BlankMediaGames breach Free Download Link](https://link-to.net/1229997/447.99472328497427/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJIYnE2bXVEWG11Smd0Ri9ibGFua21lZGlhZ2FtZXMuY29tL2ZpbGU=)
+[BlankMediaGames breach Free Download Link](https://tinyurl.com/2b2k277t)
