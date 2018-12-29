@@ -12,4 +12,4 @@ In approximately December 2018, the online ad platform <a href="https://bannerbi
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/357.1361730715403/dynamic/?r=YmFubmVyYml0LmNvbQ==)
+[Download Link](https://link-to.net/1229997/807.4353961944101/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1NzR291Z0NmSk1aNXBvSi9iYW5uZXJiaXQuY29tL2ZpbGU=)
