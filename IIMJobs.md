@@ -12,4 +12,4 @@ In December 2018, the Indian job portal <a href="https://www.hackread.com/indian
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/285.2844735801561/dynamic/?r=aWltam9icy5jb20=)
+[Download Link](https://link-to.net/1229997/995.4865872392248/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZhUW5JaDBkYmZCbWFMOS9paW1qb2JzLmNvbS9maWxl)
