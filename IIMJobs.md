@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Geographic locations, IP addresses, Job applica
 
 ## Free download Link
 
-[IIMJobs breach Free Download Link](https://link-to.net/1229997/836.9403322698225/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2xsTFFXWHd0aUpYc3c1ay9paW1qb2JzLmNvbS9maWxl)
+[IIMJobs breach Free Download Link](https://tinyurl.com/2b2k277t)
