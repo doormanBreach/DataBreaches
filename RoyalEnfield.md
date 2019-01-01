@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Passwords, Phone numbers, Physi
 
 ## Free download Link
 
-[RoyalEnfield breach Free Download Link](https://link-to.net/1229997/995.8452061652913/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0R0OFg1UkRRanBQU0dMVi9yb3lhbGVuZmllbGQuY29tL2ZpbGU=)
+[RoyalEnfield breach Free Download Link](https://tinyurl.com/2b2k277t)
