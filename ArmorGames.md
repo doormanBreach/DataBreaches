@@ -12,4 +12,4 @@ In January 2019, the game portal website <a href="https://techraptor.net/content
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/659.5308939461826/dynamic/?r=YXJtb3JnYW1lcy5jb20=)
+[Download Link](https://link-to.net/1229997/256.53255529690045/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2xYOUlzeDR1REVNTnRNdC9hcm1vcmdhbWVzLmNvbS9maWxl)
