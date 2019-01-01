@@ -12,4 +12,4 @@ Bios, Dates of birth, Email addresses, Genders, Geographic locations, IP address
 
 ## Free download Link
 
-[ArmorGames breach Free Download Link](https://link-to.net/1229997/293.7840580529538/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2JiMElPMGJPbGw3d0xHMC9hcm1vcmdhbWVzLmNvbS9maWxl)
+[ArmorGames breach Free Download Link](https://tinyurl.com/2b2k277t)
