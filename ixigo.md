@@ -12,4 +12,4 @@ In January 2019, the travel and hotel booking site <a href="https://techcrunch.c
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/282.30340659183275/dynamic/?r=aXhpZ28uY29t)
+[Download Link](https://link-to.net/1229997/568.7862343595812/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3Lzd4QXBWR2taSVpIUTNxcS9peGlnby5jb20vZmlsZQ==)
