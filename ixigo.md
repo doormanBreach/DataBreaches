@@ -12,4 +12,4 @@ Auth tokens, Device information, Email addresses, Genders, Names, Passwords, Pho
 
 ## Free download Link
 
-[ixigo breach Free Download Link](https://link-to.net/1229997/501.85383936375206/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3FLdnhsVW9YOVl3Yk1wMy9peGlnby5jb20vZmlsZQ==)
+[ixigo breach Free Download Link](https://tinyurl.com/2b2k277t)
