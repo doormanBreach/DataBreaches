@@ -1,15 +1,15 @@
-# ixigo
+# ixigo database leak
 
 ## Description
 
-Date: 2019-01-03
+2019-01-03
 
-Description:
 In January 2019, the travel and hotel booking site <a href="https://techcrunch.com/2019/02/14/hacker-strikes-again/" target="_blank" rel="noopener">ixigo suffered a data breach</a>. The data appeared for sale on a dark web marketplace the following month and included over 17M unique email addresses alongside names, genders, phone numbers, connections to Facebook profiles and passwords stored as MD5 hashes. The data was provided to HIBP by a source who requested it to be attributed to &quot;BenjaminBlue@exploit.im&quot;.
 
+## Breached data
 
-['Auth tokens', 'Device information', 'Email addresses', 'Genders', 'Names', 'Passwords', 'Phone numbers', 'Salutations', 'Social media profiles', 'Usernames']
+Auth tokens, Device information, Email addresses, Genders, Names, Passwords, Phone numbers, Salutations, Social media profiles, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/568.7862343595812/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3Lzd4QXBWR2taSVpIUTNxcS9peGlnby5jb20vZmlsZQ==)
+[ixigo breach Free Download Link](https://link-to.net/1229997/501.85383936375206/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3FLdnhsVW9YOVl3Yk1wMy9peGlnby5jb20vZmlsZQ==)
