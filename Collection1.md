@@ -1,15 +1,15 @@
-# Collection1
+# Collection1 database leak
 
 ## Description
 
-Date: 2019-01-07
+2019-01-07
 
-Description:
 In January 2019, a large collection of credential stuffing lists (combinations of email addresses and passwords used to hijack accounts on other services) was discovered being distributed on a popular hacking forum. The data contained almost 2.7 <em>billion</em> records including 773 million unique email addresses alongside passwords those addresses had used on other breached services. Full details on the incident and how to search the breached passwords are provided in the blog post <a href="https://www.troyhunt.com/the-773-million-record-collection-1-data-reach" target="_blank" rel="noopener">The 773 Million Record "Collection #1" Data Breach</a>.
 
+## Breached data
 
-['Email addresses', 'Passwords']
+Email addresses, Passwords
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/359.4976295009582/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2t0RWZYNkROalhKdEJlMi8vZmlsZQ==)
+[Collection1 breach Free Download Link](https://link-to.net/1229997/320.06830557070566/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2RpR3UwczN6ejNRbVVKby8vZmlsZQ==)
