@@ -12,4 +12,4 @@ In January 2019, a large collection of credential stuffing lists (combinations o
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/105.84162660691976/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/359.4976295009582/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2t0RWZYNkROalhKdEJlMi8vZmlsZQ==)
