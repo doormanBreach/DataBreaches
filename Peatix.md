@@ -12,4 +12,4 @@ Email addresses, Names, Passwords
 
 ## Free download Link
 
-[Peatix breach Free Download Link](https://link-to.net/1229997/329.97558124696656/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFQSUxIQ3FBT2pqRGdrUC9wZWF0aXguY29tL2ZpbGU=)
+[Peatix breach Free Download Link](https://tinyurl.com/2b2k277t)
