@@ -12,4 +12,4 @@ In January 2019, the event organising platform <a href="https://www.zdnet.com/ar
 
 ## Links
 
-https://link-to.net/YOUR_USER/526.1307219589147/dynamic/?r=cGVhdGl4LmNvbQ==
+https://link-to.net/1229997/506.31438642258354/dynamic/?r=cGVhdGl4LmNvbQ==
