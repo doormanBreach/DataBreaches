@@ -12,4 +12,4 @@ In February 2019, <a href="https://devkitpro.org/viewtopic.php?f=13&t=8846" targ
 
 ## Links
 
-https://link-to.net/1229997/738.3475469595619/dynamic/?r=ZGV2a2l0cHJvLm9yZw==
+[Download Link](https://link-to.net/1229997/23.843482366901924/dynamic/?r=ZGV2a2l0cHJvLm9yZw==)
