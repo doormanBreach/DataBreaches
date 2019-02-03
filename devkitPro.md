@@ -12,4 +12,4 @@ Email addresses, Passwords, Private messages
 
 ## Free download Link
 
-[devkitPro breach Free Download Link](https://link-to.net/1229997/32.806303089333746/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1BoVDNkVjhUV0lIN2ltTC9kZXZraXRwcm8ub3JnL2ZpbGU=)
+[devkitPro breach Free Download Link](https://tinyurl.com/2b2k277t)
