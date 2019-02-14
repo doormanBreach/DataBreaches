@@ -12,4 +12,4 @@ Browser user agent details, Email addresses, IP addresses, Names, Physical addre
 
 ## Free download Link
 
-[LBB breach Free Download Link](https://link-to.net/1229997/460.1616449475099/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3c5QmxkVXhKQTA4eFl6Zi9sYmIuaW4vZmlsZQ==)
+[LBB breach Free Download Link](https://tinyurl.com/2b2k277t)
