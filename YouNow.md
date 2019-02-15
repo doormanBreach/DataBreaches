@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Social media profiles, Usernames
 
 ## Free download Link
 
-[YouNow breach Free Download Link](https://link-to.net/1229997/615.5673826066318/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3ZzRFhUcm91Mk1uODU1Ty95b3Vub3cuY29tL2ZpbGU=)
+[YouNow breach Free Download Link](https://tinyurl.com/2b2k277t)
