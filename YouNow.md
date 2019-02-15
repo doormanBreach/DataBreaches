@@ -12,4 +12,4 @@ In February 2019, <a href="https://techcrunch.com/2019/02/14/hacker-strikes-agai
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/461.79193670602/dynamic/?r=eW91bm93LmNvbQ==)
+[Download Link](https://link-to.net/1229997/335.1314621179059/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0dzSFQ5dmJoVGtWWWhmZS95b3Vub3cuY29tL2ZpbGU=)
