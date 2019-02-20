@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[CafePress breach Free Download Link](https://link-to.net/1229997/767.2019873571633/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1I5OHhTdzU1dlpPcEZocy9jYWZlcHJlc3MuY29tL2ZpbGU=)
+[CafePress breach Free Download Link](https://tinyurl.com/2b2k277t)
