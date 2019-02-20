@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[DemonForums breach Free Download Link](https://link-to.net/1229997/352.11205132284806/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3ZTVUxCbzJOMVJYVlhRQy9kZW1vbmZvcnVtcy5uZXQvZmlsZQ==)
+[DemonForums breach Free Download Link](https://tinyurl.com/2b2k277t)
