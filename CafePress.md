@@ -12,4 +12,4 @@ In February 2019, the custom merchandise retailer <a href="https://www.cafepress
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/544.9986061165946/dynamic/?r=Y2FmZXByZXNzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/85.33503428190403/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3lTRnhuaGZzVlg5emg0TC9jYWZlcHJlc3MuY29tL2ZpbGU=)
