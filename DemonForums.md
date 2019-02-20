@@ -12,4 +12,4 @@ In February 2019, the hacking forum <a href="https://demonforums.net/" target="_
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/90.88860062471404/dynamic/?r=ZGVtb25mb3J1bXMubmV0)
+[Download Link](https://link-to.net/1229997/942.5322621776734/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0tXdFdpZG02Sm9jQzFOOS9kZW1vbmZvcnVtcy5uZXQvZmlsZQ==)
