@@ -12,4 +12,4 @@ In February 2019, the education and game creation website <a href="https://www.z
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/96.46991332214128/dynamic/?r=Z2FtZXNhbGFkLmNvbQ==)
+[Download Link](https://link-to.net/1229997/893.3808347815547/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0RINFExZnVmS216MzhVSi9nYW1lc2FsYWQuY29tL2ZpbGU=)
