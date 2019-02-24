@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[GameSalad breach Free Download Link](https://link-to.net/1229997/88.05312773650375/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFFaEFLWTZrbUtMeGt6aS9nYW1lc2FsYWQuY29tL2ZpbGU=)
+[GameSalad breach Free Download Link](https://tinyurl.com/2b2k277t)
