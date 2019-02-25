@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Employers, Genders, Geographic locations, IP ad
 
 ## Free download Link
 
-[VerificationsIO breach Free Download Link](https://link-to.net/1229997/428.98348119659266/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0RRdkJNTko1a0ZhV3JzcC92ZXJpZmljYXRpb25zLmlvL2ZpbGU=)
+[VerificationsIO breach Free Download Link](https://tinyurl.com/2b2k277t)
