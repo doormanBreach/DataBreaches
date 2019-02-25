@@ -12,4 +12,4 @@ In February 2019, the email address validation service <a href="https://security
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/681.4093483080621/dynamic/?r=dmVyaWZpY2F0aW9ucy5pbw==)
+[Download Link](https://link-to.net/1229997/383.64601395579524/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1hJQlFGMHI4ZFRtREczeC92ZXJpZmljYXRpb25zLmlvL2ZpbGU=)
