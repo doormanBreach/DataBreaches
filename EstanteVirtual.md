@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names, Passwords, Phone numbers, Physical addre
 
 ## Free download Link
 
-[EstanteVirtual breach Free Download Link](https://link-to.net/1229997/200.49025493229544/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1hWZDFESVdxZXF5UGJuQS9lc3RhbnRldmlydHVhbC5jb20uYnIvZmlsZQ==)
+[EstanteVirtual breach Free Download Link](https://tinyurl.com/2b2k277t)
