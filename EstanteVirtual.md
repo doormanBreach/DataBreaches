@@ -12,4 +12,4 @@ In February 2019, the Brazilian book store <a href="https://www.zdnet.com/articl
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/71.5479346756498/dynamic/?r=ZXN0YW50ZXZpcnR1YWwuY29tLmJy)
+[Download Link](https://link-to.net/1229997/474.8791576206831/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1F2M2ZzSkRjcnRmbDRyaC9lc3RhbnRldmlydHVhbC5jb20uYnIvZmlsZQ==)
