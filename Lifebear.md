@@ -12,4 +12,4 @@ In early 2019, the Japanese schedule app <a href="https://www.zdnet.com/article/
 
 ## Links
 
-https://link-to.net/YOUR_USER/222.91434299050826/dynamic/?r=bGlmZWJlYXIuY29t
+https://link-to.net/YOUR_USER/597.738966169015/dynamic/?r=bGlmZWJlYXIuY29t
