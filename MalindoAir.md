@@ -12,4 +12,4 @@ In early 2019, the Malaysian airline <a href="https://vpnoverview.com/news/malin
 
 ## Links
 
-https://link-to.net/1229997/113.9099574169461/dynamic/?r=bWFsaW5kb2Fpci5jb20=
+[Download Link](https://link-to.net/1229997/706.0081398032742/dynamic/?r=bWFsaW5kb2Fpci5jb20=)
