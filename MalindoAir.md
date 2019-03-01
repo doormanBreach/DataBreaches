@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Loyalty program details, Names, Nation
 
 ## Free download Link
 
-[MalindoAir breach Free Download Link](https://link-to.net/1229997/550.8828813439881/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09McXlrZVBhYlUzWW1vOC9tYWxpbmRvYWlyLmNvbS9maWxl)
+[MalindoAir breach Free Download Link](https://tinyurl.com/2b2k277t)
