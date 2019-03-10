@@ -12,4 +12,4 @@ In March 2019, <a href="https://techcrunch.com/2019/04/02/inside-a-spam-operatio
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/122.68318719096149/dynamic/?r=aW50ZWxpbW9zdC5jb20=)
+[Download Link](https://link-to.net/1229997/302.11938845472207/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFobUhOT2hCbzJZM0xQdS9pbnRlbGltb3N0LmNvbS9maWxl)
