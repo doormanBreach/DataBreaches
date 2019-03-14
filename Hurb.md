@@ -12,4 +12,4 @@ In approximately March 2019, the online Brazilian travel agency <a href="https:/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/541.1865629654114/dynamic/?r=aHVyYi5jb20=)
+[Download Link](https://link-to.net/1229997/963.7438372852426/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzlYbzFmSGlJQWhQT0hkcC9odXJiLmNvbS9maWxl)
