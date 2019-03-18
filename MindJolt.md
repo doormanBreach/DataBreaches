@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names
 
 ## Free download Link
 
-[MindJolt breach Free Download Link](https://link-to.net/1229997/679.1314035723959/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0g1akJnRm1waGlhbGE4WS9taW5kam9sdC5jb20vZmlsZQ==)
+[MindJolt breach Free Download Link](https://tinyurl.com/2b2k277t)
