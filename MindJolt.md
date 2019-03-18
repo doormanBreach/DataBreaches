@@ -12,4 +12,4 @@ In March 2019, the online gaming website <a href="https://www.zdnet.com/article/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/89.3541260764209/dynamic/?r=bWluZGpvbHQuY29t)
+[Download Link](https://link-to.net/1229997/498.1817787819952/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RRd3JSVnpDQmptOExIUy9taW5kam9sdC5jb20vZmlsZQ==)
