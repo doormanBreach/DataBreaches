@@ -12,4 +12,4 @@ Email addresses, IP addresses, Usernames
 
 ## Free download Link
 
-[EverybodyEdits breach Free Download Link](https://link-to.net/1229997/538.846509728469/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2I1NldKOTBBalVsTlQwYi9ldmVyeWJvZHllZGl0cy5jb20vZmlsZQ==)
+[EverybodyEdits breach Free Download Link](https://tinyurl.com/2b2k277t)
