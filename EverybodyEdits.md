@@ -12,4 +12,4 @@ In March 2019, the multiplayer platform game <a href="https://everybodyedits.wor
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/362.89092558257863/dynamic/?r=ZXZlcnlib2R5ZWRpdHMuY29t)
+[Download Link](https://link-to.net/1229997/818.1897014478051/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pLSnJUd2NraWV5TEduRC9ldmVyeWJvZHllZGl0cy5jb20vZmlsZQ==)
