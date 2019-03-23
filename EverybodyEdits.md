@@ -1,15 +1,15 @@
-# EverybodyEdits
+# EverybodyEdits database leak
 
 ## Description
 
-Date: 2019-03-23
+2019-03-23
 
-Description:
 In March 2019, the multiplayer platform game <a href="https://everybodyedits.wordpress.com/2019/03/28/everybody-edits-data-security-breach/" target="_blank" rel="noopener">Everybody Edits suffered a data breach</a>. The incident exposed 871k unique email addresses alongside usernames and IP addresses. The data was subsequently distributed online across a collection of files.
 
+## Breached data
 
-['Email addresses', 'IP addresses', 'Usernames']
+Email addresses, IP addresses, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/818.1897014478051/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pLSnJUd2NraWV5TEduRC9ldmVyeWJvZHllZGl0cy5jb20vZmlsZQ==)
+[EverybodyEdits breach Free Download Link](https://link-to.net/1229997/538.846509728469/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2I1NldKOTBBalVsTlQwYi9ldmVyeWJvZHllZGl0cy5jb20vZmlsZQ==)
