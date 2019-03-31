@@ -12,4 +12,4 @@ In October 2020, the Finnish psychotherapy service <a href="https://www.wired.co
 
 ## Links
 
-https://link-to.net/YOUR_USER/940.6356764862467/dynamic/?r=dmFzdGFhbW8uZmk=
+https://link-to.net/YOUR_USER/682.3534268694871/dynamic/?r=dmFzdGFhbW8uZmk=
