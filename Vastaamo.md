@@ -12,4 +12,4 @@ Email addresses, Names, Personal health data, Social security numbers
 
 ## Free download Link
 
-[Vastaamo breach Free Download Link](https://link-to.net/1229997/174.48798591692372/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2JrSHppQ3hMNUxrc0JtNS92YXN0YWFtby5maS9maWxl)
+[Vastaamo breach Free Download Link](https://tinyurl.com/2b2k277t)
