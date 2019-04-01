@@ -12,4 +12,4 @@ Auth tokens, Email addresses, Genders, Names, Passwords, Spoken languages, Usern
 
 ## Free download Link
 
-[LuminPDF breach Free Download Link](https://link-to.net/1229997/983.2488233288128/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1hkaWF3NVg3blBLUUJGZi9sdW1pbnBkZi5jb20vZmlsZQ==)
+[LuminPDF breach Free Download Link](https://tinyurl.com/2b2k277t)
