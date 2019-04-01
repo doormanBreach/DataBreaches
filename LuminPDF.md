@@ -12,4 +12,4 @@ In April 2019, the PDF management service <a href="https://www.zdnet.com/article
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/636.7124874201061/dynamic/?r=bHVtaW5wZGYuY29t)
+[Download Link](https://link-to.net/1229997/138.99622952601663/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25uS0s2akI4Z0hDTjlLbS9sdW1pbnBkZi5jb20vZmlsZQ==)
