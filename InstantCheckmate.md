@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers
 
 ## Free download Link
 
-[InstantCheckmate breach Free Download Link](https://link-to.net/1229997/107.53784961290779/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3oxaEdSbVd2d3M5OFFXUC9pbnN0YW50Y2hlY2ttYXRlLmNvbS9maWxl)
+[InstantCheckmate breach Free Download Link](https://tinyurl.com/2b2k277t)
