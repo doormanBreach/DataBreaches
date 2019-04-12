@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers
 
 ## Free download Link
 
-[TruthFinder breach Free Download Link](https://link-to.net/1229997/741.393531638947/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0RTRkoxVmFUVVpRMkJvWi90cnV0aGZpbmRlci5jb20vZmlsZQ==)
+[TruthFinder breach Free Download Link](https://tinyurl.com/2b2k277t)
