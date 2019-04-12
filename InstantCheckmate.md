@@ -12,4 +12,4 @@ In 2019, the public records search service <a href="https://www.instantcheckmate
 
 ## Links
 
-https://link-to.net/1229997/845.3877844200349/dynamic/?r=aW5zdGFudGNoZWNrbWF0ZS5jb20=
+[Download Link](https://link-to.net/1229997/772.129544947283/dynamic/?r=aW5zdGFudGNoZWNrbWF0ZS5jb20=)
