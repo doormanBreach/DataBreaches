@@ -12,4 +12,4 @@ In 2019, the public records search service <a href="https://www.truthfinder.com/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/645.8017020206531/dynamic/?r=dHJ1dGhmaW5kZXIuY29t)
+[Download Link](https://link-to.net/1229997/74.46039321991083/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3BRTXNtQUl5VUhXMm9GRS90cnV0aGZpbmRlci5jb20vZmlsZQ==)
