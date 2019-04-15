@@ -12,4 +12,4 @@ Email addresses, Genders, Geographic locations, IP addresses, Names, Phone numbe
 
 ## Free download Link
 
-[ApexSMS breach Free Download Link](https://link-to.net/1229997/525.4328126732441/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VueHF6d21UeENlMDlzTy8vZmlsZQ==)
+[ApexSMS breach Free Download Link](https://tinyurl.com/2b2k277t)
