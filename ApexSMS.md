@@ -12,4 +12,4 @@ In May 2019, <a href="https://techcrunch.com/2019/05/09/sms-spammers-doxxed/?guc
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/736.8525784888145/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/455.05030837729277/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25kbGtSQTBlaDExeGEyZS8vZmlsZQ==)
