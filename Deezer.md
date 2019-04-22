@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Geographic locations, IP addresses, Na
 
 ## Free download Link
 
-[Deezer breach Free Download Link](https://link-to.net/1229997/562.1959561732109/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RHQ0E1a01ZT1I5bkZOcy9kZWV6ZXIuY29tL2ZpbGU=)
+[Deezer breach Free Download Link](https://tinyurl.com/2b2k277t)
