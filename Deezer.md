@@ -12,4 +12,4 @@ In late 2022, the music streaming service <a href="https://restoreprivacy.com/mu
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/681.6106995754488/dynamic/?r=ZGVlemVyLmNvbQ==)
+[Download Link](https://link-to.net/1229997/691.398067597385/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2pGcDllTDA1a0xyZlpFSS9kZWV6ZXIuY29tL2ZpbGU=)
