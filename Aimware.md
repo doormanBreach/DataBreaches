@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Private messages, Usernames, Website a
 
 ## Free download Link
 
-[Aimware breach Free Download Link](https://link-to.net/1229997/450.3237827631804/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L21QbkcyQzFnQU9sbnV5NS9haW13YXJlLm5ldC9maWxl)
+[Aimware breach Free Download Link](https://tinyurl.com/2b2k277t)
