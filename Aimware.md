@@ -12,4 +12,4 @@ In mid-2019, the video game cheats website &quot;Aimware&quot; suffered a data b
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/576.9526339440633/dynamic/?r=YWltd2FyZS5uZXQ=)
+[Download Link](https://link-to.net/1229997/934.1611317646306/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZ0SExIc0FldWtXbHMzdi9haW13YXJlLm5ldC9maWxl)
