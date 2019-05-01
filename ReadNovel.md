@@ -12,4 +12,4 @@ Email addresses, Genders, Passwords, Phone numbers, Usernames
 
 ## Free download Link
 
-[ReadNovel breach Free Download Link](https://link-to.net/1229997/296.57515890895337/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0ZXYVBUYUpub0ZRS1B5Qi9yZWFkbm92ZWwuY29tL2ZpbGU=)
+[ReadNovel breach Free Download Link](https://tinyurl.com/2b2k277t)
