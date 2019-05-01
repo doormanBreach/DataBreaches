@@ -12,4 +12,4 @@ In May 2019, the Chinese literature website <a href="https://www.readnovel.com/"
 
 ## Links
 
-https://link-to.net/1229997/855.7153113440596/dynamic/?r=cmVhZG5vdmVsLmNvbQ==
+[Download Link](https://link-to.net/1229997/574.8758232213335/dynamic/?r=cmVhZG5vdmVsLmNvbQ==)
