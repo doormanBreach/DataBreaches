@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Partial credit card data, Passw
 
 ## Free download Link
 
-[EatStreet breach Free Download Link](https://link-to.net/1229997/713.6506779527288/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3J5TkdjaDFkdkEzSndKdS9lYXRzdHJlZXQuY29tL2ZpbGU=)
+[EatStreet breach Free Download Link](https://tinyurl.com/2b2k277t)
