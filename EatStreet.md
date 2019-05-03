@@ -12,4 +12,4 @@ In May 2019, the online food ordering service <a href="https://www.zdnet.com/art
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/847.6677545124898/dynamic/?r=ZWF0c3RyZWV0LmNvbQ==)
+[Download Link](https://link-to.net/1229997/919.1190902577637/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzcweDREc0ZFbENLSWtmUC9lYXRzdHJlZXQuY29tL2ZpbGU=)
