@@ -1,15 +1,15 @@
-# OrdineAvvocatiDiRoma
+# OrdineAvvocatiDiRoma database leak
 
 ## Description
 
-Date: 2019-05-07
+2019-05-07
 
-Description:
 In May 2019, <a href="https://roma.repubblica.it/cronaca/2019/05/07/news/roma_anonymus_viola_la_mail_di_30mila_avvocati_c_e_anche_quella_di_raggi-225675248/" target="_blank" rel="noopener">the Lawyers Order of Rome suffered a data breach by a group claiming to be Anonymous Italy</a>. Data on tens of thousands of Roman lawyers was taken from the breached system and redistributed online. The data included contact information, email addresses and email messages themselves encompassing tens of thousands of unique email addresses. A total of 42k unique addresses appeared in the breach.
 
+## Breached data
 
-['Email addresses', 'Email messages', 'Geographic locations', 'Passwords', 'Phone numbers']
+Email addresses, Email messages, Geographic locations, Passwords, Phone numbers
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/27.21377431880989/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1NmNXdZbjdIWTVVczlXMy9vcmRpbmVhdnZvY2F0aXJvbWEuaXQvZmlsZQ==)
+[OrdineAvvocatiDiRoma breach Free Download Link](https://link-to.net/1229997/788.8705728116626/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0RqSGlIZktsdXNYQjFWaC9vcmRpbmVhdnZvY2F0aXJvbWEuaXQvZmlsZQ==)
