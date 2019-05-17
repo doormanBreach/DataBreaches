@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Minehut breach Free Download Link](https://link-to.net/1229997/366.7270290670358/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2JTQjJzNXY1MEs5TjZ5QS9taW5laHV0LmNvbS9maWxl)
+[Minehut breach Free Download Link](https://tinyurl.com/2b2k277t)
