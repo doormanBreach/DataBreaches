@@ -12,4 +12,4 @@ In May 2019, the Minecraft server website <a href="https://minehut.com/" target=
 
 ## Links
 
-https://link-to.net/1229997/227.29935003209778/dynamic/?r=bWluZWh1dC5jb20=
+[Download Link](https://link-to.net/1229997/659.3032127926252/dynamic/?r=bWluZWh1dC5jb20=)
