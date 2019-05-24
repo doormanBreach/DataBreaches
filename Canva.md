@@ -12,4 +12,4 @@ Email addresses, Geographic locations, Names, Passwords, Usernames
 
 ## Free download Link
 
-[Canva breach Free Download Link](https://link-to.net/1229997/233.3025518082089/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3dZUWlSdnFuNER1VjlraC9jYW52YS5jb20vZmlsZQ==)
+[Canva breach Free Download Link](https://tinyurl.com/2b2k277t)
