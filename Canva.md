@@ -12,4 +12,4 @@ In May 2019, the graphic design tool website <a href="https://support.canva.com/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/959.1393208935361/dynamic/?r=Y2FudmEuY29t)
+[Download Link](https://link-to.net/1229997/476.1235136352252/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L281QWl0eUlWcFV3cVFCYy9jYW52YS5jb20vZmlsZQ==)
