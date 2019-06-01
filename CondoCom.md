@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[CondoCom breach Free Download Link](https://link-to.net/1229997/177.11451996955506/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0ExSUZVYTZVN3JrVmtYOS9jb25kby5jb20vZmlsZQ==)
+[CondoCom breach Free Download Link](https://tinyurl.com/2b2k277t)
