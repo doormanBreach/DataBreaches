@@ -12,4 +12,4 @@ In June 2019, now defunct website Condo.com suffered a data breach <a href="http
 
 ## Links
 
-https://link-to.net/1229997/172.67352622331666/dynamic/?r=Y29uZG8uY29t
+[Download Link](https://link-to.net/1229997/942.3856401155251/dynamic/?r=Y29uZG8uY29t)
