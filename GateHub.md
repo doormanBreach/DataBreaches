@@ -12,4 +12,4 @@ In October 2019, <a href="https://arstechnica.com/information-technology/2019/11
 
 ## Links
 
-https://link-to.net/1229997/848.4354103471495/dynamic/?r=Z2F0ZWh1Yi5uZXQ=
+[Download Link](https://link-to.net/1229997/16.52223825625199/dynamic/?r=Z2F0ZWh1Yi5uZXQ=)
