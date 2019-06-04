@@ -12,4 +12,4 @@ Email addresses, Encrypted keys, Mnemonic phrases, Passwords
 
 ## Free download Link
 
-[GateHub breach Free Download Link](https://link-to.net/1229997/868.3011225196101/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0swdEQwUDVjRmxtZUhHQi9nYXRlaHViLm5ldC9maWxl)
+[GateHub breach Free Download Link](https://tinyurl.com/2b2k277t)
