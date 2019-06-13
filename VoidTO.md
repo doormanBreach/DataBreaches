@@ -12,4 +12,4 @@ In June 2019, the hacking website <a href="https://void.to/" target="_blank" rel
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/834.6998644789859/dynamic/?r=dm9pZC50bw==)
+[Download Link](https://link-to.net/1229997/679.4137653008123/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3RveXhFQlg1S1NLTWV1dy92b2lkLnRvL2ZpbGU=)
