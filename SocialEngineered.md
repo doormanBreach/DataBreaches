@@ -12,4 +12,4 @@ In June 2019, the &quot;Art of Human Hacking&quot; site <a href="https://sociale
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/312.2145310064078/dynamic/?r=c29jaWFsZW5naW5lZXJlZC5uZXQ=)
+[Download Link](https://link-to.net/1229997/702.4516709734547/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0xiZW9SdjJjbENiVkhKUi9zb2NpYWxlbmdpbmVlcmVkLm5ldC9maWxl)
