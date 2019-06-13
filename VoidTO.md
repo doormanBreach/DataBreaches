@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Private messages, Usernames
 
 ## Free download Link
 
-[VoidTO breach Free Download Link](https://link-to.net/1229997/747.4133154992674/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0Rac0xnc2FxUWUxWUpReC92b2lkLnRvL2ZpbGU=)
+[VoidTO breach Free Download Link](https://tinyurl.com/2b2k277t)
