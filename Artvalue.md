@@ -12,4 +12,4 @@ In June 2019, the France-based art valuation website <a href="http://artvalue.co
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/384.54674239615105/dynamic/?r=YXJ0dmFsdWUuY29t)
+[Download Link](https://link-to.net/1229997/120.20796689627167/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01IMTJzaVlkSVVpeUZlUi9hcnR2YWx1ZS5jb20vZmlsZQ==)
