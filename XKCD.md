@@ -12,4 +12,4 @@ In July 2019, <a href="https://forums.xkcd.com/" target="_blank" rel="noopener">
 
 ## Links
 
-https://link-to.net/YOUR_USER/407.8876278574375/dynamic/?r=eGtjZC5jb20=
+https://link-to.net/YOUR_USER/100.69527105622899/dynamic/?r=eGtjZC5jb20=
