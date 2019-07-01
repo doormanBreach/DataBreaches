@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Quidd breach Free Download Link](https://link-to.net/1229997/521.1689837705652/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0MybFJZMGwzcEt1WUNQNi9xdWlkZC5jby9maWxl)
+[Quidd breach Free Download Link](https://tinyurl.com/2b2k277t)
