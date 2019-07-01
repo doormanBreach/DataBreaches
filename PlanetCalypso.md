@@ -12,4 +12,4 @@ In approximately July 2019, <a href="http://www.planetcalypsoforum.com/forums/sh
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/323.60091912516896/dynamic/?r=cGxhbmV0Y2FseXBzb2ZvcnVtLmNvbQ==)
+[Download Link](https://link-to.net/1229997/273.51280655866674/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2tDRmFNbHhCeWxRbHJTMi9wbGFuZXRjYWx5cHNvZm9ydW0uY29tL2ZpbGU=)
