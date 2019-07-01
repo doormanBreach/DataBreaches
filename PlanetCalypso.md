@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[PlanetCalypso breach Free Download Link](https://link-to.net/1229997/28.973376224809556/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1JvQmZGdkcwTmZ4QzlkZi9wbGFuZXRjYWx5cHNvZm9ydW0uY29tL2ZpbGU=)
+[PlanetCalypso breach Free Download Link](https://tinyurl.com/2b2k277t)
