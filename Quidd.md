@@ -12,4 +12,4 @@ In 2019, online marketplace for trading stickers, cards, toys, and other collect
 
 ## Links
 
-https://link-to.net/YOUR_USER/506.78547820833273/dynamic/?r=cXVpZGQuY28=
+https://link-to.net/YOUR_USER/922.7665492964976/dynamic/?r=cXVpZGQuY28=
