@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[XKCD breach Free Download Link](https://link-to.net/1229997/833.6429412230198/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1VYYkg3a3ZVNWlMMHNlYS94a2NkLmNvbS9maWxl)
+[XKCD breach Free Download Link](https://tinyurl.com/2b2k277t)
