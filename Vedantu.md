@@ -12,4 +12,4 @@ In mid-2019, the Indian interactive online tutoring platform <a href="https://ww
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/516.6092085104879/dynamic/?r=dmVkYW50dS5jb20=)
+[Download Link](https://link-to.net/1229997/661.3341083730211/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzNZQ3JhVHdDbjFDajlTRi92ZWRhbnR1LmNvbS9maWxl)
