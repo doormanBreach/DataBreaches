@@ -12,4 +12,4 @@ Browser user agent details, Email addresses, Genders, IP addresses, Names, Passw
 
 ## Free download Link
 
-[Vedantu breach Free Download Link](https://link-to.net/1229997/193.2748297395096/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3RNZWJoY2E1Z0s0WXZzcC92ZWRhbnR1LmNvbS9maWxl)
+[Vedantu breach Free Download Link](https://tinyurl.com/2b2k277t)
