@@ -12,4 +12,4 @@ In July 2019, the hacking website <a href="https://blackspigot.com/" target="_bl
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/475.3357179335645/dynamic/?r=YmxhY2tzcGlnb3QuY29t)
+[Download Link](https://link-to.net/1229997/776.1422385002924/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VCUWNiSDF3R25JTzd6ay9ibGFja3NwaWdvdC5jb20vZmlsZQ==)
