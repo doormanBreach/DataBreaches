@@ -12,4 +12,4 @@ Device information, Email addresses, Genders, Geographic locations, IP addresses
 
 ## Free download Link
 
-[BlackSpigotMC breach Free Download Link](https://link-to.net/1229997/2.6048467127026687/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZvVWFFNUlXdnNycmlsOC9ibGFja3NwaWdvdC5jb20vZmlsZQ==)
+[BlackSpigotMC breach Free Download Link](https://tinyurl.com/2b2k277t)
