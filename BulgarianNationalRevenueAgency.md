@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses, Taxation records
 
 ## Free download Link
 
-[BulgarianNationalRevenueAgency breach Free Download Link](https://link-to.net/1229997/423.0912703670525/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3FyY1BZZXdkWlFvQXNQai9uYXAuYmcvZmlsZQ==)
+[BulgarianNationalRevenueAgency breach Free Download Link](https://tinyurl.com/2b2k277t)
