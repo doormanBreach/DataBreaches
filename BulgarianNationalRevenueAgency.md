@@ -12,4 +12,4 @@ In July 2019, <a href="https://thenextweb.com/security/2019/07/16/bulgaria-tax-a
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/544.7561025749553/dynamic/?r=bmFwLmJn)
+[Download Link](https://link-to.net/1229997/845.7653550692668/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VKSmZkMk5QY0tXcU1zTy9uYXAuYmcvZmlsZQ==)
