@@ -12,4 +12,4 @@ In July 2019, the music-based rhythm game <a href="http://www.flashflashrevoluti
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/781.2952468340864/dynamic/?r=Zmxhc2hmbGFzaHJldm9sdXRpb24uY29t)
+[Download Link](https://link-to.net/1229997/217.53841026479037/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1o4WFlnQ2NDTTdlZjRWbS9mbGFzaGZsYXNocmV2b2x1dGlvbi5jb20vZmlsZQ==)
