@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[FlashFlashRevolution2019 breach Free Download Link](https://link-to.net/1229997/744.8071364496617/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2pTdkxqeTU2MGZ5anRFNC9mbGFzaGZsYXNocmV2b2x1dGlvbi5jb20vZmlsZQ==)
+[FlashFlashRevolution2019 breach Free Download Link](https://tinyurl.com/2b2k277t)
