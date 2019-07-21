@@ -12,4 +12,4 @@ In July 2019, the hacking website <a href="https://cracked.to" target="_blank" r
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/117.94527547495592/dynamic/?r=Y3JhY2tlZC50bw==)
+[Download Link](https://link-to.net/1229997/990.1064312700832/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25DUHA2SEJVUTVUVm42di9jcmFja2VkLnRvL2ZpbGU=)
