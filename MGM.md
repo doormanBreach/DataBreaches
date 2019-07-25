@@ -12,4 +12,4 @@ In July 2019, <a href="https://www.zdnet.com/article/exclusive-details-of-10-6-m
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/641.3565531077902/dynamic/?r=bWdtcmVzb3J0cy5jb20=)
+[Download Link](https://link-to.net/1229997/291.4371435505639/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L291MFhFMU9jeGZaU1l0Si9tZ21yZXNvcnRzLmNvbS9maWxl)
