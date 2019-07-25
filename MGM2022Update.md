@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[MGM2022Update breach Free Download Link](https://link-to.net/1229997/234.85699397667625/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzdweElpSTVFQUpKbGZkay9tZ21yZXNvcnRzLmNvbS9maWxl)
+[MGM2022Update breach Free Download Link](https://tinyurl.com/2b2k277t)
