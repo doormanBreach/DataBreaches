@@ -12,4 +12,4 @@ In July 2019, the fashion and sneaker trading platform <a href="https://stockx.c
 
 ## Links
 
-https://link-to.net/YOUR_USER/135.93745190220318/dynamic/?r=c3RvY2t4LmNvbQ==
+https://link-to.net/YOUR_USER/527.2084178631658/dynamic/?r=c3RvY2t4LmNvbQ==
