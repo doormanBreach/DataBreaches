@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Physical addresses, Purchases, Usernames
 
 ## Free download Link
 
-[StockX breach Free Download Link](https://link-to.net/1229997/750.0927145342765/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3JmR0s2QTF2MHRSNk1BdS9zdG9ja3guY29tL2ZpbGU=)
+[StockX breach Free Download Link](https://tinyurl.com/2b2k277t)
