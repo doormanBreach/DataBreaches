@@ -12,4 +12,4 @@ In July 2019, the children's gaming site <a href="https://community.cprewritten.
 
 ## Links
 
-https://link-to.net/1229997/9.245119719743066/dynamic/?r=Y3ByZXdyaXR0ZW4ubmV0
+[Download Link](https://link-to.net/1229997/355.5354427060472/dynamic/?r=Y3ByZXdyaXR0ZW4ubmV0)
