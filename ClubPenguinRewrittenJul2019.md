@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[ClubPenguinRewrittenJul2019 breach Free Download Link](https://link-to.net/1229997/2.256769054941432/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzVVWFFGc2lTYmRiWUdMWS9jcHJld3JpdHRlbi5uZXQvZmlsZQ==)
+[ClubPenguinRewrittenJul2019 breach Free Download Link](https://tinyurl.com/2b2k277t)
