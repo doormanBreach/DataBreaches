@@ -1,15 +1,15 @@
-# ClubPenguinRewrittenJul2019
+# ClubPenguinRewrittenJul2019 database leak
 
 ## Description
 
-Date: 2019-07-27
+2019-07-27
 
-Description:
 In July 2019, the children's gaming site <a href="https://community.cprewritten.net/" target="_blank" rel="noopener">Club Penguin Rewritten</a> (CPRewritten) suffered a data breach (note: CPRewritten is an independent recreation of Disney's Club Penguin game). In addition to an earlier data breach that impacted 1.7 million accounts, the subsequent breach exposed 4 million unique email addresses alongside IP addresses, usernames and passwords stored as bcrypt hashes.
 
+## Breached data
 
-['Email addresses', 'IP addresses', 'Passwords', 'Usernames']
+Email addresses, IP addresses, Passwords, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/462.916274632983/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2Z1blBhelNpSmxndHJVSS9jcHJld3JpdHRlbi5uZXQvZmlsZQ==)
+[ClubPenguinRewrittenJul2019 breach Free Download Link](https://link-to.net/1229997/2.256769054941432/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzVVWFFGc2lTYmRiWUdMWS9jcHJld3JpdHRlbi5uZXQvZmlsZQ==)
