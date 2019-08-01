@@ -12,4 +12,4 @@ In April 2021, <a href="https://www.bleepingcomputer.com/news/security/533-milli
 
 ## Links
 
-https://link-to.net/1229997/827.8001478207186/dynamic/?r=ZmFjZWJvb2suY29t
+[Download Link](https://link-to.net/1229997/240.34590407346013/dynamic/?r=ZmFjZWJvb2suY29t)
