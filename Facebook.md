@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Employers, Genders, Geographic locations, Names
 
 ## Free download Link
 
-[Facebook breach Free Download Link](https://link-to.net/1229997/625.6954166625642/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2t3RzZhSU9PdXI3SXJ1Sy9mYWNlYm9vay5jb20vZmlsZQ==)
+[Facebook breach Free Download Link](https://tinyurl.com/2b2k277t)
