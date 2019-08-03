@@ -12,4 +12,4 @@ In August 2019, <a href="https://www.zdnet.com/article/data-of-21-million-mixclo
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/399.0284718475715/dynamic/?r=cHJvbW9mYXJtYS5jb20=)
+[Download Link](https://link-to.net/1229997/758.5583781343596/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1Nia1VTSFVqWVRMTmk1eC9wcm9tb2Zhcm1hLmNvbS9maWxl)
