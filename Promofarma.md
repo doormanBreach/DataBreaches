@@ -12,4 +12,4 @@ Email addresses, Names
 
 ## Free download Link
 
-[Promofarma breach Free Download Link](https://link-to.net/1229997/659.285687718847/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZTWXJNYjF0WmZFNk9XSi9wcm9tb2Zhcm1hLmNvbS9maWxl)
+[Promofarma breach Free Download Link](https://tinyurl.com/2b2k277t)
