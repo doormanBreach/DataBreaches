@@ -12,4 +12,4 @@ In August 2019, the now defunct European jobs website <a href="https://webcache.
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/782.1252695006264/dynamic/?r=ZXVyb3BhLmpvYnM=)
+[Download Link](https://link-to.net/1229997/803.447843541981/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2dhSHdrYWt5UWxQNzBMbS9ldXJvcGEuam9icy9maWxl)
