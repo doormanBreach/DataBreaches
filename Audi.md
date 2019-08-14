@@ -1,15 +1,15 @@
-# Audi
+# Audi database leak
 
 ## Description
 
-Date: 2019-08-14
+2019-08-14
 
-Description:
 In August 2019, <a href="https://techcrunch.com/2021/06/11/volkswagen-says-a-vendors-security-lapse-exposed-3-3-million-drivers-details/" target="_blank" rel="noopener">Audi USA suffered a data breach after a vendor left data unsecured and exposed on the internet</a>. The data contained 2.7M unique email addresses along with names, phone numbers, physical addresses and vehicle information including VIN. In <a href="https://techcrunch.com/2021/06/11/volkswagen-says-a-vendors-security-lapse-exposed-3-3-million-drivers-details/" target="_blank" rel="noopener">a disclosure statement from Audi</a>, they also advised some customers had driver's licenses, dates of birth, social security numbers and other personal information exposed.
 
+## Breached data
 
-['Dates of birth', "Driver's licenses", 'Email addresses', 'Names', 'Phone numbers', 'Physical addresses', 'Social security numbers', 'Vehicle details']
+Dates of birth, Driver's licenses, Email addresses, Names, Phone numbers, Physical addresses, Social security numbers, Vehicle details
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/926.4964314794788/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2FBWDlWRUlFSG5YaU9kZS9hdWRpdXNhLmNvbS9maWxl)
+[Audi breach Free Download Link](https://link-to.net/1229997/618.9074272101806/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzI5bHV4ZXRjWUpuOXdXNi9hdWRpdXNhLmNvbS9maWxl)
