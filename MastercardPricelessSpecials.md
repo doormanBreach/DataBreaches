@@ -12,4 +12,4 @@ In August 2019, <a href="https://www.spiegel.de/netzwelt/web/mastercard-datenlec
 
 ## Links
 
-https://link-to.net/1229997/861.5406446045242/dynamic/?r=c3BlY2lhbHMubWFzdGVyY2FyZC5kZQ==
+[Download Link](https://link-to.net/1229997/894.9351836718074/dynamic/?r=c3BlY2lhbHMubWFzdGVyY2FyZC5kZQ==)
