@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Partial credit card data, Phone numbers, S
 
 ## Free download Link
 
-[MastercardPricelessSpecials breach Free Download Link](https://link-to.net/1229997/452.34895788349326/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1NDZjlRUjVLQnVobjdnNy9zcGVjaWFscy5tYXN0ZXJjYXJkLmRlL2ZpbGU=)
+[MastercardPricelessSpecials breach Free Download Link](https://tinyurl.com/2b2k277t)
