@@ -12,4 +12,4 @@ In August 2019, the comic strip creation website <a href="https://www.zataz.com/
 
 ## Links
 
-https://link-to.net/1229997/702.9212533833147/dynamic/?r=dG9vbmRvby5jb20=
+[Download Link](https://link-to.net/1229997/396.9863999787414/dynamic/?r=dG9vbmRvby5jb20=)
