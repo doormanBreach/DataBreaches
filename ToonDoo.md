@@ -12,4 +12,4 @@ Email addresses, Genders, Geographic locations, IP addresses, Passwords, Usernam
 
 ## Free download Link
 
-[ToonDoo breach Free Download Link](https://link-to.net/1229997/391.04450137838955/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2lPQ2k3Nk82UEhQV2dtZi90b29uZG9vLmNvbS9maWxl)
+[ToonDoo breach Free Download Link](https://tinyurl.com/2b2k277t)
