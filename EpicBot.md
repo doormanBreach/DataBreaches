@@ -12,4 +12,4 @@ In September 2019, the RuneScape bot provider <a href="https://arstechnica.com/i
 
 ## Links
 
-https://link-to.net/1229997/361.2859232250389/dynamic/?r=ZXBpY2JvdC5jb20=
+[Download Link](https://link-to.net/1229997/673.0452299880365/dynamic/?r=ZXBpY2JvdC5jb20=)
