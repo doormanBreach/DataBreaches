@@ -12,4 +12,4 @@ In September 2019, game developer <a href="https://www.cnet.com/news/words-with-
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/278.51892320696425/dynamic/?r=enluZ2EuY29t)
+[Download Link](https://link-to.net/1229997/651.2791319159613/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3hJd2NSN3pKNTNZbXZZYy96eW5nYS5jb20vZmlsZQ==)
