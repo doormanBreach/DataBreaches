@@ -12,4 +12,4 @@ Email addresses, Passwords, Phone numbers, Usernames
 
 ## Free download Link
 
-[Zynga breach Free Download Link](https://link-to.net/1229997/823.6314591250508/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0F0VUE4UjN2azJGRFVkRy96eW5nYS5jb20vZmlsZQ==)
+[Zynga breach Free Download Link](https://tinyurl.com/2b2k277t)
