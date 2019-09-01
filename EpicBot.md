@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[EpicBot breach Free Download Link](https://link-to.net/1229997/67.31181513983886/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0FDSmNNV1huNWN0aGYzQy9lcGljYm90LmNvbS9maWxl)
+[EpicBot breach Free Download Link](https://tinyurl.com/2b2k277t)
