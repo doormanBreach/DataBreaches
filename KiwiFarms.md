@@ -12,4 +12,4 @@ In September 2019, the forum for discussing &quot;lolcows&quot; (people who can 
 
 ## Links
 
-https://link-to.net/1229997/327.05815111710166/dynamic/?r=a2l3aWZhcm1zLm5ldA==
+[Download Link](https://link-to.net/1229997/284.4992695071992/dynamic/?r=a2l3aWZhcm1zLm5ldA==)
