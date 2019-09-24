@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[AgusiQTorrents breach Free Download Link](https://link-to.net/1229997/943.7926502036078/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2NibDR5R1hmWThRVGZOQi9hZ3VzaXEtdG9ycmVudHMucGwvZmlsZQ==)
+[AgusiQTorrents breach Free Download Link](https://tinyurl.com/2b2k277t)
