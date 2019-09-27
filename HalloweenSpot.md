@@ -12,4 +12,4 @@ In September 2019, the Halloween costume store <a href="https://www.thehalloween
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/566.5312088740637/dynamic/?r=dGhlaGFsbG93ZWVuc3BvdC5jb20=)
+[Download Link](https://link-to.net/1229997/361.0216461972561/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3N5UU1ZclNLeE93b3lLZC90aGVoYWxsb3dlZW5zcG90LmNvbS9maWxl)
