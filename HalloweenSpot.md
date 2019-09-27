@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Phone numbers, Physical addresses, Purchas
 
 ## Free download Link
 
-[HalloweenSpot breach Free Download Link](https://link-to.net/1229997/922.5478917956592/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L28wVTN1OU92N003TmRKZC90aGVoYWxsb3dlZW5zcG90LmNvbS9maWxl)
+[HalloweenSpot breach Free Download Link](https://tinyurl.com/2b2k277t)
