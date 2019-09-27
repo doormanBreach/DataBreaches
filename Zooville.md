@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Zooville breach Free Download Link](https://link-to.net/1229997/451.0366901498437/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1BmbTRxYkRDaHJUQ0lWMS96b292aWxsZS5vcmcvZmlsZQ==)
+[Zooville breach Free Download Link](https://tinyurl.com/2b2k277t)
