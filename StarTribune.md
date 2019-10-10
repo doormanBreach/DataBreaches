@@ -1,15 +1,15 @@
-# StarTribune
+# StarTribune database leak
 
 ## Description
 
-Date: 2019-10-10
+2019-10-10
 
-Description:
 In October 2019, the Minnesota-based news service <a href="https://www.startribune.com/hacker-group-claims-to-have-stolen-star-tribune-user-information/570384542/" target="_blank" rel="noopener">StarTribune suffered a data breach</a> which was subsequently sold on the dark web. The breach exposed over 2 million unique email addresses alongside names, usernames, physical addresses, dates of birth, genders and passwords stored as bcrypt hashes. The data was provided to HIBP by <a href="https://dehashed.com/" target="_blank" rel="noopener">dehashed.com</a>.
 
+## Breached data
 
-['Dates of birth', 'Email addresses', 'Genders', 'Names', 'Passwords', 'Physical addresses', 'Usernames']
+Dates of birth, Email addresses, Genders, Names, Passwords, Physical addresses, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/502.61379415906237/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0wxdWFSSVFwV0V2eGNkVi9zdGFydHJpYnVuZS5jb20vZmlsZQ==)
+[StarTribune breach Free Download Link](https://link-to.net/1229997/399.45197665699015/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1lpUTVnMDQ2bnJXTUFrei9zdGFydHJpYnVuZS5jb20vZmlsZQ==)
