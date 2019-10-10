@@ -12,4 +12,4 @@ In October 2019, the Minnesota-based news service <a href="https://www.startribu
 
 ## Links
 
-https://link-to.net/1229997/364.2491505799433/dynamic/?r=c3RhcnRyaWJ1bmUuY29t
+[Download Link](https://link-to.net/1229997/388.87302569953044/dynamic/?r=c3RhcnRyaWJ1bmUuY29t)
