@@ -12,4 +12,4 @@ In October 2019, the Dutch prostitution forum <a href="https://www.forbes.com/si
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/267.88205648482165/dynamic/?r=aG9va2Vycy5ubA==)
+[Download Link](https://link-to.net/1229997/924.522518043494/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L204TUdrZ3Jnc3JxckhqYy9ob29rZXJzLm5sL2ZpbGU=)
