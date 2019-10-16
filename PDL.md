@@ -12,4 +12,4 @@ Email addresses, Employers, Geographic locations, Job titles, Names, Phone numbe
 
 ## Free download Link
 
-[PDL breach Free Download Link](https://link-to.net/1229997/492.605621358857/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01LU1BMbmVqUG9pOVBIRS8vZmlsZQ==)
+[PDL breach Free Download Link](https://tinyurl.com/2b2k277t)
