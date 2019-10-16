@@ -1,15 +1,15 @@
-# PDL
+# PDL database leak
 
 ## Description
 
-Date: 2019-10-16
+2019-10-16
 
-Description:
 In October 2019, <a href="https://www.troyhunt.com/data-enrichment-people-data-labs-and-another-622m-email-addresses" target="_blank" rel="noopener">security researchers Vinny Troia and Bob Diachenko identified an unprotected Elasticsearch server holding 1.2 billion records of personal data</a>. The exposed data included an index indicating it was sourced from data enrichment company People Data Labs (PDL) and contained 622 million unique email addresses. The server was not owned by PDL and it's believed a customer failed to properly secure the database. Exposed information included email addresses, phone numbers, social media profiles and job history data.
 
+## Breached data
 
-['Email addresses', 'Employers', 'Geographic locations', 'Job titles', 'Names', 'Phone numbers', 'Social media profiles']
+Email addresses, Employers, Geographic locations, Job titles, Names, Phone numbers, Social media profiles
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/432.9403656575609/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3JYUUppVHVBcUZCMjBpZi8vZmlsZQ==)
+[PDL breach Free Download Link](https://link-to.net/1229997/492.605621358857/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01LU1BMbmVqUG9pOVBIRS8vZmlsZQ==)
