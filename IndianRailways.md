@@ -12,4 +12,4 @@ In November 2019, <a href="https://medium.com/dvuln/why-you-should-choo-choo-cho
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/250.2107752160554/dynamic/?r=aW5kaWFucmFpbHMuaW4=)
+[Download Link](https://link-to.net/1229997/231.85392935010242/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0tVM2xqSnM0N2VrNlF4Yy9pbmRpYW5yYWlscy5pbi9maWxl)
