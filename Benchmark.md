@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Benchmark breach Free Download Link](https://link-to.net/1229997/122.770139645468/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2UwUVVYWHduWVp3M3dCOS9iZW5jaG1hcmsucnMvZmlsZQ==)
+[Benchmark breach Free Download Link](https://tinyurl.com/2b2k277t)
