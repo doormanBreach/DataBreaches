@@ -12,4 +12,4 @@ In approximately November 2019, the Russian &quot;Remote preparatory faculty for
 
 ## Links
 
-https://link-to.net/1229997/269.93886098569453/dynamic/?r=dW5pdmVyc2FyaXVtLm9yZw==
+[Download Link](https://link-to.net/1229997/78.76930016181227/dynamic/?r=dW5pdmVyc2FyaXVtLm9yZw==)
