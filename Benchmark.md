@@ -12,4 +12,4 @@ In November 2019, the Serbian technology news website <a href="https://forum.ben
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/332.1353964586704/dynamic/?r=YmVuY2htYXJrLnJz)
+[Download Link](https://link-to.net/1229997/302.61650573124064/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFrbzNhWDk3WFpSb2pJVy9iZW5jaG1hcmsucnMvZmlsZQ==)
