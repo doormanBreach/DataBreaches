@@ -12,4 +12,4 @@ Device information, Email addresses, Genders, Geographic locations, IP addresses
 
 ## Free download Link
 
-[IndiHome breach Free Download Link](https://link-to.net/1229997/299.38818703374693/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2dUSzRtY3l3Tk5UelU2UC9pbmRpaG9tZS5jby5pZC9maWxl)
+[IndiHome breach Free Download Link](https://tinyurl.com/2b2k277t)
