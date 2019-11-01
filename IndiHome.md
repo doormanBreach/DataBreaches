@@ -12,4 +12,4 @@ In mid-2021, <a href="https://en.antaranews.com/news/245609/communication-minist
 
 ## Links
 
-https://link-to.net/1229997/407.4041509647928/dynamic/?r=aW5kaWhvbWUuY28uaWQ=
+[Download Link](https://link-to.net/1229997/838.5648040143673/dynamic/?r=aW5kaWhvbWUuY28uaWQ=)
