@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Universarium breach Free Download Link](https://link-to.net/1229997/125.33565780208389/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzdENTMyVUY3SHVuc1pvMy91bml2ZXJzYXJpdW0ub3JnL2ZpbGU=)
+[Universarium breach Free Download Link](https://tinyurl.com/2b2k277t)
