@@ -12,4 +12,4 @@ In November 2019, the Vietnamese education website <a href="https://tailieu.vn/"
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/662.4781597873682/dynamic/?r=dGFpbGlldS52bg==)
+[Download Link](https://link-to.net/1229997/621.5993203977037/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L005VkpITlhha3R3MlZWTS90YWlsaWV1LnZuL2ZpbGU=)
