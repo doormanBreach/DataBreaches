@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Geographic locations, Names, Passwords
 
 ## Free download Link
 
-[TaiLieu breach Free Download Link](https://link-to.net/1229997/167.0438392888245/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFwZ0VtRzE0NGo2UlFvay90YWlsaWV1LnZuL2ZpbGU=)
+[TaiLieu breach Free Download Link](https://tinyurl.com/2b2k277t)
