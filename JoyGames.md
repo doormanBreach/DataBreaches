@@ -12,4 +12,4 @@ In December 2019, the forum for the JoyGames website suffered a data breach that
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/5.348566900514662/dynamic/?r=am95Z2FtZXMubWU=)
+[Download Link](https://link-to.net/1229997/791.802255427037/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3FaQ0gwVXZmSjd3d2huRy9qb3lnYW1lcy5tZS9maWxl)
