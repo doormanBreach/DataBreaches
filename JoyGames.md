@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[JoyGames breach Free Download Link](https://link-to.net/1229997/962.8358378161789/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2lUU0gxMUtWZkdWT1pKQi9qb3lnYW1lcy5tZS9maWxl)
+[JoyGames breach Free Download Link](https://tinyurl.com/2b2k277t)
