@@ -12,4 +12,4 @@ In December 2019, the now defunct gaming website SoarGames suffered a data breac
 
 ## Links
 
-https://link-to.net/1229997/818.30789748222/dynamic/?r=c29hcmdhbWVzLmNvbQ==
+[Download Link](https://link-to.net/1229997/90.1957681866199/dynamic/?r=c29hcmdhbWVzLmNvbQ==)
