@@ -12,4 +12,4 @@ In approximately December 2019, an alleged data breach of the lawyer directory s
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/377.9989598091175/dynamic/?r=YXZ2by5jb20=)
+[Download Link](https://link-to.net/1229997/368.99223769086234/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2x2MnU2ZGF2UFZteGJIdC9hdnZvLmNvbS9maWxl)
