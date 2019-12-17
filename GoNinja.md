@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[GoNinja breach Free Download Link](https://link-to.net/1229997/977.7191804577694/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L05vdWdvU2pDT2xDYTl2cS9nb25pbmphLmRlL2ZpbGU=)
+[GoNinja breach Free Download Link](https://tinyurl.com/2b2k277t)
