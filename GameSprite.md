@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[GameSprite breach Free Download Link](https://link-to.net/1229997/151.11564346936746/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzlubDJsQzlqN0RNUnh5SC9nYW1lc3ByaXRlLm1lL2ZpbGU=)
+[GameSprite breach Free Download Link](https://tinyurl.com/2b2k277t)
