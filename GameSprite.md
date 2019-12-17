@@ -12,4 +12,4 @@ In December 2019, the now defunct gaming platform <a href="https://gamesprite.me
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/569.6490284231719/dynamic/?r=Z2FtZXNwcml0ZS5tZQ==)
+[Download Link](https://link-to.net/1229997/842.9791886343107/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3pSN09QaXFubjRxandveS9nYW1lc3ByaXRlLm1lL2ZpbGU=)
