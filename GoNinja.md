@@ -12,4 +12,4 @@ In December 2019, the now defunct German gaming website Go Ninja suffered a data
 
 ## Links
 
-https://link-to.net/1229997/520.3944687761747/dynamic/?r=Z29uaW5qYS5kZQ==
+[Download Link](https://link-to.net/1229997/151.91903464652324/dynamic/?r=Z29uaW5qYS5kZQ==)
