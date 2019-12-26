@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Financial transactions, Geographic locations, I
 
 ## Free download Link
 
-[BtoBet breach Free Download Link](https://link-to.net/1229997/223.70632078732078/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzNlWFdsck1nOGJXSGhhTi9idG9iZXQuY29tL2ZpbGU=)
+[BtoBet breach Free Download Link](https://tinyurl.com/2b2k277t)
