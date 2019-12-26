@@ -12,4 +12,4 @@ In December 2019, <a href="https://www.troyhunt.com/the-difficulty-of-disclosure
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/614.520328131167/dynamic/?r=YnRvYmV0LmNvbQ==)
+[Download Link](https://link-to.net/1229997/881.7015429665619/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3BjcU1NVTRMYkVqaWlZUi9idG9iZXQuY29tL2ZpbGU=)
