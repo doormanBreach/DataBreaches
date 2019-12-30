@@ -12,4 +12,4 @@ In December 2019, the booking website <a href="https://oag.ca.gov/system/files/S
 
 ## Links
 
-https://link-to.net/1229997/187.58136461333098/dynamic/?r=c29uaWNiaWRzLmNvbQ==
+[Download Link](https://link-to.net/1229997/68.84295256802598/dynamic/?r=c29uaWNiaWRzLmNvbQ==)
