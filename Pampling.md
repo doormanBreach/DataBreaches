@@ -12,4 +12,4 @@ In January 2020, <a href="https://www.elespanol.com/omicrono/20200308/comprado-c
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/170.78192629222545/dynamic/?r=cGFtcGxpbmcuY29t)
+[Download Link](https://link-to.net/1229997/710.0971361662234/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01wWjBjcmZDWnl0aWtOUi9wYW1wbGluZy5jb20vZmlsZQ==)
