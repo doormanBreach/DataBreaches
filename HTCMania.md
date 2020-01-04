@@ -12,4 +12,4 @@ In January 2020, the Spanish mobile phone forum <a href="https://www.htcmania.co
 
 ## Links
 
-https://link-to.net/YOUR_USER/680.1319884039046/dynamic/?r=aHRjbWFuaWEuY29t
+https://link-to.net/1229997/128.4628221921218/dynamic/?r=aHRjbWFuaWEuY29t
