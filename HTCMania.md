@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Historical passwords, IP addresses, Passwords, 
 
 ## Free download Link
 
-[HTCMania breach Free Download Link](https://link-to.net/1229997/91.38886448108107/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2JPdExkeEc4NE9lVHNCTi9odGNtYW5pYS5jb20vZmlsZQ==)
+[HTCMania breach Free Download Link](https://tinyurl.com/2b2k277t)
