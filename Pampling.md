@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Usernames
 
 ## Free download Link
 
-[Pampling breach Free Download Link](https://link-to.net/1229997/242.6771411131684/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2Z0Y284Vk1SOVJaRlFraS9wYW1wbGluZy5jb20vZmlsZQ==)
+[Pampling breach Free Download Link](https://tinyurl.com/2b2k277t)
