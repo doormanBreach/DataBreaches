@@ -12,4 +12,4 @@ In January 2020, the Barcelona-based dating app <a href="https://www.zdnet.com/a
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/805.8818809768254/dynamic/?r=bW9iaWZyaWVuZHMuY29t)
+[Download Link](https://link-to.net/1229997/717.8659944188487/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09xRFBKUERCVVpkZEFFRS9tb2JpZnJpZW5kcy5jb20vZmlsZQ==)
