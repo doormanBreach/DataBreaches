@@ -12,4 +12,4 @@ In January 2020, the online dating service <a href="https://grahamcluley.com/zoo
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/144.13778178326388/dynamic/?r=em9vc2suY29t)
+[Download Link](https://link-to.net/1229997/347.8256794151536/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0hIaWlNYnU1eXMwWTA4ay96b29zay5jb20vZmlsZQ==)
