@@ -12,4 +12,4 @@ Dates of birth, Drinking habits, Education levels, Email addresses, Ethnicities,
 
 ## Free download Link
 
-[Zoosk2020 breach Free Download Link](https://link-to.net/1229997/480.7701145766488/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0hnTm1jRFJwU3VRWUhYRS96b29zay5jb20vZmlsZQ==)
+[Zoosk2020 breach Free Download Link](https://tinyurl.com/2b2k277t)
