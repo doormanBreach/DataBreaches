@@ -12,4 +12,4 @@ Device information, Email addresses, Names, Passwords, Social media profiles
 
 ## Free download Link
 
-[Mathway breach Free Download Link](https://link-to.net/1229997/318.39303541314644/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzBvSnZ1cVZPZmVIcjZwRi9tYXRod2F5LmNvbS9maWxl)
+[Mathway breach Free Download Link](https://tinyurl.com/2b2k277t)
