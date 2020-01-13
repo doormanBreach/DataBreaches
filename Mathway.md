@@ -12,4 +12,4 @@ In January 2020, the math solving website <a href="https://www.zdnet.com/article
 
 ## Links
 
-https://link-to.net/YOUR_USER/289.0244900134865/dynamic/?r=bWF0aHdheS5jb20=
+https://link-to.net/1229997/5.666290116706607/dynamic/?r=bWF0aHdheS5jb20=
