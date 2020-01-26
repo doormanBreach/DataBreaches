@@ -1,15 +1,15 @@
-# MeetMindful
+# MeetMindful database leak
 
 ## Description
 
-Date: 2020-01-26
+2020-01-26
 
-Description:
 In early 2020, the online dating service <a href="https://www.zdnet.com/article/hacker-leaks-data-of-2-28-million-dating-site-users/" target="_blank" rel="noopener">MeetMindful suffered a data breach</a> that exposed 1.4 million unique customer email addresses. Included in the data was an extensive array of personal information used to find romantic matches including physical attributes, use of alcohol, drugs and cigarettes, marital statuses, birthdates, genders and the gender being sought. Additional personal information such as names, geographical locations and IP addresses were also exposed, along with passwords stored as bcrypt hashes.
 
+## Breached data
 
-['Dates of birth', 'Drinking habits', 'Drug habits', 'Email addresses', 'Genders', 'Geographic locations', 'IP addresses', 'Marital statuses', 'Names', 'Passwords', 'Physical attributes', 'Religions', 'Sexual orientations', 'Smoking habits', 'Social media profiles', 'Usernames']
+Dates of birth, Drinking habits, Drug habits, Email addresses, Genders, Geographic locations, IP addresses, Marital statuses, Names, Passwords, Physical attributes, Religions, Sexual orientations, Smoking habits, Social media profiles, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/644.0372962916163/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1d4OFhNSWxieUwxQWZFYi9tZWV0bWluZGZ1bC5jb20vZmlsZQ==)
+[MeetMindful breach Free Download Link](https://link-to.net/1229997/500.78906685868066/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01TQkpWenhJUTNKbThZVS9tZWV0bWluZGZ1bC5jb20vZmlsZQ==)
