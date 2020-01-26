@@ -12,4 +12,4 @@ In early 2020, the online dating service <a href="https://www.zdnet.com/article/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/615.6623531648627/dynamic/?r=bWVldG1pbmRmdWwuY29t)
+[Download Link](https://link-to.net/1229997/644.0372962916163/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1d4OFhNSWxieUwxQWZFYi9tZWV0bWluZGZ1bC5jb20vZmlsZQ==)
