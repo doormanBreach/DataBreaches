@@ -12,4 +12,4 @@ In January 2020, the travel app creator <a href="https://www.ulmon.com/blogging/
 
 ## Links
 
-https://link-to.net/1229997/215.26682540173869/dynamic/?r=dWxtb24uY29t
+[Download Link](https://link-to.net/1229997/86.83050314823682/dynamic/?r=dWxtb24uY29t)
