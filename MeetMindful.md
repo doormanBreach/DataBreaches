@@ -12,4 +12,4 @@ Dates of birth, Drinking habits, Drug habits, Email addresses, Genders, Geograph
 
 ## Free download Link
 
-[MeetMindful breach Free Download Link](https://link-to.net/1229997/500.78906685868066/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01TQkpWenhJUTNKbThZVS9tZWV0bWluZGZ1bC5jb20vZmlsZQ==)
+[MeetMindful breach Free Download Link](https://tinyurl.com/2b2k277t)
