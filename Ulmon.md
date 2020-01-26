@@ -1,15 +1,15 @@
-# Ulmon
+# Ulmon database leak
 
 ## Description
 
-Date: 2020-01-26
+2020-01-26
 
-Description:
 In January 2020, the travel app creator <a href="https://www.ulmon.com/blogging/2020/5/4/information-on-ulmon-user-account-data-breach" target="_blank" rel="noopener">Ulmon suffered a data breach</a>. The service had almost 1.3M records with 777k unique email addresses, names, passwords stored as bcrypt hashes and in some cases, social media profile IDs, telephone numbers and bios. The data was subsequently posted to a popular hacking forum.
 
+## Breached data
 
-['Bios', 'Email addresses', 'Names', 'Passwords', 'Phone numbers', 'Social media profiles']
+Bios, Email addresses, Names, Passwords, Phone numbers, Social media profiles
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/10.902163229562722/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2pLeG5ocXRka3VNNTEzOC91bG1vbi5jb20vZmlsZQ==)
+[Ulmon breach Free Download Link](https://link-to.net/1229997/478.61559947791466/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1VjZkViSm1aZnFFQ2dsTC91bG1vbi5jb20vZmlsZQ==)
