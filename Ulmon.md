@@ -12,4 +12,4 @@ Bios, Email addresses, Names, Passwords, Phone numbers, Social media profiles
 
 ## Free download Link
 
-[Ulmon breach Free Download Link](https://link-to.net/1229997/478.61559947791466/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1VjZkViSm1aZnFFQ2dsTC91bG1vbi5jb20vZmlsZQ==)
+[Ulmon breach Free Download Link](https://tinyurl.com/2b2k277t)
