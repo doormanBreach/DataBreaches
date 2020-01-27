@@ -12,4 +12,4 @@ Auth tokens, Dates of birth, Email addresses, Genders, Geographic locations, IP 
 
 ## Free download Link
 
-[Wishbone2020 breach Free Download Link](https://link-to.net/1229997/751.0980785329015/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3lRdDZRcVV4c1h4ZVJ4US93aXNoYm9uZS5pby9maWxl)
+[Wishbone2020 breach Free Download Link](https://tinyurl.com/2b2k277t)
