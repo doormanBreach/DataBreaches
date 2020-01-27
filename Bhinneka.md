@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Passwords, Phone numbers, Physi
 
 ## Free download Link
 
-[Bhinneka breach Free Download Link](https://link-to.net/1229997/723.5273183181743/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1VBb0xnZFNWZUlUeW5GaC9iaGlubmVrYS5jb20vZmlsZQ==)
+[Bhinneka breach Free Download Link](https://tinyurl.com/2b2k277t)
