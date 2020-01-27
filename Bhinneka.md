@@ -12,4 +12,4 @@ In early 2020, the Indonesian consumer electronics website <a href="https://www.
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/317.73702405663306/dynamic/?r=Ymhpbm5la2EuY29t)
+[Download Link](https://link-to.net/1229997/899.6062776549037/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZJSEc1UGxQWlllSGlwcy9iaGlubmVrYS5jb20vZmlsZQ==)
