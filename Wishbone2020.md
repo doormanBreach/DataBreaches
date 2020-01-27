@@ -12,4 +12,4 @@ In January 2020, the mobile app to &quot;compare anything&quot; <a href="https:/
 
 ## Links
 
-https://link-to.net/1229997/899.6341746430147/dynamic/?r=d2lzaGJvbmUuaW8=
+[Download Link](https://link-to.net/1229997/67.21226018894077/dynamic/?r=d2lzaGJvbmUuaW8=)
