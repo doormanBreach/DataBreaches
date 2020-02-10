@@ -12,4 +12,4 @@ In early 2020, the food delivery service <a href="https://techcrunch.com/2020/05
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/694.3918402204077/dynamic/?r=aG9tZWNoZWYuY29t)
+[Download Link](https://link-to.net/1229997/834.2128462026977/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1E0eDlBOGJZdHphMXphUy9ob21lY2hlZi5jb20vZmlsZQ==)
