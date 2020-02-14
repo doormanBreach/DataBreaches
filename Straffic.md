@@ -12,4 +12,4 @@ In February 2020, Israeli marketing company <a href="https://www.databreachtoday
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/59.67568046594274/dynamic/?r=c3RyYWZmaWMuaW8=)
+[Download Link](https://link-to.net/1229997/5.6814065413982595/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1Q3Ymh6ZnhMRHdwMWJIMy9zdHJhZmZpYy5pby9maWxl)
