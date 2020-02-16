@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses, Purchases
 
 ## Free download Link
 
-[Slickwraps breach Free Download Link](https://link-to.net/1229997/361.78032791214474/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzNtNlBPUHh2VnlFcjJOdS9zbGlja3dyYXBzLmNvbS9maWxl)
+[Slickwraps breach Free Download Link](https://tinyurl.com/2b2k277t)
