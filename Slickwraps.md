@@ -12,4 +12,4 @@ In February 2020, the online store for consumer electronics wraps <a href="https
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/484.6642727470245/dynamic/?r=c2xpY2t3cmFwcy5jb20=)
+[Download Link](https://link-to.net/1229997/325.0865174831906/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2tOOUZWem5Kdms3Q1pkTC9zbGlja3dyYXBzLmNvbS9maWxl)
