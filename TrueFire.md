@@ -12,4 +12,4 @@ In February 2020, the guitar tuition website <a href="https://guitar.com/news/in
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/93.53025174422692/dynamic/?r=dHJ1ZWZpcmUuY29t)
+[Download Link](https://link-to.net/1229997/728.4186450364733/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3h2bkU4TFZUTnUwcFNydi90cnVlZmlyZS5jb20vZmlsZQ==)
