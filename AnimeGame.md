@@ -12,4 +12,4 @@ In February 2020, the gaming website <a href="http://animegame.me/" target="_bla
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/700.4287254290502/dynamic/?r=YW5pbWVnYW1lLm1l)
+[Download Link](https://link-to.net/1229997/269.7285622128518/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1p3VVc3bThkTmtsMFc5bS9hbmltZWdhbWUubWUvZmlsZQ==)
