@@ -12,4 +12,4 @@ In February 2020, the affiliate marketing network <a href="https://www.tamodo.co
 
 ## Links
 
-https://link-to.net/YOUR_USER/381.66447414021974/dynamic/?r=dGFtb2RvLmNvbQ==
+https://link-to.net/YOUR_USER/318.2866237486006/dynamic/?r=dGFtb2RvLmNvbQ==
