@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Geographic locations, IP addresses, Na
 
 ## Free download Link
 
-[Tamodo breach Free Download Link](https://link-to.net/1229997/559.188856243652/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1o1cXhBQjhmYU9VNUN6NC90YW1vZG8uY29tL2ZpbGU=)
+[Tamodo breach Free Download Link](https://tinyurl.com/2b2k277t)
