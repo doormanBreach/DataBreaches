@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Usernames
 
 ## Free download Link
 
-[Catho breach Free Download Link](https://link-to.net/1229997/71.40122818185624/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pyYlU4UGxmNmRZVlZ2ci9jYXRoby5jb20uYnIvZmlsZQ==)
+[Catho breach Free Download Link](https://tinyurl.com/2b2k277t)
