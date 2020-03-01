@@ -12,4 +12,4 @@ In approximately March 2020, the Brazilian recruitment website <a href="https://
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/195.0226452578524/dynamic/?r=Y2F0aG8uY29tLmJy)
+[Download Link](https://link-to.net/1229997/68.849167069987/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2JaWkZlSjFOS0hCUDdveC9jYXRoby5jb20uYnIvZmlsZQ==)
