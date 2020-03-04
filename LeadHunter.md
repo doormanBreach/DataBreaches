@@ -12,4 +12,4 @@ Email addresses, Genders, IP addresses, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[LeadHunter breach Free Download Link](https://link-to.net/1229997/815.430707086797/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1NZVlBTUXlqaEJ0VDRmdC8vZmlsZQ==)
+[LeadHunter breach Free Download Link](https://tinyurl.com/2b2k277t)
