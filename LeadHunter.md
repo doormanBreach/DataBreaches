@@ -12,4 +12,4 @@ In March 2020, <a href="https://www.troyhunt.com/the-unattributable-lead-hunter-
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/402.1154627915806/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/875.0984393129961/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RuemtseXdlSEprUTJXVC8vZmlsZQ==)
