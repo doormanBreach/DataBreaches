@@ -12,4 +12,4 @@ Email addresses, Geographic locations, Passwords
 
 ## Free download Link
 
-[James breach Free Download Link](https://link-to.net/1229997/462.79723305833033/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L092ZnoySVJZRzBLVERPcy9qYW1lc2RlbGl2ZXJ5LmNvbS5ici9maWxl)
+[James breach Free Download Link](https://tinyurl.com/2b2k277t)
