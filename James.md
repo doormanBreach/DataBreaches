@@ -12,4 +12,4 @@ In June 2020, <a href="https://www.binarydefense.com/threat_watch/seller-floods-
 
 ## Links
 
-https://link-to.net/1229997/818.7667140543625/dynamic/?r=amFtZXNkZWxpdmVyeS5jb20uYnI=
+[Download Link](https://link-to.net/1229997/892.7214201255717/dynamic/?r=amFtZXNkZWxpdmVyeS5jb20uYnI=)
