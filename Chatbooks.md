@@ -12,4 +12,4 @@ In March 2020, the photo print service <a href="https://www.bleepingcomputer.com
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/230.13050275980063/dynamic/?r=Y2hhdGJvb2tzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/302.9385185928185/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L252Sk1BVENqaUpjakpDSy9jaGF0Ym9va3MuY29tL2ZpbGU=)
