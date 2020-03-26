@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers, Social media profiles
 
 ## Free download Link
 
-[Chatbooks breach Free Download Link](https://link-to.net/1229997/750.5057811699007/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0d0NU9HdGJNSnN6bjNSdS9jaGF0Ym9va3MuY29tL2ZpbGU=)
+[Chatbooks breach Free Download Link](https://tinyurl.com/2b2k277t)
