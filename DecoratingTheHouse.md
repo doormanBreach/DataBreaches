@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Usernames
 
 ## Free download Link
 
-[DecoratingTheHouse breach Free Download Link](https://link-to.net/1229997/307.30171587380175/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2M4TTNHTzVET1RPQW5XSi9nZ3VtaW0uY28ua3IvZmlsZQ==)
+[DecoratingTheHouse breach Free Download Link](https://tinyurl.com/2b2k277t)
