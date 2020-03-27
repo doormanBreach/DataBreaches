@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Passwords, Phone numbers
 
 ## Free download Link
 
-[Glofox breach Free Download Link](https://link-to.net/1229997/921.4666259134217/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzlpMG8yYXZJcUx0UTZrby9nbG9mb3guY29tL2ZpbGU=)
+[Glofox breach Free Download Link](https://tinyurl.com/2b2k277t)
