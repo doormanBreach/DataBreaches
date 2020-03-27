@@ -12,4 +12,4 @@ In March 2020, the Korean interior decoration website <a href="https://www.bleep
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/730.863613752478/dynamic/?r=Z2d1bWltLmNvLmty)
+[Download Link](https://link-to.net/1229997/226.58394091751356/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2laUk55b29DNGQ0bHJjWS9nZ3VtaW0uY28ua3IvZmlsZQ==)
