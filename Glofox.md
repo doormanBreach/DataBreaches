@@ -12,4 +12,4 @@ In March 2020, the Irish gym management software company <a href="https://www.ir
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/320.473442085192/dynamic/?r=Z2xvZm94LmNvbQ==)
+[Download Link](https://link-to.net/1229997/508.23311416131764/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RQdTN6OXN1ZXBRM3NOZS9nbG9mb3guY29tL2ZpbGU=)
