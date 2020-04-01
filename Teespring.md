@@ -12,4 +12,4 @@ In April 2020, the custom printed apparel website <a href="https://www.zdnet.com
 
 ## Links
 
-https://link-to.net/YOUR_USER/478.3313868509738/dynamic/?r=dGVlc3ByaW5nLmNvbQ==
+https://link-to.net/1229997/279.01527886641543/dynamic/?r=dGVlc3ByaW5nLmNvbQ==
