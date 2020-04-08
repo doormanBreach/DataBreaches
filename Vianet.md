@@ -12,4 +12,4 @@ In April 2020, the Nepalese internet service provider <a href="https://myrepubli
 
 ## Links
 
-https://link-to.net/1229997/700.2940738104427/dynamic/?r=dmlhbmV0LmNvbS5ucA==
+[Download Link](https://link-to.net/1229997/600.7380313911649/dynamic/?r=dmlhbmV0LmNvbS5ucA==)
