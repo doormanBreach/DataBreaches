@@ -12,4 +12,4 @@ In April 2020, the independent Android app store <a href="https://blog.aptoide.c
 
 ## Links
 
-https://link-to.net/1229997/525.8664673962438/dynamic/?r=YXB0b2lkZS5jb20=
+[Download Link](https://link-to.net/1229997/14.925997366591282/dynamic/?r=YXB0b2lkZS5jb20=)
