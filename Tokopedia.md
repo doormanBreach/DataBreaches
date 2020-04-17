@@ -12,4 +12,4 @@ In April 2020, Indonesia's largest online store <a href="https://www.zdnet.com/a
 
 ## Links
 
-https://link-to.net/YOUR_USER/768.8037451285552/dynamic/?r=dG9rb3BlZGlhLmNvbQ==
+https://link-to.net/YOUR_USER/690.0576820013837/dynamic/?r=dG9rb3BlZGlhLmNvbQ==
