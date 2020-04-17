@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Passwords
 
 ## Free download Link
 
-[Tokopedia breach Free Download Link](https://link-to.net/1229997/621.1863097339456/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3haSk9mNHVUNHpSQnB3NS90b2tvcGVkaWEuY29tL2ZpbGU=)
+[Tokopedia breach Free Download Link](https://tinyurl.com/2b2k277t)
