@@ -12,4 +12,4 @@ In May 2020, the online marketplace for independent artists <a href="https://www
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/922.1980871795041/dynamic/?r=bWludGVkLmNvbQ==)
+[Download Link](https://link-to.net/1229997/109.51393507483654/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2Q1MnJPa09oMVdnOGRYeS9taW50ZWQuY29tL2ZpbGU=)
