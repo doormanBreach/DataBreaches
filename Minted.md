@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[Minted breach Free Download Link](https://link-to.net/1229997/433.1102946085975/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2JnNVVuN204ZlVQQlJiUC9taW50ZWQuY29tL2ZpbGU=)
+[Minted breach Free Download Link](https://tinyurl.com/2b2k277t)
