@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers, Physical addresses, Usernames
 
 ## Free download Link
 
-[Zacks breach Free Download Link](https://link-to.net/1229997/561.974052738362/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3c5Rzl5bmJSRjkyRUdZUy96YWNrcy5jb20vZmlsZQ==)
+[Zacks breach Free Download Link](https://tinyurl.com/2b2k277t)
