@@ -12,4 +12,4 @@ In December 2022, the investment research company <a href="https://www.zacks.com
 
 ## Links
 
-https://link-to.net/YOUR_USER/628.8912992894365/dynamic/?r=emFja3MuY29t
+https://link-to.net/1229997/843.7841904347331/dynamic/?r=emFja3MuY29t
