@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Private messages, Usernames
 
 ## Free download Link
 
-[NulledCH breach Free Download Link](https://link-to.net/1229997/274.1697874313459/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFnMU5XR0lzQWwzbmRRMi9udWxsZWQuY2gvZmlsZQ==)
+[NulledCH breach Free Download Link](https://tinyurl.com/2b2k277t)
