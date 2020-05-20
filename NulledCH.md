@@ -12,4 +12,4 @@ In May 2020, the hacking forum <a href="https://www.nulled.ch/" target="_blank" 
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/580.005163044938/dynamic/?r=bnVsbGVkLmNo)
+[Download Link](https://link-to.net/1229997/750.6325438453588/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1NIdDBVRklZQ1A2cGt3ai9udWxsZWQuY2gvZmlsZQ==)
