@@ -12,4 +12,4 @@ Email addresses, Names, Social media profiles, Usernames
 
 ## Free download Link
 
-[PreenMe breach Free Download Link](https://link-to.net/1229997/487.96129219674145/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2xJU1JlcjRCck5oMUUzTi9wcmVlbi5tZS9maWxl)
+[PreenMe breach Free Download Link](https://tinyurl.com/2b2k277t)
