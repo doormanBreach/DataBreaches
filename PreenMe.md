@@ -12,4 +12,4 @@ In May 2020, social media marketing company <a href="https://www.riskbasedsecuri
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/689.5302649141594/dynamic/?r=cHJlZW4ubWU=)
+[Download Link](https://link-to.net/1229997/552.4048632804559/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1BjWjRaN1NHUVBYNXA0Qy9wcmVlbi5tZS9maWxl)
