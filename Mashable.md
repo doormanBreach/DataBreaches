@@ -12,4 +12,4 @@ In approximately mid-2020, <a href="https://portswigger.net/daily-swig/data-brea
 
 ## Links
 
-https://link-to.net/1229997/710.9729112231557/dynamic/?r=bWFzaGFibGUuY29t
+[Download Link](https://link-to.net/1229997/18.566724900987875/dynamic/?r=bWFzaGFibGUuY29t)
