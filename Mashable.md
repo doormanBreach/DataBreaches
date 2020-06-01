@@ -12,4 +12,4 @@ Auth tokens, Email addresses, Genders, Geographic locations, IP addresses, Names
 
 ## Free download Link
 
-[Mashable breach Free Download Link](https://link-to.net/1229997/972.2686826483751/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L20xSlJUUFlzVWR4YlZSSy9tYXNoYWJsZS5jb20vZmlsZQ==)
+[Mashable breach Free Download Link](https://tinyurl.com/2b2k277t)
