@@ -12,4 +12,4 @@ In mid-2020, <a href="https://www.troyhunt.com/acuity-who-attempts-and-failures-
 
 ## Links
 
-https://link-to.net/1229997/56.392053828261844/dynamic/?r=
+[Download Link](https://link-to.net/1229997/753.6021696396864/dynamic/?r=)
