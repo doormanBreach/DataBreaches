@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, IP addresses, Names, Phone numbers, Ph
 
 ## Free download Link
 
-[Acuity breach Free Download Link](https://link-to.net/1229997/528.7418273188125/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L29DUWdNMzJWOFEwUE85Zi8vZmlsZQ==)
+[Acuity breach Free Download Link](https://tinyurl.com/2b2k277t)
