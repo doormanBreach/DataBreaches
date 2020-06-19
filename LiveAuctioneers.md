@@ -12,4 +12,4 @@ In June 2020, the online antiques marketplace <a href="https://portswigger.net/d
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/761.4688824373151/dynamic/?r=bGl2ZWF1Y3Rpb25lZXJzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/659.1299171871669/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2J3ODA1QWJHM0JQZ3hubi9saXZlYXVjdGlvbmVlcnMuY29tL2ZpbGU=)
