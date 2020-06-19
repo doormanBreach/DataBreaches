@@ -12,4 +12,4 @@ Device information, Email addresses, Geographic locations, IP addresses, Names, 
 
 ## Free download Link
 
-[Dunzo breach Free Download Link](https://link-to.net/1229997/768.7402152795287/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2c3M2lRaGtjR1RXTlprMi9kdW56by5jb20vZmlsZQ==)
+[Dunzo breach Free Download Link](https://tinyurl.com/2b2k277t)
