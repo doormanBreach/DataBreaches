@@ -12,4 +12,4 @@ In June 2020, the web development site <a href="https://www.bleepingcomputer.com
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/156.21977508239272/dynamic/?r=c2l0ZXBvaW50LmNvbQ==)
+[Download Link](https://link-to.net/1229997/52.6765048327612/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3gyS25rRDJ6NWxtNzg3cC9zaXRlcG9pbnQuY29tL2ZpbGU=)
