@@ -12,4 +12,4 @@ Bios, Email addresses, IP addresses, Names, Passwords, Usernames
 
 ## Free download Link
 
-[SitePoint breach Free Download Link](https://link-to.net/1229997/359.51393497805196/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0NKbGp4YXZ4WUt0eUxRQy9zaXRlcG9pbnQuY29tL2ZpbGU=)
+[SitePoint breach Free Download Link](https://tinyurl.com/2b2k277t)
