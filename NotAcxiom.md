@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[NotAcxiom breach Free Download Link](https://link-to.net/1229997/653.2217300728955/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3JLU3Z5Y1pSTGhBTW84Ty8vZmlsZQ==)
+[NotAcxiom breach Free Download Link](https://tinyurl.com/2b2k277t)
