@@ -12,4 +12,4 @@ In June 2020, the Mexican lending platform <a href="https://newsbeezer.com/mexic
 
 ## Links
 
-https://link-to.net/1229997/241.68187995432135/dynamic/?r=eW90ZXByZXN0by5jb20=
+[Download Link](https://link-to.net/1229997/822.6563313807892/dynamic/?r=eW90ZXByZXN0by5jb20=)
