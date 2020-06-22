@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[YoteprestoCom breach Free Download Link](https://link-to.net/1229997/656.9338417653745/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09ab3Q3Q01pNEVTcWFxbS95b3RlcHJlc3RvLmNvbS9maWxl)
+[YoteprestoCom breach Free Download Link](https://tinyurl.com/2b2k277t)
