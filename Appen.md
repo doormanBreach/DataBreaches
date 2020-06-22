@@ -12,4 +12,4 @@ Email addresses, Employers, IP addresses, Names, Passwords, Phone numbers
 
 ## Free download Link
 
-[Appen breach Free Download Link](https://link-to.net/1229997/358.5432065161578/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3JmUTFacXNxSnBTblc4YS9hcHBlbi5jb20vZmlsZQ==)
+[Appen breach Free Download Link](https://tinyurl.com/2b2k277t)
