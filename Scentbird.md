@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Password strengths, Passwords
 
 ## Free download Link
 
-[Scentbird breach Free Download Link](https://link-to.net/1229997/96.29746652334714/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0N2d1RZd203WVQ3OWVnQS9zY2VudGJpcmQuY29tL2ZpbGU=)
+[Scentbird breach Free Download Link](https://tinyurl.com/2b2k277t)
