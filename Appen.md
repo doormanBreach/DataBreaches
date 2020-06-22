@@ -12,4 +12,4 @@ In June 2020, the AI training data company <a href="https://www.bleepingcomputer
 
 ## Links
 
-https://link-to.net/1229997/444.15066651182156/dynamic/?r=YXBwZW4uY29t
+[Download Link](https://link-to.net/1229997/128.01442477976877/dynamic/?r=YXBwZW4uY29t)
