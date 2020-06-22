@@ -12,4 +12,4 @@ Email addresses, Genders, IP addresses, Names, Passwords
 
 ## Free download Link
 
-[Promo breach Free Download Link](https://link-to.net/1229997/263.1275334738371/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzA2d3pReGM3SE5ja1dPVC9wcm9tby5jb20vZmlsZQ==)
+[Promo breach Free Download Link](https://tinyurl.com/2b2k277t)
