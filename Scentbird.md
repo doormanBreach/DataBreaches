@@ -12,4 +12,4 @@ In June 2020, the online fragrance service <a href="https://www.bleepingcomputer
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/902.486484283003/dynamic/?r=c2NlbnRiaXJkLmNvbQ==)
+[Download Link](https://link-to.net/1229997/392.50516517051125/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3lYTGREOHRtMm55T3BrZi9zY2VudGJpcmQuY29tL2ZpbGU=)
