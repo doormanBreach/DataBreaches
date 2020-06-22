@@ -12,4 +12,4 @@ In July 2020, the self-proclaimed &quot;World's #1 Marketing Video Maker&quot; <
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/164.24114833119418/dynamic/?r=cHJvbW8uY29t)
+[Download Link](https://link-to.net/1229997/538.2247228802685/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0JaZGI2RFA5WGU5MDFDRS9wcm9tby5jb20vZmlsZQ==)
