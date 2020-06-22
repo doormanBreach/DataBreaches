@@ -12,4 +12,4 @@ In June 2020, the Brazilian fund raising service <a href="https://www.bleepingco
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/112.06156388388133/dynamic/?r=dmFraW5oYS5jb20uYnI=)
+[Download Link](https://link-to.net/1229997/737.6665130371832/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3Lzd4TXlWeUNHdWM2M1FyWS92YWtpbmhhLmNvbS5ici9maWxl)
