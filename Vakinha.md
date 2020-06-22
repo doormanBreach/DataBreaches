@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Names, Passwords, Phone numbers
 
 ## Free download Link
 
-[Vakinha breach Free Download Link](https://link-to.net/1229997/795.5674200747675/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3d6TGg4ak10TTVEcWMzYS92YWtpbmhhLmNvbS5ici9maWxl)
+[Vakinha breach Free Download Link](https://tinyurl.com/2b2k277t)
