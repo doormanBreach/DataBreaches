@@ -12,4 +12,4 @@ In June 2020, the Egyptian bus operator <a href="https://portswigger.net/daily-s
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/511.59311003934596/dynamic/?r=c3d2bC5jb20=)
+[Download Link](https://link-to.net/1229997/642.3658361930602/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1Y2RnowYjJIaEJBam85RS9zd3ZsLmNvbS9maWxl)
