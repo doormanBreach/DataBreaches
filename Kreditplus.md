@@ -12,4 +12,4 @@ In June 2020, the Indonesian credit service <a href="https://nakedsecurity.sopho
 
 ## Links
 
-https://link-to.net/1229997/914.1024921663623/dynamic/?r=a3JlZGl0cGx1cy5jb20=
+[Download Link](https://link-to.net/1229997/210.65916110126014/dynamic/?r=a3JlZGl0cGx1cy5jb20=)
