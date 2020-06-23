@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Employers, Family structure, Genders, Income le
 
 ## Free download Link
 
-[Kreditplus breach Free Download Link](https://link-to.net/1229997/9.157538960700817/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3hWQXI3N1BETlZrU1B1Sy9rcmVkaXRwbHVzLmNvbS9maWxl)
+[Kreditplus breach Free Download Link](https://tinyurl.com/2b2k277t)
