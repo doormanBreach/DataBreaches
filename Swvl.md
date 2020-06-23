@@ -12,4 +12,4 @@ Email addresses, Names, Partial credit card data, Passwords, Phone numbers, Prof
 
 ## Free download Link
 
-[Swvl breach Free Download Link](https://link-to.net/1229997/318.88301738369927/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2hhNTVlQmVPM3YyUlUzaC9zd3ZsLmNvbS9maWxl)
+[Swvl breach Free Download Link](https://tinyurl.com/2b2k277t)
