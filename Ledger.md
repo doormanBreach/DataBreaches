@@ -12,4 +12,4 @@ In June 2020, the hardware crypto wallet manufacturer <a href="https://www.ledge
 
 ## Links
 
-https://link-to.net/1229997/506.81713015398213/dynamic/?r=bGVkZ2VyLmNvbQ==
+[Download Link](https://link-to.net/1229997/576.6554948729412/dynamic/?r=bGVkZ2VyLmNvbQ==)
