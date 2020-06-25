@@ -12,4 +12,4 @@ Email addresses, Geographic locations, Names, Passwords, Phone numbers
 
 ## Free download Link
 
-[Havenly breach Free Download Link](https://link-to.net/1229997/699.0625560313451/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJCaUtBOEw3VVV0RzZPeS9oYXZlbmx5LmNvbS9maWxl)
+[Havenly breach Free Download Link](https://tinyurl.com/2b2k277t)
