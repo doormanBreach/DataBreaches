@@ -12,4 +12,4 @@ In June 2020, the interior design website <a href="https://www.bleepingcomputer.
 
 ## Links
 
-https://link-to.net/1229997/991.5233848323575/dynamic/?r=aGF2ZW5seS5jb20=
+[Download Link](https://link-to.net/1229997/908.1312848969067/dynamic/?r=aGF2ZW5seS5jb20=)
