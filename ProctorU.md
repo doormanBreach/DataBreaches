@@ -12,4 +12,4 @@ In June 2020, the online exam service <a href="https://www.smh.com.au/national/h
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/536.7824703326811/dynamic/?r=cHJvY3RvcnUuY29t)
+[Download Link](https://link-to.net/1229997/942.351948124017/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0tPY2ZlRlVTUUt4SGF2eS9wcm9jdG9ydS5jb20vZmlsZQ==)
