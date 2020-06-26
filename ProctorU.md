@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers, Physical addresses, Usernames
 
 ## Free download Link
 
-[ProctorU breach Free Download Link](https://link-to.net/1229997/322.5399180261188/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VlQVJTTEpJNDV2QzllZi9wcm9jdG9ydS5jb20vZmlsZQ==)
+[ProctorU breach Free Download Link](https://tinyurl.com/2b2k277t)
