@@ -12,4 +12,4 @@ In June 2020, the digital banking app <a href="https://www.zdnet.com/article/tec
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/270.90825062506883/dynamic/?r=ZGF2ZS5jb20=)
+[Download Link](https://link-to.net/1229997/988.5034609059317/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VDb21sb3NxQ1poa3BDby9kYXZlLmNvbS9maWxl)
