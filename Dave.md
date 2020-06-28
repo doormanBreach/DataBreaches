@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names, Passwords, Phone numbers, Physical addre
 
 ## Free download Link
 
-[Dave breach Free Download Link](https://link-to.net/1229997/403.36475434994634/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2NiZ0tzbGtMRkgwWklwYy9kYXZlLmNvbS9maWxl)
+[Dave breach Free Download Link](https://tinyurl.com/2b2k277t)
