@@ -12,4 +12,4 @@ Bios, Dates of birth, Email addresses, Genders, Geographic locations, IP address
 
 ## Free download Link
 
-[Wattpad breach Free Download Link](https://link-to.net/1229997/615.9100645711206/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1poS210OFlqNG1aMVplbC93YXR0cGFkLmNvbS9maWxl)
+[Wattpad breach Free Download Link](https://tinyurl.com/2b2k277t)
