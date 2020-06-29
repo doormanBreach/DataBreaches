@@ -12,4 +12,4 @@ In June 2020, the restaurant solutions provider <a href="https://www.riskbasedse
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/364.32161185966083/dynamic/?r=b3JkZXJzbmFwcC5jb20=)
+[Download Link](https://link-to.net/1229997/126.17482789295687/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzNlVWlnTW5ETnZieVNUSy9vcmRlcnNuYXBwLmNvbS9maWxl)
