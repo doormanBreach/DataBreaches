@@ -12,4 +12,4 @@ In June 2020, the user-generated stories website <a href="https://www.bleepingco
 
 ## Links
 
-https://link-to.net/1229997/457.45060400013216/dynamic/?r=d2F0dHBhZC5jb20=
+[Download Link](https://link-to.net/1229997/167.0720355856551/dynamic/?r=d2F0dHBhZC5jb20=)
