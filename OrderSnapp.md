@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names, Passwords, Phone numbers
 
 ## Free download Link
 
-[OrderSnapp breach Free Download Link](https://link-to.net/1229997/155.2807077414362/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3kyVFl1ZVppMzkxRmZmYy9vcmRlcnNuYXBwLmNvbS9maWxl)
+[OrderSnapp breach Free Download Link](https://tinyurl.com/2b2k277t)
