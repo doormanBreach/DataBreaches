@@ -12,4 +12,4 @@ In approximately July 2020, the US-based online alcohol delivery service <a href
 
 ## Links
 
-https://link-to.net/YOUR_USER/107.8255895887299/dynamic/?r=ZHJpemx5LmNvbQ==
+https://link-to.net/1229997/459.20615964071/dynamic/?r=ZHJpemx5LmNvbQ==
