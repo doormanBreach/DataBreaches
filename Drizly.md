@@ -12,4 +12,4 @@ Dates of birth, Device information, Email addresses, IP addresses, Names, Passwo
 
 ## Free download Link
 
-[Drizly breach Free Download Link](https://link-to.net/1229997/782.119231580855/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L203UVdhTFJ6bE01V0hlei9kcml6bHkuY29tL2ZpbGU=)
+[Drizly breach Free Download Link](https://tinyurl.com/2b2k277t)
