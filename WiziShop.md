@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Names, Passwords, Phone numbers, 
 
 ## Free download Link
 
-[WiziShop breach Free Download Link](https://link-to.net/1229997/897.4826424255426/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3o3elA4d2dLRTlNRTJEVS93aXppc2hvcC5mci9maWxl)
+[WiziShop breach Free Download Link](https://tinyurl.com/2b2k277t)
