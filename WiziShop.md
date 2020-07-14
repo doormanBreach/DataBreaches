@@ -12,4 +12,4 @@ In July 2020, the French e-commerce platform <a href="https://www.wizishop.fr/" 
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/216.5194094630233/dynamic/?r=d2l6aXNob3AuZnI=)
+[Download Link](https://link-to.net/1229997/513.4215870702253/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1hTTVJvUzNXd1BiUUcwdC93aXppc2hvcC5mci9maWxl)
