@@ -12,4 +12,4 @@ In July 2020, <a href="https://www.forbes.com/sites/daveywinder/2020/08/15/gun-o
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/604.0463368498124/dynamic/?r=dXRhaGd1bmV4Y2hhbmdlLmNvbQ==)
+[Download Link](https://link-to.net/1229997/842.2852581881994/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0k5OHNuUFV0RDc4YkZ2ai91dGFoZ3VuZXhjaGFuZ2UuY29tL2ZpbGU=)
