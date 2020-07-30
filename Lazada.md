@@ -12,4 +12,4 @@ Email addresses, Names, Partial credit card data, Passwords, Phone numbers, Phys
 
 ## Free download Link
 
-[Lazada breach Free Download Link](https://link-to.net/1229997/236.6999975944153/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3laVGlEM2NoaUZDdmlEMC9yZWRtYXJ0LmxhemFkYS5zZy9maWxl)
+[Lazada breach Free Download Link](https://tinyurl.com/2b2k277t)
