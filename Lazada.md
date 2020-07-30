@@ -12,4 +12,4 @@ In October 2020, <a href="https://www.bleepingcomputer.com/news/security/over-1m
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/703.4329319646163/dynamic/?r=cmVkbWFydC5sYXphZGEuc2c=)
+[Download Link](https://link-to.net/1229997/424.3863677405888/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0JlbDBFU0xGOUFOMUpMRS9yZWRtYXJ0LmxhemFkYS5zZy9maWxl)
