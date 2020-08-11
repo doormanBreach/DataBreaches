@@ -12,4 +12,4 @@ Email addresses, Genders, IP addresses, Passwords, Private messages, Usernames
 
 ## Free download Link
 
-[ShockGore breach Free Download Link](https://link-to.net/1229997/161.0891134870096/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1lRekd6OGg3VXJyMW9neC9zaG9ja2dvcmUuY29tL2ZpbGU=)
+[ShockGore breach Free Download Link](https://tinyurl.com/2b2k277t)
