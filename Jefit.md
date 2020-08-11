@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Jefit breach Free Download Link](https://link-to.net/1229997/488.9368931063176/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0M5NmxOV1M4UVFIUWR3RC9qZWZpdC5jb20vZmlsZQ==)
+[Jefit breach Free Download Link](https://tinyurl.com/2b2k277t)
