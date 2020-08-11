@@ -12,4 +12,4 @@ In August 2020, the workout tracking app <a href="https://www.jefit.com/jefit-ne
 
 ## Links
 
-https://link-to.net/YOUR_USER/25.65521152284034/dynamic/?r=amVmaXQuY29t
+https://link-to.net/1229997/448.75911126824843/dynamic/?r=amVmaXQuY29t
