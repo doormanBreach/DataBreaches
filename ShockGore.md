@@ -12,4 +12,4 @@ In August 2020, the website for sharing graphic videos and images of gore and an
 
 ## Links
 
-https://link-to.net/1229997/768.4290980779057/dynamic/?r=c2hvY2tnb3JlLmNvbQ==
+[Download Link](https://link-to.net/1229997/163.65065580984896/dynamic/?r=c2hvY2tnb3JlLmNvbQ==)
