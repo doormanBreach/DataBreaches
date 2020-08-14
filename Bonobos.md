@@ -12,4 +12,4 @@ Email addresses, Historical passwords, IP addresses, Names, Partial credit card 
 
 ## Free download Link
 
-[Bonobos breach Free Download Link](https://link-to.net/1229997/90.14521926793928/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0ZRRW1qTUdjR0dkcDQ3UC9ib25vYm9zLmNvbS9maWxl)
+[Bonobos breach Free Download Link](https://tinyurl.com/2b2k277t)
