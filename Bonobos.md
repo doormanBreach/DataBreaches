@@ -12,4 +12,4 @@ In August 2020, the clothing store <a href="https://www.bleepingcomputer.com/new
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/179.58157660150076/dynamic/?r=Ym9ub2Jvcy5jb20=)
+[Download Link](https://link-to.net/1229997/762.4568018992371/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3BUdEJtRGhxUGNpN0tUNS9ib25vYm9zLmNvbS9maWxl)
