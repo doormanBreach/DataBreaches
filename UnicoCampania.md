@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[UnicoCampania breach Free Download Link](https://link-to.net/1229997/104.57762970254004/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2xXRlhIczJDajJWODQycy91bmljb2NhbXBhbmlhLml0L2ZpbGU=)
+[UnicoCampania breach Free Download Link](https://tinyurl.com/2b2k277t)
