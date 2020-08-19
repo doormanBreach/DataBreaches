@@ -12,4 +12,4 @@ Email addresses, Employers, Government issued IDs, Names, Occupations, Phone num
 
 ## Free download Link
 
-[Experian2020 breach Free Download Link](https://link-to.net/1229997/767.5422984143233/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzBUUlIxVlVWUWlEb2REcC8vZmlsZQ==)
+[Experian2020 breach Free Download Link](https://tinyurl.com/2b2k277t)
