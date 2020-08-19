@@ -1,15 +1,15 @@
-# Experian2020
+# Experian2020 database leak
 
 ## Description
 
-Date: 2020-08-19
+2020-08-19
 
-Description:
 In August 2020, <a href="https://www.iafrikan.com/2020/09/01/experian-data-breach-database-public-data-information-south-africa/" target="_blank" rel="noopener">Experian South Africa suffered a data breach</a> which exposed the personal information of tens of millions of individuals. Only 1.3M of the records contained email addresses, whilst most contained government issued identity numbers, names, addresses, occupations and employers, amongst other person information.
 
+## Breached data
 
-['Email addresses', 'Employers', 'Government issued IDs', 'Names', 'Occupations', 'Phone numbers']
+Email addresses, Employers, Government issued IDs, Names, Occupations, Phone numbers
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/80.33955876364041/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3F5QjhrN0lqTjlUcnV5OS8vZmlsZQ==)
+[Experian2020 breach Free Download Link](https://link-to.net/1229997/767.5422984143233/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzBUUlIxVlVWUWlEb2REcC8vZmlsZQ==)
