@@ -12,4 +12,4 @@ In August 2020, <a href="https://www.iafrikan.com/2020/09/01/experian-data-breac
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/793.2029761869953/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/80.33955876364041/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3F5QjhrN0lqTjlUcnV5OS8vZmlsZQ==)
