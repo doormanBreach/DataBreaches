@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses, Purchases, Salutation
 
 ## Free download Link
 
-[Livpure breach Free Download Link](https://link-to.net/1229997/195.73115942455965/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01TN3NHSjVEekgxZFpIVy9saXZwdXJlLmNvbS9maWxl)
+[Livpure breach Free Download Link](https://tinyurl.com/2b2k277t)
