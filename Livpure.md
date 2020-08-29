@@ -12,4 +12,4 @@ In August 2020, the Indian retailer <a href="https://cloudsek.com/threatintellig
 
 ## Links
 
-https://link-to.net/YOUR_USER/130.22483345404157/dynamic/?r=bGl2cHVyZS5jb20=
+https://link-to.net/YOUR_USER/80.06501627490393/dynamic/?r=bGl2cHVyZS5jb20=
