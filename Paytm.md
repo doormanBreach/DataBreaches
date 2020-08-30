@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Geographic locations, Income levels, N
 
 ## Free download Link
 
-[Paytm breach Free Download Link](https://link-to.net/1229997/446.3672930299284/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0x4aXI4YmN1OXFOTjNtZy9wYXl0bS5jb20vZmlsZQ==)
+[Paytm breach Free Download Link](https://tinyurl.com/2b2k277t)
