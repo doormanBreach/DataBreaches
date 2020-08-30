@@ -12,4 +12,4 @@ In August 2020, the Indian payment provider <a href="https://economictimes.india
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/184.9216824220672/dynamic/?r=cGF5dG0uY29t)
+[Download Link](https://link-to.net/1229997/835.3949790038017/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pDQngweFk0Rm9NQnpxcy9wYXl0bS5jb20vZmlsZQ==)
