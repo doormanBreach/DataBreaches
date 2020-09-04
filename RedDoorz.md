@@ -12,4 +12,4 @@ In September 2020, the hotel management &amp; booking platform <a href="https://
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/870.7977594546239/dynamic/?r=cmVkZG9vcnouY29t)
+[Download Link](https://link-to.net/1229997/508.7302759605181/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3ZXUkl1R1ltRzBiVDUzWC9yZWRkb29yei5jb20vZmlsZQ==)
