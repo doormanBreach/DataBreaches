@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Occupations, Passwords, Phone n
 
 ## Free download Link
 
-[RedDoorz breach Free Download Link](https://link-to.net/1229997/566.6048605641411/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3RaaHFmWmVZclR1VHc3WS9yZWRkb29yei5jb20vZmlsZQ==)
+[RedDoorz breach Free Download Link](https://tinyurl.com/2b2k277t)
