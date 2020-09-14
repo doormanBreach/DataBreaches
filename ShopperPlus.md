@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Phone numbers, Physical address
 
 ## Free download Link
 
-[ShopperPlus breach Free Download Link](https://link-to.net/1229997/366.9755971271319/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2RqeFVnekt4VHYzQnM5Si9zaG9wcGVycGx1cy5jYS9maWxl)
+[ShopperPlus breach Free Download Link](https://tinyurl.com/2b2k277t)
