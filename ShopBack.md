@@ -12,4 +12,4 @@ In September 2020, the cashback reward program <a href="https://support.shopback
 
 ## Links
 
-https://link-to.net/1229997/199.27306119727473/dynamic/?r=c2hvcGJhY2suY29t
+[Download Link](https://link-to.net/1229997/983.293170929216/dynamic/?r=c2hvcGJhY2suY29t)
