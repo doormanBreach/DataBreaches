@@ -12,4 +12,4 @@ Email addresses, Geographic locations, Names, Passwords, Phone numbers
 
 ## Free download Link
 
-[ShopBack breach Free Download Link](https://link-to.net/1229997/643.4913311628667/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3l6SVRiTWl2ZUVTR3YzeC9zaG9wYmFjay5jb20vZmlsZQ==)
+[ShopBack breach Free Download Link](https://tinyurl.com/2b2k277t)
