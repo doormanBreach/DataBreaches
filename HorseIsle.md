@@ -12,4 +12,4 @@ Email addresses, Genders, IP addresses, Names, Passwords, Purchases, Usernames
 
 ## Free download Link
 
-[HorseIsle breach Free Download Link](https://link-to.net/1229997/902.9517013097485/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZ2ZVhIMmVBYUU3Rk5HTS9ob3JzZWlzbGUuY29tL2ZpbGU=)
+[HorseIsle breach Free Download Link](https://tinyurl.com/2b2k277t)
