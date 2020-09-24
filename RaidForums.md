@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[RaidForums breach Free Download Link](https://link-to.net/1229997/184.08093708567498/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3lGVWhqWE1lY0FxSm9RSi9yYWlkZm9ydW1zLmNvbS9maWxl)
+[RaidForums breach Free Download Link](https://tinyurl.com/2b2k277t)
