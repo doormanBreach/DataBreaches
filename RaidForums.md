@@ -12,4 +12,4 @@ In May 2023, <a href="https://www.bleepingcomputer.com/news/security/new-hacking
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/303.4887777878056/dynamic/?r=cmFpZGZvcnVtcy5jb20=)
+[Download Link](https://link-to.net/1229997/662.2778546592032/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2hDYjFBU1YyN0x1WmdoRC9yYWlkZm9ydW1zLmNvbS9maWxl)
