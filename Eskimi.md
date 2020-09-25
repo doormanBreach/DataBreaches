@@ -12,4 +12,4 @@ In late 2020, the AdTech platform <a href="https://www.riskbasedsecurity.com/202
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/611.2319065750413/dynamic/?r=ZXNraW1pLmNvbQ==)
+[Download Link](https://link-to.net/1229997/486.6959989200613/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VnQjROc2pFTkxNSU5laS9lc2tpbWkuY29tL2ZpbGU=)
