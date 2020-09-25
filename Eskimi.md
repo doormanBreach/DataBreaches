@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Geographic locations, Passwords, Usern
 
 ## Free download Link
 
-[Eskimi breach Free Download Link](https://link-to.net/1229997/267.10686170944564/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0lJVWx0VGswWHVseWRQWi9lc2tpbWkuY29tL2ZpbGU=)
+[Eskimi breach Free Download Link](https://tinyurl.com/2b2k277t)
