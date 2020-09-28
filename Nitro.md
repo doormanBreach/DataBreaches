@@ -12,4 +12,4 @@ In September 2020, <a href="https://www.bleepingcomputer.com/news/security/massi
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/16.1742200697349/dynamic/?r=Z29uaXRyby5jb20=)
+[Download Link](https://link-to.net/1229997/679.5919171295106/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRXRUtZa3hMbWlwYThwdC9nb25pdHJvLmNvbS9maWxl)
