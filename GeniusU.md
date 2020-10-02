@@ -12,4 +12,4 @@ In November 2020, <a href="https://www.databreaches.net/more-drama-on-a-forum-an
 
 ## Links
 
-https://link-to.net/1229997/986.4274143844493/dynamic/?r=Z2VuaXVzdS5jb20=
+[Download Link](https://link-to.net/1229997/926.8102416189622/dynamic/?r=Z2VuaXVzdS5jb20=)
