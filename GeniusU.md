@@ -12,4 +12,4 @@ Email addresses, Genders, IP addresses, Names, Passwords, Social media profiles
 
 ## Free download Link
 
-[GeniusU breach Free Download Link](https://link-to.net/1229997/536.3636279876079/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ltakpodnVLRXRPd2lNYy9nZW5pdXN1LmNvbS9maWxl)
+[GeniusU breach Free Download Link](https://tinyurl.com/2b2k277t)
