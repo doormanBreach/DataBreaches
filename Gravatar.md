@@ -12,4 +12,4 @@ In October 2020, <a href="https://www.bleepingcomputer.com/news/security/online-
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/132.3479365370338/dynamic/?r=Z3JhdmF0YXIuY29t)
+[Download Link](https://link-to.net/1229997/496.65185656787025/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3JEMlRQaFNrelk5aVNKUy9ncmF2YXRhci5jb20vZmlsZQ==)
