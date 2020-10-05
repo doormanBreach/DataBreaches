@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[Chowbus breach Free Download Link](https://link-to.net/1229997/164.61127295951272/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1V0WENGYkRpUnlsWjRUSS9jaG93YnVzLmNvbS9maWxl)
+[Chowbus breach Free Download Link](https://tinyurl.com/2b2k277t)
