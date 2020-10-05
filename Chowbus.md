@@ -12,4 +12,4 @@ In October 2020, the Asian food delivery app <a href="https://www.reddit.com/r/U
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/386.37275076023235/dynamic/?r=Y2hvd2J1cy5jb20=)
+[Download Link](https://link-to.net/1229997/797.0220714201067/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZwVEViZVByTEtYMjl5NS9jaG93YnVzLmNvbS9maWxl)
