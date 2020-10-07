@@ -12,4 +12,4 @@ In October 2020, the online photo editing application <a href="https://www.bleep
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/747.67844509652/dynamic/?r=cGl4bHIuY29t)
+[Download Link](https://link-to.net/1229997/250.87610560840488/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L29kaDZMS21nbVVSOFBOWS9waXhsci5jb20vZmlsZQ==)
