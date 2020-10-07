@@ -12,4 +12,4 @@ Email addresses, Geographic locations, Names, Passwords, Social media profiles
 
 ## Free download Link
 
-[Pixlr breach Free Download Link](https://link-to.net/1229997/94.6345325186606/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3Lzd4U0NqZ21KdlB6OTl1MS9waXhsci5jb20vZmlsZQ==)
+[Pixlr breach Free Download Link](https://tinyurl.com/2b2k277t)
