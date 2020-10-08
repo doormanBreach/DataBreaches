@@ -12,4 +12,4 @@ In October 2020, the VPN provider <a href="https://threatpost.com/hacked-data-li
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/54.89477047473079/dynamic/?r=bGltZXZwbi5jb20=)
+[Download Link](https://link-to.net/1229997/974.1845513708078/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2lwcVczUjA0cDIxWEFiNC9saW1ldnBuLmNvbS9maWxl)
