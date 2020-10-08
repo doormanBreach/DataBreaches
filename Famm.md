@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Passwords
 
 ## Free download Link
 
-[Famm breach Free Download Link](https://link-to.net/1229997/583.8390740824274/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0RnRUk0d3ZZYW1rSWoydi9mYW1tLnVzL2ZpbGU=)
+[Famm breach Free Download Link](https://tinyurl.com/2b2k277t)
