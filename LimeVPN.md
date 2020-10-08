@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Passwords, Phone numbers, Physical address
 
 ## Free download Link
 
-[LimeVPN breach Free Download Link](https://link-to.net/1229997/817.4175180070754/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3dTUjVzeHV5c0Q5ZnJGSy9saW1ldnBuLmNvbS9maWxl)
+[LimeVPN breach Free Download Link](https://tinyurl.com/2b2k277t)
