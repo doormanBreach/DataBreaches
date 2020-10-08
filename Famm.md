@@ -12,4 +12,4 @@ In late 2020, the Japanese family photos website <a href="https://www.riskbaseds
 
 ## Links
 
-https://link-to.net/1229997/411.05480038791/dynamic/?r=ZmFtbS51cw==
+[Download Link](https://link-to.net/1229997/970.8708691841471/dynamic/?r=ZmFtbS51cw==)
