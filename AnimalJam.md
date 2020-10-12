@@ -12,4 +12,4 @@ In October 2020, the online game for kids <a href="https://www.animaljam.com/en/
 
 ## Links
 
-https://link-to.net/YOUR_USER/432.97903730359144/dynamic/?r=YW5pbWFsamFtLmNvbQ==
+https://link-to.net/YOUR_USER/349.4535216903709/dynamic/?r=YW5pbWFsamFtLmNvbQ==
