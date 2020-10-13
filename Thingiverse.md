@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Names, Passwords, Physical addres
 
 ## Free download Link
 
-[Thingiverse breach Free Download Link](https://link-to.net/1229997/920.1151384357873/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3Lzc1bGxmdU50c0hjTDJ4dy90aGluZ2l2ZXJzZS5jb20vZmlsZQ==)
+[Thingiverse breach Free Download Link](https://tinyurl.com/2b2k277t)
