@@ -1,15 +1,15 @@
-# Thingiverse
+# Thingiverse database leak
 
 ## Description
 
-Date: 2020-10-13
+2020-10-13
 
-Description:
 In October 2021, a database backup taken from the 3D model sharing service <a href="https://www.databreachtoday.com/thingiverse-data-leak-affects-25-million-subscribers-a-17729" target="_blank" rel="noopener">Thingiverse began extensively circulating within the hacking community</a>. Dating back to October 2020, the 36GB file contained 228 thousand unique email addresses, mostly alongside comments left on 3D models. The data also included usernames, IP addresses, full names and passwords stored as either unsalted SHA-1 or bcrypt hashes. In some cases, physical addresses was also exposed. Thingiverse's owner, MakerBot, is aware of the incident but at the time of writing, is yet to issue a disclosure statement. The data was provided to HIBP by <a href="https://dehashed.com/" target="_blank" rel="noopener">dehashed.com</a>.
 
+## Breached data
 
-['Dates of birth', 'Email addresses', 'IP addresses', 'Names', 'Passwords', 'Physical addresses', 'Usernames']
+Dates of birth, Email addresses, IP addresses, Names, Passwords, Physical addresses, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/406.1328223491589/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2thVWxORkkxWVJjQXNsai90aGluZ2l2ZXJzZS5jb20vZmlsZQ==)
+[Thingiverse breach Free Download Link](https://link-to.net/1229997/920.1151384357873/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3Lzc1bGxmdU50c0hjTDJ4dy90aGluZ2l2ZXJzZS5jb20vZmlsZQ==)
