@@ -12,4 +12,4 @@ In October 2021, a database backup taken from the 3D model sharing service <a hr
 
 ## Links
 
-https://link-to.net/1229997/886.8880365128626/dynamic/?r=dGhpbmdpdmVyc2UuY29t
+[Download Link](https://link-to.net/1229997/900.2001097584144/dynamic/?r=dGhpbmdpdmVyc2UuY29t)
