@@ -12,4 +12,4 @@ In October 2020, the Indian grocery platform <a href="https://indianexpress.com/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/359.3730010764863/dynamic/?r=YmlnYmFza2V0LmNvbQ==)
+[Download Link](https://link-to.net/1229997/602.4596348679319/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1J1NGxWUHJ4VFVqa1l3Qi9iaWdiYXNrZXQuY29tL2ZpbGU=)
