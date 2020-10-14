@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Names, Passwords, Phone numbers, 
 
 ## Free download Link
 
-[bigbasket breach Free Download Link](https://link-to.net/1229997/2.7883864888504917/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1R1SnlDQ2JTcFR3RTlOUy9iaWdiYXNrZXQuY29tL2ZpbGU=)
+[bigbasket breach Free Download Link](https://tinyurl.com/2b2k277t)
