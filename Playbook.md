@@ -12,4 +12,4 @@ In September 2021, <a href="https://www.bankinfosecurity.com/articles.php?art_id
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/190.65736850932657/dynamic/?r=cGxheWJvb2sudmM=)
+[Download Link](https://link-to.net/1229997/582.8116436288243/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0o2eGRsdzN2bWJxQ1cwbC9wbGF5Ym9vay52Yy9maWxl)
