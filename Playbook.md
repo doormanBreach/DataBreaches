@@ -12,4 +12,4 @@ Email addresses, Job titles, Names, Passwords, Phone numbers, Social media profi
 
 ## Free download Link
 
-[Playbook breach Free Download Link](https://link-to.net/1229997/578.8695268776378/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0x6RTd5S0x1U3JqcnV2Ri9wbGF5Ym9vay52Yy9maWxl)
+[Playbook breach Free Download Link](https://tinyurl.com/2b2k277t)
