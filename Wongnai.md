@@ -12,4 +12,4 @@ In October 2020, <a href="https://www.bleepingcomputer.com/news/security/hacker-
 
 ## Links
 
-https://link-to.net/1229997/643.1488502689361/dynamic/?r=d29uZ25haS5jb20=
+[Download Link](https://link-to.net/1229997/943.3447355358797/dynamic/?r=d29uZ25haS5jb20=)
