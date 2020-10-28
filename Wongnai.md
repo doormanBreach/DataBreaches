@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Geographic locations, IP addresses, Names, Pass
 
 ## Free download Link
 
-[Wongnai breach Free Download Link](https://link-to.net/1229997/915.8815466009498/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzkwamZUZkxKaTNGWDdMNS93b25nbmFpLmNvbS9maWxl)
+[Wongnai breach Free Download Link](https://tinyurl.com/2b2k277t)
