@@ -12,4 +12,4 @@ In November 2020, <a href="https://www.troyhunt.com/inside-the-cit0day-breach-co
 
 ## Links
 
-https://link-to.net/1229997/131.9039333149701/dynamic/?r=Y2l0MGRheS5pbg==
+[Download Link](https://link-to.net/1229997/960.6376824968761/dynamic/?r=Y2l0MGRheS5pbg==)
