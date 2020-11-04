@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Cit0day breach Free Download Link](https://link-to.net/1229997/498.019247268369/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzA3TVZvWmNuRkVTbGlweS9jaXQwZGF5LmluL2ZpbGU=)
+[Cit0day breach Free Download Link](https://tinyurl.com/2b2k277t)
