@@ -12,4 +12,4 @@ In December 2020, India's &quot;largest esports community&quot; <a href="http://
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/398.5617410438761/dynamic/?r=Z2FtaW5nbW9uay5jb20=)
+[Download Link](https://link-to.net/1229997/418.41447494652095/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L21FMFhubUFIc0c0UG9VNy9nYW1pbmdtb25rLmNvbS9maWxl)
