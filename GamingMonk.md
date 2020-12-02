@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names, Passwords, Phone numbers, Usernames
 
 ## Free download Link
 
-[GamingMonk breach Free Download Link](https://link-to.net/1229997/536.0056369516883/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L21NanA1QTJtWDF1REZvei9nYW1pbmdtb25rLmNvbS9maWxl)
+[GamingMonk breach Free Download Link](https://tinyurl.com/2b2k277t)
