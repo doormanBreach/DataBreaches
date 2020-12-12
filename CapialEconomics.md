@@ -12,4 +12,4 @@ Email addresses, Employers, Job titles, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[CapialEconomics breach Free Download Link](https://link-to.net/1229997/138.8448678465446/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2g5M1VpMjltZjRMdjBIVS9jYXBpdGFsZWNvbm9taWNzLmNvbS9maWxl)
+[CapialEconomics breach Free Download Link](https://tinyurl.com/2b2k277t)
