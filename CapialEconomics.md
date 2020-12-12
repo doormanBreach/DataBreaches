@@ -12,4 +12,4 @@ In December 2020, the economic research company <a href="https://securityaffairs
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/230.5062488791021/dynamic/?r=Y2FwaXRhbGVjb25vbWljcy5jb20=)
+[Download Link](https://link-to.net/1229997/181.64999126921788/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3dGVU5sTjdRbGUyWFRrQy9jYXBpdGFsZWNvbm9taWNzLmNvbS9maWxl)
