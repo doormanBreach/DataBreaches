@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names, Passwords, Phone numbers, Physical addre
 
 ## Free download Link
 
-[PeoplesEnergy breach Free Download Link](https://link-to.net/1229997/243.53620644153617/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1dVT2JCOFVvR2FUUlBLay9wZW9wbGVzZW5lcmd5LmNvLnVrL2ZpbGU=)
+[PeoplesEnergy breach Free Download Link](https://tinyurl.com/2b2k277t)
