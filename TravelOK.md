@@ -12,4 +12,4 @@ Age groups, Dates of birth, Email addresses, Genders, Names, Physical addresses
 
 ## Free download Link
 
-[TravelOK breach Free Download Link](https://link-to.net/1229997/970.3538298465339/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJjWkgwWGQxRXQwT2NkWS90cmF2ZWxvay5jb20vZmlsZQ==)
+[TravelOK breach Free Download Link](https://tinyurl.com/2b2k277t)
