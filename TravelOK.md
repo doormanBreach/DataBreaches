@@ -12,4 +12,4 @@ In December 2020, <a href="https://tulsaworld.com/news/local/state-tourism-depar
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/420.70145477213185/dynamic/?r=dHJhdmVsb2suY29t)
+[Download Link](https://link-to.net/1229997/372.4713663733582/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3psUlVMa1ROV2VscW9RMi90cmF2ZWxvay5jb20vZmlsZQ==)
