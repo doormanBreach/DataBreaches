@@ -12,4 +12,4 @@ In July 2023, <a href="https://twitter.com/troyhunt/status/1681163196110098432" 
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/863.5001396887642/dynamic/?r=cmRjZ2xvYmFsLmNvbQ==)
+[Download Link](https://link-to.net/1229997/910.098942191476/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzgxNE0zRml0Y2dQQWttNi9yZGNnbG9iYWwuY29tL2ZpbGU=)
