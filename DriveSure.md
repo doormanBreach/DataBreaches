@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers, Physical addresses, Vehicle de
 
 ## Free download Link
 
-[DriveSure breach Free Download Link](https://link-to.net/1229997/905.0773703801118/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2t4N1JKcFB4ZVBwY3ZHcC9kcml2ZXN1cmUuY29tL2ZpbGU=)
+[DriveSure breach Free Download Link](https://tinyurl.com/2b2k277t)
