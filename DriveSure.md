@@ -12,4 +12,4 @@ In December 2020, the car dealership service provider <a href="https://www.riskb
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/362.7179896044862/dynamic/?r=ZHJpdmVzdXJlLmNvbQ==)
+[Download Link](https://link-to.net/1229997/305.2931301358137/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1JRaEQ4QXlYSlU4cjNDWC9kcml2ZXN1cmUuY29tL2ZpbGU=)
