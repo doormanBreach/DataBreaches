@@ -12,4 +12,4 @@ In December 2020, the dental practice management service <a href="https://www.ri
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/215.79823562214239/dynamic/?r=bW1nZnVzaW9uLmNvbQ==)
+[Download Link](https://link-to.net/1229997/283.07948577164467/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJ3bzE0QU1LbW05enlDdC9tbWdmdXNpb24uY29tL2ZpbGU=)
