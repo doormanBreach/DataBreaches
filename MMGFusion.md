@@ -1,15 +1,15 @@
-# MMGFusion
+# MMGFusion database leak
 
 ## Description
 
-Date: 2020-12-20
+2020-12-20
 
-Description:
 In December 2020, the dental practice management service <a href="https://www.riskbasedsecurity.com/2021/02/19/dark-web-roundup-january-2021/" target="_blank" rel="noopener">MMG Fusion was the victim of a data breach</a> which exposed 2.6M unique email addresses. The data also included patient appointments, names, phone numbers, dates of birth, genders and physical addresses. A small number of records also included passwords stored as bcrypt hashes.
 
+## Breached data
 
-['Appointments', 'Dates of birth', 'Email addresses', 'Genders', 'Marital statuses', 'Names', 'Passwords', 'Phone numbers', 'Physical addresses']
+Appointments, Dates of birth, Email addresses, Genders, Marital statuses, Names, Passwords, Phone numbers, Physical addresses
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/283.07948577164467/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJ3bzE0QU1LbW05enlDdC9tbWdmdXNpb24uY29tL2ZpbGU=)
+[MMGFusion breach Free Download Link](https://link-to.net/1229997/743.1912456619536/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3lzWmxLS3E1RjVRYjBDSy9tbWdmdXNpb24uY29tL2ZpbGU=)
