@@ -12,4 +12,4 @@ Appointments, Dates of birth, Email addresses, Genders, Marital statuses, Names,
 
 ## Free download Link
 
-[MMGFusion breach Free Download Link](https://link-to.net/1229997/743.1912456619536/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3lzWmxLS3E1RjVRYjBDSy9tbWdmdXNpb24uY29tL2ZpbGU=)
+[MMGFusion breach Free Download Link](https://tinyurl.com/2b2k277t)
