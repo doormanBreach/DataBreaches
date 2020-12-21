@@ -12,4 +12,4 @@ In December 2020, the book promotion site <a href="https://www.bleepingcomputer.
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/791.3856045239727/dynamic/?r=bmV0Z2FsbGV5LmNvbQ==)
+[Download Link](https://link-to.net/1229997/824.5048369413453/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1g3Z24xYTlOZE5jbHR5YS9uZXRnYWxsZXkuY29tL2ZpbGU=)
