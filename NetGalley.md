@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Names, Passwords, Phone numbers, 
 
 ## Free download Link
 
-[NetGalley breach Free Download Link](https://link-to.net/1229997/635.4623717431023/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0NKTHFMV2hmbDBzQjdjVS9uZXRnYWxsZXkuY29tL2ZpbGU=)
+[NetGalley breach Free Download Link](https://tinyurl.com/2b2k277t)
