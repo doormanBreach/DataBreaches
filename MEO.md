@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers, Physical addresses, Purchases,
 
 ## Free download Link
 
-[MEO breach Free Download Link](https://link-to.net/1229997/791.0312300492463/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0NqRmdlZVBJZlZuWTNaNS9tZW9haXIuY29tL2ZpbGU=)
+[MEO breach Free Download Link](https://tinyurl.com/2b2k277t)
