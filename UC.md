@@ -12,4 +12,4 @@ In December 2020, <a href="https://portswigger.net/daily-swig/uc-berkeley-confir
 
 ## Links
 
-https://link-to.net/1229997/785.0696507322461/dynamic/?r=dW5pdmVyc2l0eW9mY2FsaWZvcm5pYS5lZHU=
+[Download Link](https://link-to.net/1229997/837.9533610896692/dynamic/?r=dW5pdmVyc2l0eW9mY2FsaWZvcm5pYS5lZHU=)
