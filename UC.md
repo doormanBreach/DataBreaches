@@ -12,4 +12,4 @@ Dates of birth, Education levels, Email addresses, Ethnicities, Genders, Job tit
 
 ## Free download Link
 
-[UC breach Free Download Link](https://link-to.net/1229997/702.2159853237857/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzdKWW9ORHdkVXp5d3BTdS91bml2ZXJzaXR5b2ZjYWxpZm9ybmlhLmVkdS9maWxl)
+[UC breach Free Download Link](https://tinyurl.com/2b2k277t)
