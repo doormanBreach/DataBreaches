@@ -12,4 +12,4 @@ In early 2023, a corpus of data sourced from the New Zealand based face mask com
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/962.8895693079494/dynamic/?r=bWVvYWlyLmNvbQ==)
+[Download Link](https://link-to.net/1229997/100.20481730658159/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3Naa2xRcVd1bk83eWNYZS9tZW9haXIuY29tL2ZpbGU=)
