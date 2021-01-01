@@ -12,4 +12,4 @@ Email addresses, Names, Social media profiles, Usernames
 
 ## Free download Link
 
-[Twitter200M breach Free Download Link](https://link-to.net/1229997/310.873605167135/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZRcVEyZDVER0JWeXA0dS90d2l0dGVyLmNvbS9maWxl)
+[Twitter200M breach Free Download Link](https://tinyurl.com/2b2k277t)
