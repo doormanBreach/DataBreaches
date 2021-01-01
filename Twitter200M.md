@@ -12,4 +12,4 @@ In early 2023, <a href="https://www.bleepingcomputer.com/news/security/200-milli
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/475.54351972918795/dynamic/?r=dHdpdHRlci5jb20=)
+[Download Link](https://link-to.net/1229997/77.41266894776811/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzM4SnVJdWplM1luV0FjUy90d2l0dGVyLmNvbS9maWxl)
