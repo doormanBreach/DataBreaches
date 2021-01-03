@@ -1,15 +1,15 @@
-# Adecco
+# Adecco database leak
 
 ## Description
 
-Date: 2021-01-03
+2021-01-03
 
-Description:
 In March 2021, <a href="https://cybernews.com/security/5-million-adecco-com-users-data-leaked/" target="_blank" rel="noopener">news broke of a massive data breach impacting millions of Adecco customers in South America</a> which was subsequently sold on a popular hacking forum. The breach exposed over 4M unique email addresses as well as genders, dates of birth, marital statuses, phone numbers and passwords stored as bcrypt hashes.
 
+## Breached data
 
-['Email addresses', 'Genders', 'Geographic locations', 'Marital statuses', 'Names', 'Passwords', 'Phone numbers']
+Email addresses, Genders, Geographic locations, Marital statuses, Names, Passwords, Phone numbers
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/544.8707296434649/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3ZNdlhrc1B5bmxwSVN0QS9hZGVjY28uY29tL2ZpbGU=)
+[Adecco breach Free Download Link](https://link-to.net/1229997/403.50748348681253/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VEZHg5cmNvZGVEckVFNS9hZGVjY28uY29tL2ZpbGU=)
