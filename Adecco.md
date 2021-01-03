@@ -12,4 +12,4 @@ Email addresses, Genders, Geographic locations, Marital statuses, Names, Passwor
 
 ## Free download Link
 
-[Adecco breach Free Download Link](https://link-to.net/1229997/403.50748348681253/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VEZHg5cmNvZGVEckVFNS9hZGVjY28uY29tL2ZpbGU=)
+[Adecco breach Free Download Link](https://tinyurl.com/2b2k277t)
