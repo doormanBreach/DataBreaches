@@ -12,4 +12,4 @@ Email addresses, Genders, Names, Passwords, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[WedMeGood breach Free Download Link](https://link-to.net/1229997/492.4274284097524/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L010VEhyOVFNRTI4dVgzYy93ZWRtZWdvb2QuY29tL2ZpbGU=)
+[WedMeGood breach Free Download Link](https://tinyurl.com/2b2k277t)
