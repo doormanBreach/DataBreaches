@@ -12,4 +12,4 @@ In January 2021, the Indian wedding planning platform <a href="https://www.thene
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/896.1391789786259/dynamic/?r=d2VkbWVnb29kLmNvbQ==)
+[Download Link](https://link-to.net/1229997/119.26705639392088/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09SQTRPSk81d21IQkdnVy93ZWRtZWdvb2QuY29tL2ZpbGU=)
