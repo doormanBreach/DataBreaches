@@ -12,4 +12,4 @@ In January 2021, the French travel company <a href="https://www.riskbasedsecurit
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/567.5890459299579/dynamic/?r=Ym91cnNlLWRlcy12b2xzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/797.9874404496335/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3FDQThrbEY0QnJoaVJxRC9ib3Vyc2UtZGVzLXZvbHMuY29tL2ZpbGU=)
