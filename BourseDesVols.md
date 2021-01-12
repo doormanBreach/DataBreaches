@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Flights taken, IP addresses, Names, Phone numbe
 
 ## Free download Link
 
-[BourseDesVols breach Free Download Link](https://link-to.net/1229997/724.6684088407247/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzBaWnh0NGtkcGRyUmxQTi9ib3Vyc2UtZGVzLXZvbHMuY29tL2ZpbGU=)
+[BourseDesVols breach Free Download Link](https://tinyurl.com/2b2k277t)
