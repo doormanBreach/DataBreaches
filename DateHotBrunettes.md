@@ -12,4 +12,4 @@ In January 2021, the now defunct website Date Hot Brunettes which provided a ser
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/214.62606768748893/dynamic/?r=ZGF0ZWhvdGJydW5ldHRlcy5jb20=)
+[Download Link](https://link-to.net/1229997/762.3187230333493/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZBU2V3ck53NmYyRWhlei9kYXRlaG90YnJ1bmV0dGVzLmNvbS9maWxl)
