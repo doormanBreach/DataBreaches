@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names, Partial credit card data, Passwords, Pho
 
 ## Free download Link
 
-[GunsDotCom breach Free Download Link](https://link-to.net/1229997/8.229622980417183/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1VINVJjeWVmNGNscTk4VS9ndW5zLmNvbS9maWxl)
+[GunsDotCom breach Free Download Link](https://tinyurl.com/2b2k277t)
