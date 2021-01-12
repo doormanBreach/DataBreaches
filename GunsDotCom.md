@@ -12,4 +12,4 @@ In January 2021, the firearms website <a href="https://gizmodo.com/guns-com-gets
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/776.1944066861587/dynamic/?r=Z3Vucy5jb20=)
+[Download Link](https://link-to.net/1229997/384.56631299258913/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1IyWHg4Q1c0b0M1M3dJdC9ndW5zLmNvbS9maWxl)
