@@ -12,4 +12,4 @@ In January 2021, the quiz website <a href="https://dailyquiz.me/" target="_blank
 
 ## Links
 
-https://link-to.net/YOUR_USER/926.5292637476656/dynamic/?r=ZGFpbHlxdWl6Lm1l
+https://link-to.net/YOUR_USER/936.5510077527725/dynamic/?r=ZGFpbHlxdWl6Lm1l
