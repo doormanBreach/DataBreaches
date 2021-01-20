@@ -12,4 +12,4 @@ Bank account numbers, Dates of birth, Email addresses, Genders, Names, Partial c
 
 ## Free download Link
 
-[Oxfam breach Free Download Link](https://link-to.net/1229997/720.5813421800631/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2l6RHhHQkhDakFMSjdpay9veGZhbS5vcmcuYXUvZmlsZQ==)
+[Oxfam breach Free Download Link](https://tinyurl.com/2b2k277t)
