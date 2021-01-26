@@ -12,4 +12,4 @@ Bank account numbers, Credit status information, Dates of birth, Email addresses
 
 ## Free download Link
 
-[Astoria breach Free Download Link](https://link-to.net/1229997/342.59950156713035/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3FZbFNiTXNVaFN5c2x5bC9hc3RvcmlhY29tcGFueS5jb20vZmlsZQ==)
+[Astoria breach Free Download Link](https://tinyurl.com/2b2k277t)
