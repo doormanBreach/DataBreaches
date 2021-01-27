@@ -12,4 +12,4 @@ In January 2021, <a href="https://www.troyhunt.com/data-from-the-emotet-malware-
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/581.6169323725452/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/641.7792168457921/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3BoVU14d0QyT3VLcTZFcy8vZmlsZQ==)
