@@ -12,4 +12,4 @@ In January 2021, the Indian book trading website <a href="https://www.opindia.co
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/542.5617827482868/dynamic/?r=Ym9va2Nob3IuY29t)
+[Download Link](https://link-to.net/1229997/71.93206815757225/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3dnY2pVVDUxSHVmVFBQMS9ib29rY2hvci5jb20vZmlsZQ==)
