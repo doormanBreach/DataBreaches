@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, IP addresses, Names, Passwords, Phone 
 
 ## Free download Link
 
-[Bookchor breach Free Download Link](https://link-to.net/1229997/630.4791588749187/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2Zrc05RRXY5RzI0VUpuaC9ib29rY2hvci5jb20vZmlsZQ==)
+[Bookchor breach Free Download Link](https://tinyurl.com/2b2k277t)
