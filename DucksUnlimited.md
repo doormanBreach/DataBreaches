@@ -12,4 +12,4 @@ In mid-2021, <a href="https://www.riskbasedsecurity.com/2021/06/14/dark-web-roun
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/343.9368404111709/dynamic/?r=ZHVja3Mub3Jn)
+[Download Link](https://link-to.net/1229997/534.30614534912/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2FZc29taUpSRGthZGdEMi9kdWNrcy5vcmcvZmlsZQ==)
