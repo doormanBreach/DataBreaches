@@ -12,4 +12,4 @@ Browser user agent details, Email addresses, IP addresses, Names, Passwords
 
 ## Free download Link
 
-[Raychat breach Free Download Link](https://link-to.net/1229997/291.7902847309916/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1daR1Nid0lvNkZxbTA4Qi9yYXljaGF0LmlyL2ZpbGU=)
+[Raychat breach Free Download Link](https://tinyurl.com/2b2k277t)
