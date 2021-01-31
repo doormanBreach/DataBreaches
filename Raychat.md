@@ -12,4 +12,4 @@ In January 2021, the now defunct Iranian social media platform <a href="https://
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/569.8759716080568/dynamic/?r=cmF5Y2hhdC5pcg==)
+[Download Link](https://link-to.net/1229997/963.9098084002044/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzduNGtVTXhqVG9sQ1NwMy9yYXljaGF0LmlyL2ZpbGU=)
