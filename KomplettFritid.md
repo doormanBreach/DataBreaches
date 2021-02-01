@@ -12,4 +12,4 @@ In January 2023, <a href="https://www.digi.no/artikler/selger-datalekkasje-med-1
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/983.1606517323864/dynamic/?r=a29tcGxldHRmcml0aWQubm8=)
+[Download Link](https://link-to.net/1229997/936.5324545332444/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2paWE4zWFpzNzgxeXhhbC9rb21wbGV0dGZyaXRpZC5uby9maWxl)
