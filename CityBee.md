@@ -12,4 +12,4 @@ In February 2021, the Lithuanian car-sharing service <a href="https://www.reuter
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/843.0323523636807/dynamic/?r=Y2l0eWJlZS5sdA==)
+[Download Link](https://link-to.net/1229997/659.4888404266516/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L282U1JjdDF3YU1mMlpBWC9jaXR5YmVlLmx0L2ZpbGU=)
