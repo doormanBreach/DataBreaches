@@ -12,4 +12,4 @@ Email addresses, Government issued IDs, Names, Passwords
 
 ## Free download Link
 
-[CityBee breach Free Download Link](https://link-to.net/1229997/518.9067129712483/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0Jaa1B0SjV1Y253ZVdLeS9jaXR5YmVlLmx0L2ZpbGU=)
+[CityBee breach Free Download Link](https://tinyurl.com/2b2k277t)
