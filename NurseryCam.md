@@ -12,4 +12,4 @@ Email addresses
 
 ## Free download Link
 
-[NurseryCam breach Free Download Link](https://link-to.net/1229997/447.2244626823325/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0kzNXZlV04xb2tKR0VTay9udXJzZXJ5Y2FtLmNvLnVrL2ZpbGU=)
+[NurseryCam breach Free Download Link](https://tinyurl.com/2b2k277t)
