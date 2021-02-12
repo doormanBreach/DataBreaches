@@ -12,4 +12,4 @@ In February 2021, <a href="https://www.theregister.com/2021/02/18/nurserycam_sec
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/846.9240658076003/dynamic/?r=bnVyc2VyeWNhbS5jby51aw==)
+[Download Link](https://link-to.net/1229997/869.4483524864581/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJqRzFNVFJYTERJSGRPMS9udXJzZXJ5Y2FtLmNvLnVrL2ZpbGU=)
