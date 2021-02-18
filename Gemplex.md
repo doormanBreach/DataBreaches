@@ -12,4 +12,4 @@ Device information, Email addresses, Names, Passwords, Phone numbers
 
 ## Free download Link
 
-[Gemplex breach Free Download Link](https://link-to.net/1229997/772.7519553044588/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0ZrdTZrMFFaWjljaUFHdy9nZW1wbGV4LnR2L2ZpbGU=)
+[Gemplex breach Free Download Link](https://tinyurl.com/2b2k277t)
