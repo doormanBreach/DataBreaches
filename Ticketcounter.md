@@ -12,4 +12,4 @@ Bank account numbers, Dates of birth, Email addresses, Genders, IP addresses, Na
 
 ## Free download Link
 
-[Ticketcounter breach Free Download Link](https://link-to.net/1229997/691.9200407448448/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0xoMDBqZ1VoMkp3eVR6Yi90aWNrZXRjb3VudGVyLm5sL2ZpbGU=)
+[Ticketcounter breach Free Download Link](https://tinyurl.com/2b2k277t)
