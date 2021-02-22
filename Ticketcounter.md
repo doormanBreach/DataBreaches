@@ -12,4 +12,4 @@ In August 2020, the Dutch ticketing service <a href="https://www.bleepingcompute
 
 ## Links
 
-https://link-to.net/1229997/645.1626343842214/dynamic/?r=dGlja2V0Y291bnRlci5ubA==
+[Download Link](https://link-to.net/1229997/536.5099395002309/dynamic/?r=dGlja2V0Y291bnRlci5ubA==)
