@@ -12,4 +12,4 @@ In February 2021, <a href="https://cybernews.com/security/one-of-the-biggest-and
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/424.50578921994367/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/383.1000137015027/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFqTVFSTmx3clBBQlBzRS8vZmlsZQ==)
