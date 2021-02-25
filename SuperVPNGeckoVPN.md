@@ -12,4 +12,4 @@ Device information, Device serial numbers, Email addresses, Geographic locations
 
 ## Free download Link
 
-[SuperVPNGeckoVPN breach Free Download Link](https://link-to.net/1229997/429.58172197772274/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0NHZFZOWHBIMUpOOUZKci8vZmlsZQ==)
+[SuperVPNGeckoVPN breach Free Download Link](https://tinyurl.com/2b2k277t)
