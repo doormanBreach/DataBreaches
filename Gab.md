@@ -12,4 +12,4 @@ Avatars, Email addresses, Names, Passwords, Private messages, Usernames
 
 ## Free download Link
 
-[Gab breach Free Download Link](https://link-to.net/1229997/678.7500679197451/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25PNk9WTnFyOXZ6WWNrSC9nYWIuY29tL2ZpbGU=)
+[Gab breach Free Download Link](https://tinyurl.com/2b2k277t)
