@@ -12,4 +12,4 @@ In February 2021, the alt-tech social network service <a href="https://www.troyh
 
 ## Links
 
-https://link-to.net/1229997/656.4901197346393/dynamic/?r=Z2FiLmNvbQ==
+[Download Link](https://link-to.net/1229997/71.29260490013934/dynamic/?r=Z2FiLmNvbQ==)
