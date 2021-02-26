@@ -1,15 +1,15 @@
-# Gab
+# Gab database leak
 
 ## Description
 
-Date: 2021-02-26
+2021-02-26
 
-Description:
 In February 2021, the alt-tech social network service <a href="https://www.troyhunt.com/gab-has-been-breached/" target="_blank" rel="noopener">Gab suffered a data breach</a>. The incident exposed almost 70GB of data including 4M user accounts, a small number of private chat logs and a list of public groups and public posts made to the service. Only a small number of accounts included email addresses and / or passwords stored as bcrypt hashes with a total of 66.5k unique email addresses being exposed across the corpus of data.
 
+## Breached data
 
-['Avatars', 'Email addresses', 'Names', 'Passwords', 'Private messages', 'Usernames']
+Avatars, Email addresses, Names, Passwords, Private messages, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/439.0490663556983/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0o4eE9qNGNYM2NlcUJZTi9nYWIuY29tL2ZpbGU=)
+[Gab breach Free Download Link](https://link-to.net/1229997/678.7500679197451/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25PNk9WTnFyOXZ6WWNrSC9nYWIuY29tL2ZpbGU=)
