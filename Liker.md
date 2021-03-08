@@ -12,4 +12,4 @@ Auth tokens, Dates of birth, Education levels, Email addresses, Geographic locat
 
 ## Free download Link
 
-[Liker breach Free Download Link](https://link-to.net/1229997/723.6502951568262/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L041NWRCWXd3WlpkVlVXZC9saWtlci5jb20vZmlsZQ==)
+[Liker breach Free Download Link](https://tinyurl.com/2b2k277t)
