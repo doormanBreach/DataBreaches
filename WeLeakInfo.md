@@ -12,4 +12,4 @@ In March 2021, <a href="https://krebsonsecurity.com/2021/03/weleakinfo-leaked-cu
 
 ## Links
 
-https://link-to.net/1229997/296.30916892334704/dynamic/?r=d2VsZWFraW5mby5jb20=
+[Download Link](https://link-to.net/1229997/530.0085984147302/dynamic/?r=d2VsZWFraW5mby5jb20=)
