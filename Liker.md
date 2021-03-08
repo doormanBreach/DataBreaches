@@ -12,4 +12,4 @@ In March 2021, the self-proclaimed &quot;kinder, smarter social network&quot; <a
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/355.13698408296545/dynamic/?r=bGlrZXIuY29t)
+[Download Link](https://link-to.net/1229997/259.95732403520566/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1BQWTlZMVVQMUxrcmNldi9saWtlci5jb20vZmlsZQ==)
