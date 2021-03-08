@@ -12,4 +12,4 @@ Browser user agent details, Email addresses, Employers, IP addresses, Names, Par
 
 ## Free download Link
 
-[WeLeakInfo breach Free Download Link](https://link-to.net/1229997/207.4817461413736/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1BrVUN1NUxiRmZCRzhSbi93ZWxlYWtpbmZvLmNvbS9maWxl)
+[WeLeakInfo breach Free Download Link](https://tinyurl.com/2b2k277t)
