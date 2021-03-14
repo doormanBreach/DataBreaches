@@ -12,4 +12,4 @@ In March 2021, the Brazilian EdTech company <a href="https://atendimento.descomp
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/316.8394870948382/dynamic/?r=ZGVzY29tcGxpY2EuY29tLmJy)
+[Download Link](https://link-to.net/1229997/547.3188415760454/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2FTcHJrNFNlSnVhQUZKVS9kZXNjb21wbGljYS5jb20uYnIvZmlsZQ==)
