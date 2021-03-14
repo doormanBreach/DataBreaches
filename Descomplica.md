@@ -1,15 +1,15 @@
-# Descomplica
+# Descomplica database leak
 
 ## Description
 
-Date: 2021-03-14
+2021-03-14
 
-Description:
 In March 2021, the Brazilian EdTech company <a href="https://atendimento.descomplica.com.br/hc/pt-br/articles/1500003993042-FAQ-Ataque-cibern%C3%A9tico-14-03" target="_blank" rel="noopener">Descomplica suffered a data breach</a> which was subsequently posted to a popular hacking forum. The data included almost 5 million email addresses, names, the first 6 and last 4 digits and the expiry date of credit cards, purchase histories and password hashes.
 
+## Breached data
 
-['Email addresses', 'Names', 'Partial credit card data', 'Passwords', 'Purchases']
+Email addresses, Names, Partial credit card data, Passwords, Purchases
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/547.3188415760454/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2FTcHJrNFNlSnVhQUZKVS9kZXNjb21wbGljYS5jb20uYnIvZmlsZQ==)
+[Descomplica breach Free Download Link](https://link-to.net/1229997/62.53947195449294/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1BuTFk1d0gxcTBSNHhlNC9kZXNjb21wbGljYS5jb20uYnIvZmlsZQ==)
