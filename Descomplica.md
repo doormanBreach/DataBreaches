@@ -12,4 +12,4 @@ Email addresses, Names, Partial credit card data, Passwords, Purchases
 
 ## Free download Link
 
-[Descomplica breach Free Download Link](https://link-to.net/1229997/62.53947195449294/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1BuTFk1d0gxcTBSNHhlNC9kZXNjb21wbGljYS5jb20uYnIvZmlsZQ==)
+[Descomplica breach Free Download Link](https://tinyurl.com/2b2k277t)
