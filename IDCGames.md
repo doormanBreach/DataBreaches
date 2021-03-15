@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[IDCGames breach Free Download Link](https://link-to.net/1229997/46.390807018520164/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0xSWXc3U1FSM3ZxbkN5bC9pZGNnYW1lcy5jb20vZmlsZQ==)
+[IDCGames breach Free Download Link](https://tinyurl.com/2b2k277t)
