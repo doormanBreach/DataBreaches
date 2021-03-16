@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Phone numbers, Physical address
 
 ## Free download Link
 
-[Luxottica breach Free Download Link](https://link-to.net/1229997/786.3139063992829/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1JLck1aSWxWeGNtVmhCZi9sdXhvdHRpY2EuY29tL2ZpbGU=)
+[Luxottica breach Free Download Link](https://tinyurl.com/2b2k277t)
