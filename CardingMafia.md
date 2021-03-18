@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[CardingMafia breach Free Download Link](https://link-to.net/1229997/187.02985143488382/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFxQmhpVzZ2NDZoeXdOeC9jYXJkbWFmaWEuY2MvZmlsZQ==)
+[CardingMafia breach Free Download Link](https://tinyurl.com/2b2k277t)
