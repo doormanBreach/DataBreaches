@@ -12,4 +12,4 @@ In March 2021, the Carding Mafia forum suffered a data breach that exposed almos
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/92.38748385247197/dynamic/?r=Y2FyZG1hZmlhLmNj)
+[Download Link](https://link-to.net/1229997/742.5360683931809/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1hmVDcwbmNIMXdxM0tMZC9jYXJkbWFmaWEuY2MvZmlsZQ==)
