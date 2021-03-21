@@ -12,4 +12,4 @@ In March 2021, the mobile parking app service <a href="https://krebsonsecurity.c
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/820.785770931984/dynamic/?r=cGFya21vYmlsZS5pbw==)
+[Download Link](https://link-to.net/1229997/505.0505647719188/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0FaSHhrdHloZEtWNDdQSS9wYXJrbW9iaWxlLmlvL2ZpbGU=)
