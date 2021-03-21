@@ -12,4 +12,4 @@ Email addresses, Licence plates, Names, Passwords, Phone numbers
 
 ## Free download Link
 
-[ParkMobile breach Free Download Link](https://link-to.net/1229997/161.86767379784118/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzlwT05XTWRPYjhFR051Ry9wYXJrbW9iaWxlLmlvL2ZpbGU=)
+[ParkMobile breach Free Download Link](https://tinyurl.com/2b2k277t)
