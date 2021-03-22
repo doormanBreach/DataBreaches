@@ -12,4 +12,4 @@ In March 2021, the manga fan site <a href="https://portswigger.net/daily-swig/ma
 
 ## Links
 
-https://link-to.net/YOUR_USER/318.292289508728/dynamic/?r=bWFuZ2FkZXgub3Jn
+https://link-to.net/1229997/693.7198947959669/dynamic/?r=bWFuZ2FkZXgub3Jn
