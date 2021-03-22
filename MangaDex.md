@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[MangaDex breach Free Download Link](https://link-to.net/1229997/305.37644597495006/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0RKcWdRakk0TkVPZHczSS9tYW5nYWRleC5vcmcvZmlsZQ==)
+[MangaDex breach Free Download Link](https://tinyurl.com/2b2k277t)
