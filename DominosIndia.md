@@ -12,4 +12,4 @@ In April 2021, <a href="https://www.bleepingcomputer.com/news/security/dominos-i
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/395.92828533053904/dynamic/?r=ZG9taW5vcy5jby5pbg==)
+[Download Link](https://link-to.net/1229997/125.84079145817928/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L05vMTJYN2Y4dVlFTFlOdS9kb21pbm9zLmNvLmluL2ZpbGU=)
