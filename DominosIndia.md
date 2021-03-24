@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses, Purchases
 
 ## Free download Link
 
-[DominosIndia breach Free Download Link](https://link-to.net/1229997/596.0006924943038/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2hLeW8xeXVUY1pVdVIzVC9kb21pbm9zLmNvLmluL2ZpbGU=)
+[DominosIndia breach Free Download Link](https://tinyurl.com/2b2k277t)
