@@ -12,4 +12,4 @@ Email addresses, Names, Passwords
 
 ## Free download Link
 
-[SlideTeam breach Free Download Link](https://link-to.net/1229997/116.39178288020224/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L054TnBQdVVSQ1hLOWVlZC9zbGlkZXRlYW0ubmV0L2ZpbGU=)
+[SlideTeam breach Free Download Link](https://tinyurl.com/2b2k277t)
