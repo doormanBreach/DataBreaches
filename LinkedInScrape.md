@@ -12,4 +12,4 @@ During the first half of 2021, <a href="https://www.businessinsider.com.au/linke
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/164.90739105492648/dynamic/?r=bGlua2VkaW4uY29t)
+[Download Link](https://link-to.net/1229997/766.4873027471733/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25meGZVN2k1RmVKcm92Qy9saW5rZWRpbi5jb20vZmlsZQ==)
