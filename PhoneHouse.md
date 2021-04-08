@@ -12,4 +12,4 @@ In April 2021, the Spanish retailer <a href="https://thetechzone.online/cyberatt
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/703.815743152579/dynamic/?r=cGhvbmVob3VzZS5lcw==)
+[Download Link](https://link-to.net/1229997/457.829378579494/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2xxWklCOWJVT0gzdEFGQi9waG9uZWhvdXNlLmVzL2ZpbGU=)
