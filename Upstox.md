@@ -12,4 +12,4 @@ In April 2021, Indian brokerage firm <a href="https://www.hackread.com/shinyhunt
 
 ## Links
 
-https://link-to.net/1229997/422.59364942063127/dynamic/?r=dXBzdG94LmNvbQ==
+[Download Link](https://link-to.net/1229997/183.1575641028639/dynamic/?r=dXBzdG94LmNvbQ==)
