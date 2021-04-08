@@ -12,4 +12,4 @@ Bank account numbers, Dates of birth, Email addresses, Family members' names, Ge
 
 ## Free download Link
 
-[Upstox breach Free Download Link](https://link-to.net/1229997/263.18537056048496/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L002WlAwZUY3Z1h6VXpVSS91cHN0b3guY29tL2ZpbGU=)
+[Upstox breach Free Download Link](https://tinyurl.com/2b2k277t)
