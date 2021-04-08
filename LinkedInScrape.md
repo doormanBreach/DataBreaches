@@ -12,4 +12,4 @@ Education levels, Email addresses, Genders, Geographic locations, Job titles, Na
 
 ## Free download Link
 
-[LinkedInScrape breach Free Download Link](https://link-to.net/1229997/933.886167749987/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1M2cWFPWkdpek9SVG9ndi9saW5rZWRpbi5jb20vZmlsZQ==)
+[LinkedInScrape breach Free Download Link](https://tinyurl.com/2b2k277t)
