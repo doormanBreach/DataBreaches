@@ -12,4 +12,4 @@ In April 2021, the account hijacking and SIM swapping forum <a href="https://www
 
 ## Links
 
-https://link-to.net/1229997/531.3892204122001/dynamic/?r=b2d1c2Vycy5jb20=
+[Download Link](https://link-to.net/1229997/675.7866041467637/dynamic/?r=b2d1c2Vycy5jb20=)
