@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Atmeltomo breach Free Download Link](https://link-to.net/1229997/339.97506966939403/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09PZEJRWG1rZkhaN2JtNi9hdG1lbHRvbW8uY29tL2ZpbGU=)
+[Atmeltomo breach Free Download Link](https://tinyurl.com/2b2k277t)
