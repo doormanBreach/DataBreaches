@@ -12,4 +12,4 @@ In April 2021, &quot;Japan's largest e-mail friend search site&quot; <a href="ht
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/442.74761616320546/dynamic/?r=YXRtZWx0b21vLmNvbQ==)
+[Download Link](https://link-to.net/1229997/148.34677756702862/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJWTGxJWGdzbUNBbG91cS9hdG1lbHRvbW8uY29tL2ZpbGU=)
