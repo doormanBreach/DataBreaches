@@ -12,4 +12,4 @@ In April 2021, the the Roblox cheats website <a href="https://wearedevs.net/foru
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/822.9270848004037/dynamic/?r=c2lyaHVydC5uZXQ=)
+[Download Link](https://link-to.net/1229997/590.2740812002734/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzdIb1ZsV004aWlYUlMzay9zaXJodXJ0Lm5ldC9maWxl)
