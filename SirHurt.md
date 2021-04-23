@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[SirHurt breach Free Download Link](https://link-to.net/1229997/166.27266776308724/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2FnY0tWMWVFYm54ejZNOS9zaXJodXJ0Lm5ldC9maWxl)
+[SirHurt breach Free Download Link](https://tinyurl.com/2b2k277t)
