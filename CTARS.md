@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Passwords, Personal health data
 
 ## Free download Link
 
-[CTARS breach Free Download Link](https://link-to.net/1229997/489.3675302488755/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pOZExHUERSWjlPTDM3Ri9jdGFycy5jb20uYXUvZmlsZQ==)
+[CTARS breach Free Download Link](https://tinyurl.com/2b2k277t)
