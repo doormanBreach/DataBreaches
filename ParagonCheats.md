@@ -12,4 +12,4 @@ Browser user agent details, Email addresses, IP addresses, Usernames
 
 ## Free download Link
 
-[ParagonCheats breach Free Download Link](https://link-to.net/1229997/910.4456755868762/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1VpMDhXb29PUjk0WHltTS9wYXJhZ29uY2hlYXRzLmNvbS9maWxl)
+[ParagonCheats breach Free Download Link](https://tinyurl.com/2b2k277t)
