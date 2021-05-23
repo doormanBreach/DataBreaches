@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[IndiaMART breach Free Download Link](https://link-to.net/1229997/58.246889347111534/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3J3SnRpcDVtU21RNTBwOS9pbmRpYW1hcnQuY29tL2ZpbGU=)
+[IndiaMART breach Free Download Link](https://tinyurl.com/2b2k277t)
