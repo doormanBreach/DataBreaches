@@ -12,4 +12,4 @@ In August 2022, <a href="https://meduza.io/news/2022/08/28/v-set-popali-dannye-4
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/309.10857587493535/dynamic/?r=c3RhcnQuZmlsbQ==)
+[Download Link](https://link-to.net/1229997/343.0851489054637/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1dwRkhjMzZBWklmTHprUC9zdGFydC5maWxtL2ZpbGU=)
