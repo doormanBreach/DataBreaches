@@ -12,4 +12,4 @@ Email addresses, Geographic locations, Names, Passwords
 
 ## Free download Link
 
-[Start breach Free Download Link](https://link-to.net/1229997/888.3860106134194/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1FPa1E1Z2ZrWVJVRzdFWi9zdGFydC5maWxtL2ZpbGU=)
+[Start breach Free Download Link](https://tinyurl.com/2b2k277t)
