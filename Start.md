@@ -1,15 +1,15 @@
-# Start
+# Start database leak
 
 ## Description
 
-Date: 2021-06-01
+2021-06-01
 
-Description:
 In August 2022, <a href="https://meduza.io/news/2022/08/28/v-set-popali-dannye-44-millionov-polzovateley-onlayn-kinoteatra-start" target="_blank" rel="noopener">news broke of an attack against the Russian streaming service &quot;START&quot;</a>. The incident led to the exposure of 44M records containing 7.4M unique email addresses. The impacted data also included the subscriber's country and password hash. START subsequently <a href="https://t.me/start_shows/1181" target="_blank" rel="noopener">acknowledged the incident in a Telegram post</a> and stated that the data dated back to 2021.
 
+## Breached data
 
-['Email addresses', 'Geographic locations', 'Names', 'Passwords']
+Email addresses, Geographic locations, Names, Passwords
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/343.0851489054637/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1dwRkhjMzZBWklmTHprUC9zdGFydC5maWxtL2ZpbGU=)
+[Start breach Free Download Link](https://link-to.net/1229997/888.3860106134194/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1FPa1E1Z2ZrWVJVRzdFWi9zdGFydC5maWxtL2ZpbGU=)
