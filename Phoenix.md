@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Phoenix breach Free Download Link](https://link-to.net/1229997/143.12718280722237/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1hwQ1lpSDQ4QUF1Q3NSUi9waG9lbml4aW0uZGRucy5uZXQvZmlsZQ==)
+[Phoenix breach Free Download Link](https://tinyurl.com/2b2k277t)
