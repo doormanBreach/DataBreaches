@@ -12,4 +12,4 @@ In mid-2021, the &quot;vintage messaging reborn&quot; service <a href="https://p
 
 ## Links
 
-https://link-to.net/YOUR_USER/11.505473717372539/dynamic/?r=cGhvZW5peGltLmRkbnMubmV0
+https://link-to.net/YOUR_USER/473.3666539935849/dynamic/?r=cGhvZW5peGltLmRkbnMubmV0
