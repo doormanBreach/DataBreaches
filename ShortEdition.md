@@ -12,4 +12,4 @@ In June 2021, the French publishing house of short literature <a href="https://s
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/353.98958608175354/dynamic/?r=c2hvcnQtZWRpdGlvbi5jb20=)
+[Download Link](https://link-to.net/1229997/848.7795654927176/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2hGZjJEVUNVN21wamF2cC9zaG9ydC1lZGl0aW9uLmNvbS9maWxl)
