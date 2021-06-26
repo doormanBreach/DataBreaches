@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Passwords, Phone numbers, Physi
 
 ## Free download Link
 
-[ShortEdition breach Free Download Link](https://link-to.net/1229997/190.09692650869414/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1Z4U1ZKS0p3QTQ1SFNvNy9zaG9ydC1lZGl0aW9uLmNvbS9maWxl)
+[ShortEdition breach Free Download Link](https://tinyurl.com/2b2k277t)
