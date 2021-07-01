@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[ECCIE breach Free Download Link](https://link-to.net/1229997/879.4673066471222/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2F2TGw5aFhLb0tZQWlHai9lY2NpZS5uZXQvZmlsZQ==)
+[ECCIE breach Free Download Link](https://tinyurl.com/2b2k277t)
