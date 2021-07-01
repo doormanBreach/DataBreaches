@@ -12,4 +12,4 @@ In January 2021, the adult escort forum <a href="https://www.eccie.net/showthrea
 
 ## Links
 
-https://link-to.net/1229997/121.32758708148539/dynamic/?r=ZWNjaWUubmV0
+[Download Link](https://link-to.net/1229997/578.1134951961687/dynamic/?r=ZWNjaWUubmV0)
