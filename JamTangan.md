@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Passwords, Phone numbers, Physical address
 
 ## Free download Link
 
-[JamTangan breach Free Download Link](https://link-to.net/1229997/362.72742680582235/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzdqV3gycko5dXRMdktxNi9qYW10YW5nYW4uY29tL2ZpbGU=)
+[JamTangan breach Free Download Link](https://tinyurl.com/2b2k277t)
