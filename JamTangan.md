@@ -12,4 +12,4 @@ In July 2021, the online Indonesian watch store, Jam Tangan (AKA Machtwatch), su
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/912.7486726665635/dynamic/?r=amFtdGFuZ2FuLmNvbQ==)
+[Download Link](https://link-to.net/1229997/725.5659144336611/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3o2cGE5QnVqWkJkWTVPVy9qYW10YW5nYW4uY29tL2ZpbGU=)
