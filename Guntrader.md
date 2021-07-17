@@ -12,4 +12,4 @@ Browser user agent details, Email addresses, Geographic locations, IP addresses,
 
 ## Free download Link
 
-[Guntrader breach Free Download Link](https://link-to.net/1229997/595.963510636029/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2VxNDdDU0VmU09leE1VNi9ndW50cmFkZXIudWsvZmlsZQ==)
+[Guntrader breach Free Download Link](https://tinyurl.com/2b2k277t)
