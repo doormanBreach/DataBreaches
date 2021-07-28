@@ -12,4 +12,4 @@ In July 2021, the Android applications and games review site <a href="https://ww
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/634.627917437323/dynamic/?r=YW5kcm9pZGxpc3RhLmNvbQ==)
+[Download Link](https://link-to.net/1229997/307.09270554071975/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2JraUtPSWZrRG9rUVQ5di9hbmRyb2lkbGlzdGEuY29tL2ZpbGU=)
