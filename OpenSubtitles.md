@@ -12,4 +12,4 @@ In August 2021, the subtitling website <a href="https://forum.opensubtitles.org/
 
 ## Links
 
-https://link-to.net/1229997/380.97067628584125/dynamic/?r=b3BlbnN1YnRpdGxlcy5vcmc=
+[Download Link](https://link-to.net/1229997/11.476865232521893/dynamic/?r=b3BlbnN1YnRpdGxlcy5vcmc=)
