@@ -12,4 +12,4 @@ In August 2021, an allegation was made that the Brazilian fast food company &quo
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/137.085933174818/dynamic/?r=aGFiaWJzLmNvbS5icg==)
+[Download Link](https://link-to.net/1229997/615.8887107739831/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0hPSDRkRWFTdUp3RUczVi9oYWJpYnMuY29tLmJyL2ZpbGU=)
