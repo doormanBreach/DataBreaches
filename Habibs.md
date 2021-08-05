@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Names, Phone numbers, Social medi
 
 ## Free download Link
 
-[Habibs breach Free Download Link](https://link-to.net/1229997/186.43009399519585/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2F3aFIwRXBlaFBqbHczaC9oYWJpYnMuY29tLmJyL2ZpbGU=)
+[Habibs breach Free Download Link](https://tinyurl.com/2b2k277t)
