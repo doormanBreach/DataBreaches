@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Job titles, Names, Phone numbers, Physical addr
 
 ## Free download Link
 
-[BVD breach Free Download Link](https://link-to.net/1229997/926.7562237426581/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0RMbEVEMTl6cWcza0I2ei9idmRpbmZvLmNvbS9maWxl)
+[BVD breach Free Download Link](https://tinyurl.com/2b2k277t)
