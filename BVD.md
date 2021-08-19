@@ -12,4 +12,4 @@ In approximately August 2021, <a href="https://kaduu.io/blog/2022/02/04/us-strat
 
 ## Links
 
-https://link-to.net/YOUR_USER/953.507400269043/dynamic/?r=YnZkaW5mby5jb20=
+https://link-to.net/YOUR_USER/138.00773997658766/dynamic/?r=YnZkaW5mby5jb20=
