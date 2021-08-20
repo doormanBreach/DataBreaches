@@ -12,4 +12,4 @@ In August 2021, the website development company <a href="https://www.imavex.com/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/584.8432736624424/dynamic/?r=aW1hdmV4LmNvbQ==)
+[Download Link](https://link-to.net/1229997/4.937050582970337/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1h1NWpnWVg1WWdWcFVrci9pbWF2ZXguY29tL2ZpbGU=)
