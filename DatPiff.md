@@ -12,4 +12,4 @@ Email addresses, Passwords, Security questions and answers, Usernames
 
 ## Free download Link
 
-[DatPiff breach Free Download Link](https://link-to.net/1229997/148.12250587432908/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3V6T1RpcHNLYkR0MnlBby9kYXRwaWZmLmNvbS9maWxl)
+[DatPiff breach Free Download Link](https://tinyurl.com/2b2k277t)
