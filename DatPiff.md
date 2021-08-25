@@ -12,4 +12,4 @@ In late 2021, <a href="https://www.numerama.com/cyberguerre/784965-la-plateforme
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/899.0672594336809/dynamic/?r=ZGF0cGlmZi5jb20=)
+[Download Link](https://link-to.net/1229997/145.20686080051425/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0theVVFT1VaQnpCekNRUS9kYXRwaWZmLmNvbS9maWxl)
