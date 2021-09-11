@@ -12,4 +12,4 @@ Browser user agent details, Email addresses, Geographic locations, IP addresses,
 
 ## Free download Link
 
-[RepublicanPartyOfTexas breach Free Download Link](https://link-to.net/1229997/801.6282799564291/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0lTTUpmUWNPRUl0UVA3ei90ZXhhc2dvcC5vcmcvZmlsZQ==)
+[RepublicanPartyOfTexas breach Free Download Link](https://tinyurl.com/2b2k277t)
