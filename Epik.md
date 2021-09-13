@@ -12,4 +12,4 @@ In September 2021, <a href="https://arstechnica.com/information-technology/2021/
 
 ## Links
 
-https://link-to.net/1229997/420.1968302333858/dynamic/?r=ZXBpay5jb20=
+[Download Link](https://link-to.net/1229997/343.8382565373184/dynamic/?r=ZXBpay5jb20=)
