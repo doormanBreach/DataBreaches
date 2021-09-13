@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses, Purchases
 
 ## Free download Link
 
-[Epik breach Free Download Link](https://link-to.net/1229997/46.315332751363684/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3RWRzZMOWJQNkFSRGlYNy9lcGlrLmNvbS9maWxl)
+[Epik breach Free Download Link](https://tinyurl.com/2b2k277t)
