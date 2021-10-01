@@ -12,4 +12,4 @@ In October 2021, <a href="https://www.mydealz.de/diskussion/datenleck-bei-fitmar
 
 ## Links
 
-https://link-to.net/1229997/366.3279385158631/dynamic/?r=Zml0bWFydC5kZQ==
+[Download Link](https://link-to.net/1229997/813.6315020030066/dynamic/?r=Zml0bWFydC5kZQ==)
