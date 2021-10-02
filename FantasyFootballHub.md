@@ -12,4 +12,4 @@ In October 2021, the fantasy premier league (soccer) website <a href="https://fa
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/595.7015447623878/dynamic/?r=ZmFudGFzeWZvb3RiYWxsaHViLmNvLnVr)
+[Download Link](https://link-to.net/1229997/363.6207589023364/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L01zaWMwWEhKdmptbjBtNy9mYW50YXN5Zm9vdGJhbGxodWIuY28udWsvZmlsZQ==)
