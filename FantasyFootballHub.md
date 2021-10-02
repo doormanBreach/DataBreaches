@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Passwords, Purchases, Usernames
 
 ## Free download Link
 
-[FantasyFootballHub breach Free Download Link](https://link-to.net/1229997/839.3839781936427/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2hQWUtHMTROSUFvaW01bS9mYW50YXN5Zm9vdGJhbGxodWIuY28udWsvZmlsZQ==)
+[FantasyFootballHub breach Free Download Link](https://tinyurl.com/2b2k277t)
