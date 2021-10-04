@@ -12,4 +12,4 @@ Email addresses, Genders, Job applications, Marital statuses, Names, Nationaliti
 
 ## Free download Link
 
-[Protemps breach Free Download Link](https://link-to.net/1229997/448.59911351202675/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2xpOEoyMUh1OGZ0d09jYy9wcm90ZW1wcy5jb20uc2cvZmlsZQ==)
+[Protemps breach Free Download Link](https://tinyurl.com/2b2k277t)
