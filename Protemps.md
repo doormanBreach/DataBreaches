@@ -12,4 +12,4 @@ In October 2021, the Singaporean recruitment website <a href="https://www.strait
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/575.332282470702/dynamic/?r=cHJvdGVtcHMuY29tLnNn)
+[Download Link](https://link-to.net/1229997/110.24098667456339/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25kYXY5Z2RBMkFYNGQxNS9wcm90ZW1wcy5jb20uc2cvZmlsZQ==)
