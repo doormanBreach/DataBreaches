@@ -12,4 +12,4 @@ In October 2021, <a href="https://www.comparitech.com/blog/information-security/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/475.79102917919636/dynamic/?r=YWN0bW9iaWxlLmNvbQ==)
+[Download Link](https://link-to.net/1229997/954.0109550637051/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25QSnBWSnJEeERrbHgxQi9hY3Rtb2JpbGUuY29tL2ZpbGU=)
