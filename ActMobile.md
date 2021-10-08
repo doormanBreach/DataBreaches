@@ -12,4 +12,4 @@ Email addresses, IP addresses
 
 ## Free download Link
 
-[ActMobile breach Free Download Link](https://link-to.net/1229997/878.5281069729949/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2VITlNENXNzdnhGMGRydC9hY3Rtb2JpbGUuY29tL2ZpbGU=)
+[ActMobile breach Free Download Link](https://tinyurl.com/2b2k277t)
