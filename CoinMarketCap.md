@@ -12,4 +12,4 @@ Email addresses
 
 ## Free download Link
 
-[CoinMarketCap breach Free Download Link](https://link-to.net/1229997/910.3332862143147/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3ZvREN5MExuWDZPUThQci9jb2lubWFya2V0Y2FwLmNvbS9maWxl)
+[CoinMarketCap breach Free Download Link](https://tinyurl.com/2b2k277t)
