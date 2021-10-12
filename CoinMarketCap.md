@@ -12,4 +12,4 @@ During October 2021, 3.1 million email addresses with accounts on the cryptocurr
 
 ## Links
 
-https://link-to.net/1229997/464.49525450345766/dynamic/?r=Y29pbm1hcmtldGNhcC5jb20=
+[Download Link](https://link-to.net/1229997/255.2610632011908/dynamic/?r=Y29pbm1hcmtldGNhcC5jb20=)
