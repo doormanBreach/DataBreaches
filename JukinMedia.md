@@ -12,4 +12,4 @@ In October 2021, the &quot;global leader in user-generated entertainment&quot; <
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/310.7244974189428/dynamic/?r=anVraW5tZWRpYS5jb20=)
+[Download Link](https://link-to.net/1229997/877.1920360444509/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2cwVlpLUDF6ZlMzWXRHNi9qdWtpbm1lZGlhLmNvbS9maWxl)
