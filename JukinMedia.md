@@ -12,4 +12,4 @@ Email addresses, Employers, IP addresses, Names, Occupations, Passwords, Phone n
 
 ## Free download Link
 
-[JukinMedia breach Free Download Link](https://link-to.net/1229997/253.9538550367144/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzY0UnQ1ZEZXTXdoTVVaOC9qdWtpbm1lZGlhLmNvbS9maWxl)
+[JukinMedia breach Free Download Link](https://tinyurl.com/2b2k277t)
