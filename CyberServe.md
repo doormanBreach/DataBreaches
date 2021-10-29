@@ -12,4 +12,4 @@ Dates of birth, Drinking habits, Email addresses, Family structure, Genders, Geo
 
 ## Free download Link
 
-[CyberServe breach Free Download Link](https://link-to.net/1229997/973.9092290268756/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L29LRWd5T1o5dkd2Uk1ITy9jeWJlcnNlcnZlLmNvLmlsL2ZpbGU=)
+[CyberServe breach Free Download Link](https://tinyurl.com/2b2k277t)
