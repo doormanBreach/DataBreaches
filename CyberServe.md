@@ -12,4 +12,4 @@ In October 2021, the Israeli hosting provider <a href="https://www.timesofisrael
 
 ## Links
 
-https://link-to.net/1229997/568.8994640279899/dynamic/?r=Y3liZXJzZXJ2ZS5jby5pbA==
+[Download Link](https://link-to.net/1229997/516.7836422006365/dynamic/?r=Y3liZXJzZXJ2ZS5jby5pbA==)
