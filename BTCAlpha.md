@@ -12,4 +12,4 @@ In November 2021, the crypto exchange platform <a href="https://www.techtarget.c
 
 ## Links
 
-https://link-to.net/1229997/639.3053660896531/dynamic/?r=YnRjLWFscGhhLmNvbQ==
+[Download Link](https://link-to.net/1229997/434.00504881143974/dynamic/?r=YnRjLWFscGhhLmNvbQ==)
