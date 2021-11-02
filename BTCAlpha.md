@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[BTCAlpha breach Free Download Link](https://link-to.net/1229997/937.7097813038307/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09NdnJQYUZta0RKUWNqRi9idGMtYWxwaGEuY29tL2ZpbGU=)
+[BTCAlpha breach Free Download Link](https://tinyurl.com/2b2k277t)
