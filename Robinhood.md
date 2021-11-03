@@ -12,4 +12,4 @@ In November 2021, the online trading platform <a href="https://techcrunch.com/20
 
 ## Links
 
-https://link-to.net/YOUR_USER/319.6746385815137/dynamic/?r=cm9iaW5ob29kLmNvbQ==
+https://link-to.net/1229997/888.1917616674626/dynamic/?r=cm9iaW5ob29kLmNvbQ==
