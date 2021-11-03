@@ -12,4 +12,4 @@ Email addresses
 
 ## Free download Link
 
-[Robinhood breach Free Download Link](https://link-to.net/1229997/338.8681549810976/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzVvUnZseVZ6RnJpb2tUbC9yb2Jpbmhvb2QuY29tL2ZpbGU=)
+[Robinhood breach Free Download Link](https://tinyurl.com/2b2k277t)
