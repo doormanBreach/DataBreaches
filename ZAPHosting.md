@@ -12,4 +12,4 @@ In November 2021, web host <a href="https://twitter.com/zaphosting/status/150334
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/551.9775293831074/dynamic/?r=emFwLWhvc3RpbmcuY29t)
+[Download Link](https://link-to.net/1229997/513.7401822666664/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L28xWElSQ2JPNjNGcENhaS96YXAtaG9zdGluZy5jb20vZmlsZQ==)
