@@ -12,4 +12,4 @@ Auth tokens, Dates of birth, Email addresses, Names, Passwords, Phone numbers, P
 
 ## Free download Link
 
-[Travelio breach Free Download Link](https://link-to.net/1229997/409.4606405624146/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3d4bWQyWUo1TE5pcTJvQi90cmF2ZWxpby5jb20vZmlsZQ==)
+[Travelio breach Free Download Link](https://tinyurl.com/2b2k277t)
