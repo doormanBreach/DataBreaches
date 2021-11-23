@@ -12,4 +12,4 @@ In November 2021, the Indonesian real estate website <a href="https://www.riskba
 
 ## Links
 
-https://link-to.net/1229997/896.9791992567821/dynamic/?r=dHJhdmVsaW8uY29t
+[Download Link](https://link-to.net/1229997/578.5263004841341/dynamic/?r=dHJhdmVsaW8uY29t)
