@@ -12,4 +12,4 @@ Email addresses, Genders, Income levels, Job titles, Marital statuses, Names, Pa
 
 ## Free download Link
 
-[ABFRL breach Free Download Link](https://link-to.net/1229997/406.77560843828354/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2ZnNGV4U0llVlFEcWpEUi9hYmZybC5jb20vZmlsZQ==)
+[ABFRL breach Free Download Link](https://tinyurl.com/2b2k277t)
