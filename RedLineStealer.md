@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[RedLineStealer breach Free Download Link](https://link-to.net/1229997/246.1991442831669/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3JWOEJYWDI3N2NKSzVMRy8vZmlsZQ==)
+[RedLineStealer breach Free Download Link](https://tinyurl.com/2b2k277t)
