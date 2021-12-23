@@ -12,4 +12,4 @@ Email addresses, Names, Partial credit card data, Passwords, Phone numbers
 
 ## Free download Link
 
-[FlexBooker breach Free Download Link](https://link-to.net/1229997/818.9178539441194/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L092N2ZEeDJOYlg3SGhyMC9mbGV4Ym9va2VyLmNvbS9maWxl)
+[FlexBooker breach Free Download Link](https://tinyurl.com/2b2k277t)
