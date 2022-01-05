@@ -12,4 +12,4 @@ In January 2022, the &quot;doxing&quot; website designed to disclose the persona
 
 ## Links
 
-https://link-to.net/1229997/48.7345797261628/dynamic/?r=ZG94YmluLmNvbQ==
+[Download Link](https://link-to.net/1229997/248.29349598684513/dynamic/?r=ZG94YmluLmNvbQ==)
