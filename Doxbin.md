@@ -12,4 +12,4 @@ Browser user agent details, Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Doxbin breach Free Download Link](https://link-to.net/1229997/850.9328520922043/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1lheEdjdkpUdkg4cW5SbC9kb3hiaW4uY29tL2ZpbGU=)
+[Doxbin breach Free Download Link](https://tinyurl.com/2b2k277t)
