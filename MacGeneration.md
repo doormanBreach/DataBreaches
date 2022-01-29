@@ -12,4 +12,4 @@ In January 2022, the French Apple news website <a href="https://www.macg.co/macg
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/197.16297069228472/dynamic/?r=bWFjZy5jbw==)
+[Download Link](https://link-to.net/1229997/42.370372572002935/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2Y4NHluTjdkMWFmQXRidC9tYWNnLmNvL2ZpbGU=)
