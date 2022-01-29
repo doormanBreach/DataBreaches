@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[MacGeneration breach Free Download Link](https://link-to.net/1229997/74.82783342750344/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25OQXJpVWZoM2M0N1JXci9tYWNnLmNvL2ZpbGU=)
+[MacGeneration breach Free Download Link](https://tinyurl.com/2b2k277t)
