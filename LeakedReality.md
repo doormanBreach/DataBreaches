@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[LeakedReality breach Free Download Link](https://link-to.net/1229997/872.5847548303744/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VUU29XTkxHOXR1RHU5bS9sZWFrZWRyZWFsaXR5LmNvbS9maWxl)
+[LeakedReality breach Free Download Link](https://tinyurl.com/2b2k277t)
