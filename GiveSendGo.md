@@ -12,4 +12,4 @@ Email addresses, Geographic locations, Names, Purchases
 
 ## Free download Link
 
-[GiveSendGo breach Free Download Link](https://link-to.net/1229997/573.8345097687994/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3h0UkNoek9BTENiZVlTVi9naXZlc2VuZGdvLmNvbS9maWxl)
+[GiveSendGo breach Free Download Link](https://tinyurl.com/2b2k277t)
