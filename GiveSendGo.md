@@ -12,4 +12,4 @@ In February 2022, the Christian fundraising service <a href="https://techcrunch.
 
 ## Links
 
-https://link-to.net/YOUR_USER/578.3291139219077/dynamic/?r=Z2l2ZXNlbmRnby5jb20=
+https://link-to.net/YOUR_USER/246.09469758983494/dynamic/?r=Z2l2ZXNlbmRnby5jb20=
