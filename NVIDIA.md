@@ -12,4 +12,4 @@ In February 2022, microchip company <a href="https://www.zdnet.com/article/nvidi
 
 ## Links
 
-https://link-to.net/1229997/168.45277820429706/dynamic/?r=bnZpZGlhLmNvbQ==
+[Download Link](https://link-to.net/1229997/540.0743394906392/dynamic/?r=bnZpZGlhLmNvbQ==)
