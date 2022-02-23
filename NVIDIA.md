@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[NVIDIA breach Free Download Link](https://link-to.net/1229997/47.28409707670189/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VidTd2NHo5SnZaSTNxdC9udmlkaWEuY29tL2ZpbGU=)
+[NVIDIA breach Free Download Link](https://tinyurl.com/2b2k277t)
