@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[ExploreTalent breach Free Download Link](https://link-to.net/1229997/675.1295987528661/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3BJUVI2QzNmZGZ2ZnV2ei9leHBsb3JldGFsZW50LmNvbS9maWxl)
+[ExploreTalent breach Free Download Link](https://tinyurl.com/2b2k277t)
