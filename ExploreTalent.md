@@ -12,4 +12,4 @@ In July 2024, <a href="https://x.com/H4ckManac/status/1813528139881988225" targe
 
 ## Links
 
-https://link-to.net/1229997/752.7195678387789/dynamic/?r=ZXhwbG9yZXRhbGVudC5jb20=
+[Download Link](https://link-to.net/1229997/269.96202225693366/dynamic/?r=ZXhwbG9yZXRhbGVudC5jb20=)
