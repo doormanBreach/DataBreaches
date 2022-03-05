@@ -12,4 +12,4 @@ In May 2023, <a href="https://memoryhackers.org/konular/craftrise-verileri-sizdi
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/233.84002377964464/dynamic/?r=Y3JhZnRyaXNlLmNvbS50cg==)
+[Download Link](https://link-to.net/1229997/574.5825782655056/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L21TaFNYT01VbFlFQ2hpdC9jcmFmdHJpc2UuY29tLnRyL2ZpbGU=)
