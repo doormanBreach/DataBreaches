@@ -12,4 +12,4 @@ In early 2022, a collective known as <a href="https://www.bleepingcomputer.com/n
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/125.45185027333649/dynamic/?r=Y2Rlay5ydQ==)
+[Download Link](https://link-to.net/1229997/395.1929314553171/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0diRjk2QjJiMlU0MHR2ei9jZGVrLnJ1L2ZpbGU=)
