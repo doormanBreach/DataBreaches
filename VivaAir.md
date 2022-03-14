@@ -12,4 +12,4 @@ In March 2022, the now defunct Colombian airline <a href="https://muchohacker.lo
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/273.1383081248897/dynamic/?r=dml2YWFpci5jb20=)
+[Download Link](https://link-to.net/1229997/490.63569666381545/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0lETUthTmVweHdDUHhCdi92aXZhYWlyLmNvbS9maWxl)
