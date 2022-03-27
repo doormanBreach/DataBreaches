@@ -12,4 +12,4 @@ In late March 2022, the Sri Lankan payment gateway <a href="https://www.yoshlk.m
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/969.6965947203482/dynamic/?r=cGF5aGVyZS5saw==)
+[Download Link](https://link-to.net/1229997/589.666144892859/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0tqV1p3Q0g4MVlLU1hpNS9wYXloZXJlLmxrL2ZpbGU=)
