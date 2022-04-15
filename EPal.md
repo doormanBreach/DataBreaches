@@ -12,4 +12,4 @@ In October 2022, the service dedicated to finding friends on Discord known as <a
 
 ## Links
 
-https://link-to.net/YOUR_USER/647.5969542536657/dynamic/?r=ZXBhbC5nZw==
+https://link-to.net/YOUR_USER/522.4998169300221/dynamic/?r=ZXBhbC5nZw==
