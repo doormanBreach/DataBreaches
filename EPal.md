@@ -12,4 +12,4 @@ Email addresses, Purchases, Usernames
 
 ## Free download Link
 
-[EPal breach Free Download Link](https://link-to.net/1229997/986.2292315143493/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0I5c3ZWVFJMVTB3ak5jeC9lcGFsLmdnL2ZpbGU=)
+[EPal breach Free Download Link](https://tinyurl.com/2b2k277t)
