@@ -12,4 +12,4 @@ In mid-2022, <a href="https://twitter.com/troyhunt/status/1711145477872431529" t
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/482.9814440265118/dynamic/?r=cGF5c3lzdGVtLnRlY2g=)
+[Download Link](https://link-to.net/1229997/356.8205234209985/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L05RVkdCaEtVVjVMMEQ2Qy9wYXlzeXN0ZW0udGVjaC9maWxl)
