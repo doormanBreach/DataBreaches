@@ -12,4 +12,4 @@ Credit cards, Email addresses, Purchases
 
 ## Free download Link
 
-[PaySystemTech breach Free Download Link](https://link-to.net/1229997/482.09459869078785/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L281NVJsa0JFc21ORGJyTi9wYXlzeXN0ZW0udGVjaC9maWxl)
+[PaySystemTech breach Free Download Link](https://tinyurl.com/2b2k277t)
