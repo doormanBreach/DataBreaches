@@ -12,4 +12,4 @@ Email addresses, Genders, Names, Partial dates of birth, Passwords, Phone number
 
 ## Free download Link
 
-[Fanpass breach Free Download Link](https://link-to.net/1229997/483.90788820464405/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZTamoyakc2OEZkNWVxUy9mYW5wYXNzLmNvLnVrL2ZpbGU=)
+[Fanpass breach Free Download Link](https://tinyurl.com/2b2k277t)
