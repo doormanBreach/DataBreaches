@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[BlackBerryFans breach Free Download Link](https://link-to.net/1229997/519.7070644176173/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2k3c2FqVXo2NTlldU1jUS9ibGFja2JlcnJ5ZmFucy5vcmcvZmlsZQ==)
+[BlackBerryFans breach Free Download Link](https://tinyurl.com/2b2k277t)
