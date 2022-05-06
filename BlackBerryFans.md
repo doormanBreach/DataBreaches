@@ -12,4 +12,4 @@ In May 2022, the Chinese BlackBerry enthusiasts website <a href="http://blackber
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/15.86906930856069/dynamic/?r=YmxhY2tiZXJyeWZhbnMub3Jn)
+[Download Link](https://link-to.net/1229997/454.61226153156485/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZiUEt2Rjl4TTh2cmZBcy9ibGFja2JlcnJ5ZmFucy5vcmcvZmlsZQ==)
