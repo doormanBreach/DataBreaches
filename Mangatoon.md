@@ -12,4 +12,4 @@ In May 2022, the Hong Kong based Manga service <a href="https://mangatoon.mobi/"
 
 ## Links
 
-https://link-to.net/YOUR_USER/935.2558435426604/dynamic/?r=bWFuZ2F0b29uLm1vYmk=
+https://link-to.net/YOUR_USER/38.08568375433974/dynamic/?r=bWFuZ2F0b29uLm1vYmk=
