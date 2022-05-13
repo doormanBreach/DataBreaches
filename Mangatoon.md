@@ -12,4 +12,4 @@ Auth tokens, Avatars, Email addresses, Genders, Names, Passwords, Social media p
 
 ## Free download Link
 
-[Mangatoon breach Free Download Link](https://link-to.net/1229997/490.72630616055915/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1hWVmJFdWcxbmtaWDhtTi9tYW5nYXRvb24ubW9iaS9maWxl)
+[Mangatoon breach Free Download Link](https://tinyurl.com/2b2k277t)
