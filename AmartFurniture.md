@@ -12,4 +12,4 @@ In May 2022, the Australian retailer <a href="https://www.ozbargain.com.au/node/
 
 ## Links
 
-https://link-to.net/1229997/514.3487122120422/dynamic/?r=YW1hcnRmdXJuaXR1cmUuY29tLmF1
+[Download Link](https://link-to.net/1229997/205.4284540408674/dynamic/?r=YW1hcnRmdXJuaXR1cmUuY29tLmF1)
