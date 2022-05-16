@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[AmartFurniture breach Free Download Link](https://link-to.net/1229997/234.59568167394673/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1VuU1ZSdHNQM2RkT2pncC9hbWFydGZ1cm5pdHVyZS5jb20uYXUvZmlsZQ==)
+[AmartFurniture breach Free Download Link](https://tinyurl.com/2b2k277t)
