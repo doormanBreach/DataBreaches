@@ -12,4 +12,4 @@ Browser user agent details, Email addresses, IP addresses, Survey results
 
 ## Free download Link
 
-[QuestionPro breach Free Download Link](https://link-to.net/1229997/452.33303827638025/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0Z2MFdqa25wNWhkc1NxWi9xdWVzdGlvbnByby5jb20vZmlsZQ==)
+[QuestionPro breach Free Download Link](https://tinyurl.com/2b2k277t)
