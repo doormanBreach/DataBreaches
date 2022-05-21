@@ -12,4 +12,4 @@ In May 2022, <a href="https://www.bleepingcomputer.com/news/security/hackers-try
 
 ## Links
 
-https://link-to.net/1229997/142.63772657510577/dynamic/?r=cXVlc3Rpb25wcm8uY29t
+[Download Link](https://link-to.net/1229997/160.50365801488087/dynamic/?r=cXVlc3Rpb25wcm8uY29t)
