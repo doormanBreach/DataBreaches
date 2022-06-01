@@ -12,4 +12,4 @@ Email addresses, Usernames
 
 ## Free download Link
 
-[MemeChat breach Free Download Link](https://link-to.net/1229997/93.04058939861248/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RTMFRBNHZkQUhFV2l4VS9tZW1lY2hhdC5hcHAvZmlsZQ==)
+[MemeChat breach Free Download Link](https://tinyurl.com/2b2k277t)
