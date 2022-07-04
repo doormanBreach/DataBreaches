@@ -12,4 +12,4 @@ In July 2022, the French telecommunications company <a href="https://securityaff
 
 ## Links
 
-https://link-to.net/1229997/577.0786262364214/dynamic/?r=bGFwb3N0ZW1vYmlsZS5mcg==
+[Download Link](https://link-to.net/1229997/278.31386788933645/dynamic/?r=bGFwb3N0ZW1vYmlsZS5mcg==)
