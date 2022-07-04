@@ -12,4 +12,4 @@ Bank account numbers, Dates of birth, Email addresses, Genders, Names, Phone num
 
 ## Free download Link
 
-[LaPosteMobile breach Free Download Link](https://link-to.net/1229997/457.5007214673771/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzVOUFEyU0RaYXdCZ2lBaS9sYXBvc3RlbW9iaWxlLmZyL2ZpbGU=)
+[LaPosteMobile breach Free Download Link](https://tinyurl.com/2b2k277t)
