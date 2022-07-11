@@ -12,4 +12,4 @@ In February 2023, <a href="https://www.bleepingcomputer.com/news/security/weee-g
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/34.42259258035851/dynamic/?r=c2F5d2VlZS5jb20=)
+[Download Link](https://link-to.net/1229997/779.7889200445728/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRZbWtxS0NRdFphWXFHaS9zYXl3ZWVlLmNvbS9maWxl)
