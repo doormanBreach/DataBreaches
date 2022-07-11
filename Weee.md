@@ -12,4 +12,4 @@ Delivery instructions, Email addresses, Names, Phone numbers, Purchases
 
 ## Free download Link
 
-[Weee breach Free Download Link](https://link-to.net/1229997/553.9398945295754/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VVelh1STgyYjRNczFhTi9zYXl3ZWVlLmNvbS9maWxl)
+[Weee breach Free Download Link](https://tinyurl.com/2b2k277t)
