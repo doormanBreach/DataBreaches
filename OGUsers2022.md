@@ -12,4 +12,4 @@ In July 2022, the account hijacking and SIM swapping forum OGusers suffered a da
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/55.386140041571274/dynamic/?r=b2d1c2Vycy5jb20=)
+[Download Link](https://link-to.net/1229997/759.0694456889827/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L00yNk5ZSGVXajdUM2drMy9vZ3VzZXJzLmNvbS9maWxl)
