@@ -1,15 +1,15 @@
-# OGUsers2022
+# OGUsers2022 database leak
 
 ## Description
 
-Date: 2022-07-13
+2022-07-13
 
-Description:
 In July 2022, the account hijacking and SIM swapping forum OGusers suffered a data breach, the fifth since December 2018. The breach contained usernames, email and IP addresses and passwords stored as argon2 hashes. A total of 529k unique email addresses appeared in the breach.
 
+## Breached data
 
-['Email addresses', 'IP addresses', 'Passwords', 'Usernames']
+Email addresses, IP addresses, Passwords, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/759.0694456889827/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L00yNk5ZSGVXajdUM2drMy9vZ3VzZXJzLmNvbS9maWxl)
+[OGUsers2022 breach Free Download Link](https://link-to.net/1229997/707.410781089612/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0d5VG5CZkdxa3BESFNsYy9vZ3VzZXJzLmNvbS9maWxl)
