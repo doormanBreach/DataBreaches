@@ -12,4 +12,4 @@ In July 2022, the Chinese adult website <a href="https://www.bitdefender.com.au/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/848.6555928937665/dynamic/?r=aGplZGQuY29t)
+[Download Link](https://link-to.net/1229997/350.11443050576116/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VLdzFVbjJzZUtiZDNCTC9oamVkZC5jb20vZmlsZQ==)
