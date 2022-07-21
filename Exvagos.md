@@ -12,4 +12,4 @@ In July 2022, the direct download website Exvagos suffered a data breach <a href
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/50.30666267597616/dynamic/?r=ZXh2YWdvcy5vcmc=)
+[Download Link](https://link-to.net/1229997/138.31545638346356/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1dBVU0yY1k4Wk1vTW5Ycy9leHZhZ29zLm9yZy9maWxl)
