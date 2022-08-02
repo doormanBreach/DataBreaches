@@ -12,4 +12,4 @@ Email addresses, Geographic locations, Names, Partial credit card data
 
 ## Free download Link
 
-[DoorDash breach Free Download Link](https://link-to.net/1229997/102.05447482441421/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3dtUGFoV2Z0cFMxT3F5Yi9kb29yZGFzaC5jb20vZmlsZQ==)
+[DoorDash breach Free Download Link](https://tinyurl.com/2b2k277t)
