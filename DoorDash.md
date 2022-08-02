@@ -12,4 +12,4 @@ In August 2022, the food ordering and delivery service <a href="https://mashable
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/324.3239272851014/dynamic/?r=ZG9vcmRhc2guY29t)
+[Download Link](https://link-to.net/1229997/469.8547554360273/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2tFaUVjQUVEMWdiMllFMy9kb29yZGFzaC5jb20vZmlsZQ==)
