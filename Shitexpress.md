@@ -12,4 +12,4 @@ In August 2022, the online faeces delivery service <a href="https://www.bleeping
 
 ## Links
 
-https://link-to.net/1229997/694.8449274524943/dynamic/?r=c2hpdGV4cHJlc3MuY29t
+[Download Link](https://link-to.net/1229997/884.436975293194/dynamic/?r=c2hpdGV4cHJlc3MuY29t)
