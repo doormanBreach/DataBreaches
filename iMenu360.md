@@ -12,4 +12,4 @@ In approximately late 2022, 3.4M customer records from iMenu360 (&quot;The world
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/509.3549699634097/dynamic/?r=aW1lbnUzNjAuY29t)
+[Download Link](https://link-to.net/1229997/580.9440134280553/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1hiaElicGpHNjdPY2Fmay9pbWVudTM2MC5jb20vZmlsZQ==)
