@@ -12,4 +12,4 @@ In August 2022, the MMORPG website <a href="https://twitter.com/FalconFeedsio/st
 
 ## Links
 
-https://link-to.net/1229997/479.7308357135862/dynamic/?r=Z2djb3JwLm1l
+[Download Link](https://link-to.net/1229997/768.9944703657837/dynamic/?r=Z2djb3JwLm1l)
