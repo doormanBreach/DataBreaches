@@ -1,15 +1,15 @@
-# GGCorp
+# GGCorp database leak
 
 ## Description
 
-Date: 2022-08-11
+2022-08-11
 
-Description:
 In August 2022, the MMORPG website <a href="https://twitter.com/FalconFeedsio/status/1558362615067250688" target="_blank" rel="noopener">GGCorp suffered a data breach that exposed almost 2.4M unique email addresses</a>. The data also included IP addresses, usernames and MD5 password hashes.
 
+## Breached data
 
-['Email addresses', 'IP addresses', 'Passwords', 'Usernames']
+Email addresses, IP addresses, Passwords, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/721.0699694916518/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzdkTFpOYkJFdXNFdzFuTC9nZ2NvcnAubWUvZmlsZQ==)
+[GGCorp breach Free Download Link](https://link-to.net/1229997/674.505795339388/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRyanhJbnpFTWR1NFl1NC9nZ2NvcnAubWUvZmlsZQ==)
