@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[GGCorp breach Free Download Link](https://link-to.net/1229997/674.505795339388/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRyanhJbnpFTWR1NFl1NC9nZ2NvcnAubWUvZmlsZQ==)
+[GGCorp breach Free Download Link](https://tinyurl.com/2b2k277t)
