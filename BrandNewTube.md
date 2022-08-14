@@ -12,4 +12,4 @@ Email addresses, Genders, IP addresses, Passwords, Private messages, Usernames
 
 ## Free download Link
 
-[BrandNewTube breach Free Download Link](https://link-to.net/1229997/947.9206849446022/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzlmYXkxNHR0WldnSGhldS9icmFuZG5ld3R1YmUuY29tL2ZpbGU=)
+[BrandNewTube breach Free Download Link](https://tinyurl.com/2b2k277t)
