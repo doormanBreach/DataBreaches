@@ -12,4 +12,4 @@ In August 2022, the Portuguese airline <a href="https://www.bleepingcomputer.com
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/753.4759755292366/dynamic/?r=Zmx5dGFwLmNvbQ==)
+[Download Link](https://link-to.net/1229997/944.4607567796394/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3doaHNJd1ZsM2tkUkRJWi9mbHl0YXAuY29tL2ZpbGU=)
