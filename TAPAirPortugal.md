@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Nationalities, Phone numbers, P
 
 ## Free download Link
 
-[TAPAirPortugal breach Free Download Link](https://link-to.net/1229997/596.1208717014687/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3B0WUJ4M3JUYXlnbnpFaC9mbHl0YXAuY29tL2ZpbGU=)
+[TAPAirPortugal breach Free Download Link](https://tinyurl.com/2b2k277t)
