@@ -12,4 +12,4 @@ Browser user agent details, Email addresses, IP addresses, Names, Physical addre
 
 ## Free download Link
 
-[Wakanim breach Free Download Link](https://link-to.net/1229997/241.4943215639299/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2NISVBJQXJGaHdpSkhHTy93YWthbmltLnR2L2ZpbGU=)
+[Wakanim breach Free Download Link](https://tinyurl.com/2b2k277t)
