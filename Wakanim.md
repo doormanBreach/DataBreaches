@@ -12,4 +12,4 @@ In August 2022, the European streaming service <a href="https://www.animenewsnet
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/757.0158547504128/dynamic/?r=d2FrYW5pbS50dg==)
+[Download Link](https://link-to.net/1229997/173.37721064556777/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3pXT0xMYmpQZXFDb3drSy93YWthbmltLnR2L2ZpbGU=)
