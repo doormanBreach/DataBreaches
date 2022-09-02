@@ -12,4 +12,4 @@ In September 2022, <a href="https://izoologic.com/region/central-asia/a-new-alle
 
 ## Links
 
-https://link-to.net/1229997/629.6091450266982/dynamic/?r=
+[Download Link](https://link-to.net/1229997/883.528231902028/dynamic/?r=)
