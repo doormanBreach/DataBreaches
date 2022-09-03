@@ -12,4 +12,4 @@ In September 2022, the Taiwanese Android forum APK.TW suffered a data breach <a 
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/898.9491656662356/dynamic/?r=YXBrLnR3)
+[Download Link](https://link-to.net/1229997/338.6597063902457/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3A1b0VUcUU0NnRKekxzMi9hcGsudHcvZmlsZQ==)
