@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Passwords, Phone numbers, Physical address
 
 ## Free download Link
 
-[GetRevengeOnYourEx breach Free Download Link](https://link-to.net/1229997/314.99788688807774/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1dtNlZad1dXblJGMTNKRC9nZXRyZXZlbmdlb255b3VyZXguY29tL2ZpbGU=)
+[GetRevengeOnYourEx breach Free Download Link](https://tinyurl.com/2b2k277t)
