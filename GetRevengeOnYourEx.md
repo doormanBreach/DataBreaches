@@ -12,4 +12,4 @@ In September 2022, the revenge website <a href="https://getrevengeonyourex.com/"
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/267.1612833303786/dynamic/?r=Z2V0cmV2ZW5nZW9ueW91cmV4LmNvbQ==)
+[Download Link](https://link-to.net/1229997/296.51728079569426/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1c1aXVNOUdaNHkzZmJqZC9nZXRyZXZlbmdlb255b3VyZXguY29tL2ZpbGU=)
