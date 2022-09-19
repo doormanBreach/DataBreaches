@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Names, Passwords, Phone numbers
 
 ## Free download Link
 
-[OnlineTrade breach Free Download Link](https://link-to.net/1229997/763.3739327896703/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VySXpueUl3YlpLS0U5Sy9vbmxpbmV0cmFkZS5ydS9maWxl)
+[OnlineTrade breach Free Download Link](https://tinyurl.com/2b2k277t)
