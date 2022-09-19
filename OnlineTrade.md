@@ -12,4 +12,4 @@ In September 2022, the Russian e-commerce website <a href="https://xakep.ru/2022
 
 ## Links
 
-https://link-to.net/1229997/657.5194443035601/dynamic/?r=b25saW5ldHJhZGUucnU=
+[Download Link](https://link-to.net/1229997/225.78012767443656/dynamic/?r=b25saW5ldHJhZGUucnU=)
