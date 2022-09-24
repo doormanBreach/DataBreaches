@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Physical addresses, Purchases, Social media p
 
 ## Free download Link
 
-[ClickASnap breach Free Download Link](https://link-to.net/1229997/814.1773494943056/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzJLbjlWN3FNQ2VwRlZpSS9jbGlja2FzbmFwLmNvbS9maWxl)
+[ClickASnap breach Free Download Link](https://tinyurl.com/2b2k277t)
