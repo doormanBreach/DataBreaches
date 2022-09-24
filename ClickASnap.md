@@ -12,4 +12,4 @@ In September 2022, the online photo sharing platform <a href="https://blog.click
 
 ## Links
 
-https://link-to.net/1229997/766.876978352896/dynamic/?r=Y2xpY2thc25hcC5jb20=
+[Download Link](https://link-to.net/1229997/770.9305380373626/dynamic/?r=Y2xpY2thc25hcC5jb20=)
