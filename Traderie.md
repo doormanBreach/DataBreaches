@@ -12,4 +12,4 @@ Email addresses, IP addresses, Social media profiles, Usernames
 
 ## Free download Link
 
-[Traderie breach Free Download Link](https://link-to.net/1229997/411.6243501072454/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1E5R2pGTVBwN1pDa3NrQy90cmFkZXJpZS5jb20vZmlsZQ==)
+[Traderie breach Free Download Link](https://tinyurl.com/2b2k277t)
