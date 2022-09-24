@@ -12,4 +12,4 @@ In September 2022, <a href="https://techcrunch.com/2023/09/07/traderie-a-marketp
 
 ## Links
 
-https://link-to.net/1229997/348.51353796631946/dynamic/?r=dHJhZGVyaWUuY29t
+[Download Link](https://link-to.net/1229997/878.23287046188/dynamic/?r=dHJhZGVyaWUuY29t)
