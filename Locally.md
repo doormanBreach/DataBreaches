@@ -12,4 +12,4 @@ Email addresses, Partial credit card data, Passwords, Phone numbers, Physical ad
 
 ## Free download Link
 
-[Locally breach Free Download Link](https://link-to.net/1229997/592.9403688254957/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzlZSWE2eGpDSjl5ejRtRy9sb2NhbGx5LmNvbS9maWxl)
+[Locally breach Free Download Link](https://tinyurl.com/2b2k277t)
