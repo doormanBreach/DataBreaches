@@ -12,4 +12,4 @@ In October 2022, &quot;The Industry's Leading Online-to-Offline Shopping Solutio
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/594.7825432425283/dynamic/?r=bG9jYWxseS5jb20=)
+[Download Link](https://link-to.net/1229997/790.5202507212615/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L29kMENmeDZmNTlYWlZsQS9sb2NhbGx5LmNvbS9maWxl)
