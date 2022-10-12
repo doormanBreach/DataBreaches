@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[Doomworld breach Free Download Link](https://link-to.net/1229997/319.0399109138977/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzN6aGRyVFJqRDVROE04ZC9kb29td29ybGQuY29tL2ZpbGU=)
+[Doomworld breach Free Download Link](https://tinyurl.com/2b2k277t)
