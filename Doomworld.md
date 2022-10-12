@@ -12,4 +12,4 @@ In October 2022, <a href="https://www.doomworld.com/announcement/4-doomworld-pro
 
 ## Links
 
-https://link-to.net/1229997/4.572138767777845/dynamic/?r=ZG9vbXdvcmxkLmNvbQ==
+[Download Link](https://link-to.net/1229997/334.719852550034/dynamic/?r=ZG9vbXdvcmxkLmNvbQ==)
