@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[RealDudesInc breach Free Download Link](https://link-to.net/1229997/531.6969184182026/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0hEdEcxTUQzZ0dkU0lIVi9yZWFsZHVkZXNpbmMuY29tL2ZpbGU=)
+[RealDudesInc breach Free Download Link](https://tinyurl.com/2b2k277t)
