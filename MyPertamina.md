@@ -12,4 +12,4 @@ In November 2022, the Indonesian oil and gas company <a href="https://voi.id/en/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/638.5373720682151/dynamic/?r=bXlwZXJ0YW1pbmEuaWQ=)
+[Download Link](https://link-to.net/1229997/970.9825963548661/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0FaRFV3SlhYMmNWSWxqTC9teXBlcnRhbWluYS5pZC9maWxl)
