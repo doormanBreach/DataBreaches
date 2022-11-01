@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Phone numbers, Physical address
 
 ## Free download Link
 
-[MyPertamina breach Free Download Link](https://link-to.net/1229997/693.8398270934256/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VSdWtsMFBOeUVlbVFkVy9teXBlcnRhbWluYS5pZC9maWxl)
+[MyPertamina breach Free Download Link](https://tinyurl.com/2b2k277t)
