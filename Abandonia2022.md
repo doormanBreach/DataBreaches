@@ -12,4 +12,4 @@ In November 2022, the gaming website dedicated to classic DOS games <a href="htt
 
 ## Links
 
-https://link-to.net/YOUR_USER/459.4050591495403/dynamic/?r=YWJhbmRvbmlhLmNvbQ==
+https://link-to.net/1229997/414.8298158212248/dynamic/?r=YWJhbmRvbmlhLmNvbQ==
