@@ -12,4 +12,4 @@ Dates of birth, Driver's licenses, Email addresses, Geographic locations, Names
 
 ## Free download Link
 
-[WashingtonStateFoodWorkerCard breach Free Download Link](https://link-to.net/1229997/852.1935993657843/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VkRzh4WjZ1Wnpub2habC9mb29kd29ya2VyY2FyZC53YS5nb3YvZmlsZQ==)
+[WashingtonStateFoodWorkerCard breach Free Download Link](https://tinyurl.com/2b2k277t)
