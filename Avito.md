@@ -12,4 +12,4 @@ Email addresses, Geographic locations, IP addresses, Names, Phone numbers
 
 ## Free download Link
 
-[Avito breach Free Download Link](https://link-to.net/1229997/339.88123145928853/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0lHZ2x3Z29LQVFwekhuby9hdml0by5tYS9maWxl)
+[Avito breach Free Download Link](https://tinyurl.com/2b2k277t)
