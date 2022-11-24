@@ -12,4 +12,4 @@ In December 2022, <a href="https://www.movieforums.com/community/showthread.php?
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/946.4146644986495/dynamic/?r=bW92aWVmb3J1bXMuY29t)
+[Download Link](https://link-to.net/1229997/789.5832762991017/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2RieWlUOXFpSmdCckNKby9tb3ZpZWZvcnVtcy5jb20vZmlsZQ==)
