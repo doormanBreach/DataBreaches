@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[MovieForums breach Free Download Link](https://link-to.net/1229997/766.6380541439966/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0FBZDFDUFRsT2pyeXFwUS9tb3ZpZWZvcnVtcy5jb20vZmlsZQ==)
+[MovieForums breach Free Download Link](https://tinyurl.com/2b2k277t)
