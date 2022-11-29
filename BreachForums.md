@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Private messages, Usernames
 
 ## Free download Link
 
-[BreachForums breach Free Download Link](https://link-to.net/1229997/90.27526271884324/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L296QjhHQlVydm8zM1ZicS9icmVhY2hlZC52Yy9maWxl)
+[BreachForums breach Free Download Link](https://tinyurl.com/2b2k277t)
