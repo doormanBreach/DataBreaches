@@ -12,4 +12,4 @@ In November 2022, the well-known hacking forum &quot;BreachForums&quot; was itse
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/317.3887456553802/dynamic/?r=YnJlYWNoZWQudmM=)
+[Download Link](https://link-to.net/1229997/283.03009600182736/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzQ4R0NFNXR5cThhUkRNVi9icmVhY2hlZC52Yy9maWxl)
