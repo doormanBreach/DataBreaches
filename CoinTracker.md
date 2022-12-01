@@ -12,4 +12,4 @@ Email addresses, Partial phone numbers
 
 ## Free download Link
 
-[CoinTracker breach Free Download Link](https://link-to.net/1229997/246.12790707418498/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1BBQU1ib0tvOTZWVXFlOS9jb2ludHJhY2tlci5pby9maWxl)
+[CoinTracker breach Free Download Link](https://tinyurl.com/2b2k277t)
