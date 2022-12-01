@@ -12,4 +12,4 @@ In December 2022, the Crypto & NFT taxes service <a href="https://www.databreach
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/134.0265042258586/dynamic/?r=Y29pbnRyYWNrZXIuaW8=)
+[Download Link](https://link-to.net/1229997/208.02358394056552/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1lMVGpKaWJHemh0MUtSbS9jb2ludHJhY2tlci5pby9maWxl)
