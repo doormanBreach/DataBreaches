@@ -12,4 +12,4 @@ Browser user agent details, Email addresses, Genders, IP addresses, Partial cred
 
 ## Free download Link
 
-[GunAuction breach Free Download Link](https://link-to.net/1229997/745.9250546319091/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2kzQktvamdQTzlTVnRpZS9ndW5hdWN0aW9uLmNvbS9maWxl)
+[GunAuction breach Free Download Link](https://tinyurl.com/2b2k277t)
