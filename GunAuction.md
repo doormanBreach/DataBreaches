@@ -12,4 +12,4 @@ In December 2022, the online firearms auction website <a href="https://techcrunc
 
 ## Links
 
-https://link-to.net/1229997/526.2163895555411/dynamic/?r=Z3VuYXVjdGlvbi5jb20=
+[Download Link](https://link-to.net/1229997/328.7944851266783/dynamic/?r=Z3VuYXVjdGlvbi5jb20=)
