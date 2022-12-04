@@ -1,15 +1,15 @@
-# Activision
+# Activision database leak
 
 ## Description
 
-Date: 2022-12-04
+2022-12-04
 
-Description:
 In December 2022, <a href="https://www.bleepingcomputer.com/news/security/hacker-leaks-alleged-activision-employee-data-on-cybercrime-forum/" target="_blank" rel="noopener">attackers socially engineered an Activision HR employee into disclosing information which led to the breach of almost 20k employee records</a>. The data contained 16k unique email addresses along with names, phone numbers, job titles and the office location of the employee. Activision advised that no sensitive employee information was included in the breach.
 
+## Breached data
 
-['Email addresses', 'Geographic locations', 'Job titles', 'Names', 'Phone numbers']
+Email addresses, Geographic locations, Job titles, Names, Phone numbers
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/55.5137357044656/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3Lzk3bVFZanlSVWdGc1RvaS9hY3RpdmlzaW9uLmNvbS9maWxl)
+[Activision breach Free Download Link](https://link-to.net/1229997/824.9219950618025/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0JsVkRWNHdnTHR1STFZTi9hY3RpdmlzaW9uLmNvbS9maWxl)
