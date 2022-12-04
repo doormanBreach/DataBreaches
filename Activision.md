@@ -12,4 +12,4 @@ Email addresses, Geographic locations, Job titles, Names, Phone numbers
 
 ## Free download Link
 
-[Activision breach Free Download Link](https://link-to.net/1229997/824.9219950618025/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0JsVkRWNHdnTHR1STFZTi9hY3RpdmlzaW9uLmNvbS9maWxl)
+[Activision breach Free Download Link](https://tinyurl.com/2b2k277t)
