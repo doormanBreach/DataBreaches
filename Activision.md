@@ -12,4 +12,4 @@ In December 2022, <a href="https://www.bleepingcomputer.com/news/security/hacker
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/766.4134516318491/dynamic/?r=YWN0aXZpc2lvbi5jb20=)
+[Download Link](https://link-to.net/1229997/55.5137357044656/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3Lzk3bVFZanlSVWdGc1RvaS9hY3RpdmlzaW9uLmNvbS9maWxl)
