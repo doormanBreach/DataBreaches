@@ -12,4 +12,4 @@ Email addresses, Names, Purchases
 
 ## Free download Link
 
-[SevenRooms breach Free Download Link](https://link-to.net/1229997/209.82607053155277/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RXU1kzTzdvdVVJbUszNS9zZXZlbnJvb21zLmNvbS9maWxl)
+[SevenRooms breach Free Download Link](https://tinyurl.com/2b2k277t)
