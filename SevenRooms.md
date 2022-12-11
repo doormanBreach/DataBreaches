@@ -12,4 +12,4 @@ In December 2022, <a href="https://www.bleepingcomputer.com/news/security/restau
 
 ## Links
 
-https://link-to.net/1229997/5.630865336237578/dynamic/?r=c2V2ZW5yb29tcy5jb20=
+[Download Link](https://link-to.net/1229997/242.67685901301806/dynamic/?r=c2V2ZW5yb29tcy5jb20=)
