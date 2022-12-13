@@ -12,4 +12,4 @@ In late 2022, <a href="https://www.bleepingcomputer.com/news/security/hackers-le
 
 ## Links
 
-https://link-to.net/1229997/154.5481955442918/dynamic/?r=Z2VtaW5pLmNvbQ==
+[Download Link](https://link-to.net/1229997/636.5300363597856/dynamic/?r=Z2VtaW5pLmNvbQ==)
