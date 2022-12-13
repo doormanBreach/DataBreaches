@@ -12,4 +12,4 @@ Email addresses, Partial phone numbers
 
 ## Free download Link
 
-[Gemini breach Free Download Link](https://link-to.net/1229997/568.3841507714504/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2h4N2V4RTYzNW5NUURSUC9nZW1pbmkuY29tL2ZpbGU=)
+[Gemini breach Free Download Link](https://tinyurl.com/2b2k277t)
