@@ -12,4 +12,4 @@ Email addresses, Genders, Names, Phone numbers, Purchases
 
 ## Free download Link
 
-[RailYatri breach Free Download Link](https://link-to.net/1229997/74.14015355598158/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L214NzJFS3NJbkRaa2tvSC9yYWlseWF0cmkuaW4vZmlsZQ==)
+[RailYatri breach Free Download Link](https://tinyurl.com/2b2k277t)
