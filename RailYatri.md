@@ -12,4 +12,4 @@ In December 2022, India’s government-approved online travel agency <a href="ht
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/397.11938742114216/dynamic/?r=cmFpbHlhdHJpLmlu)
+[Download Link](https://link-to.net/1229997/259.826160032696/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3hzS3JJRWJURzFaYUw5Ry9yYWlseWF0cmkuaW4vZmlsZQ==)
