@@ -12,4 +12,4 @@ In February 2023, the tech camps for kids service <a href="https://twitter.com/F
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/595.7074349093392/dynamic/?r=aWR0ZWNoLmNvbQ==)
+[Download Link](https://link-to.net/1229997/714.8740528696029/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3I4c0MzZFFSVE80dXNKTC9pZHRlY2guY29tL2ZpbGU=)
