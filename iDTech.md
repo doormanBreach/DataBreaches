@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names, Passwords
 
 ## Free download Link
 
-[iDTech breach Free Download Link](https://link-to.net/1229997/813.385670579665/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0ZmdHdNZ1R5amZ2NmEzby9pZHRlY2guY29tL2ZpbGU=)
+[iDTech breach Free Download Link](https://tinyurl.com/2b2k277t)
