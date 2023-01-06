@@ -12,4 +12,4 @@ In January 2023, <a href="https://thecyberexpress.com/data1-4-million-autotrader
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/62.43618657700567/dynamic/?r=YXV0b3RyYWRlci5jb20=)
+[Download Link](https://link-to.net/1229997/838.497852657153/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzB6V3pUeUFtRGRtN0RMdC9hdXRvdHJhZGVyLmNvbS9maWxl)
