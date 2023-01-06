@@ -12,4 +12,4 @@ Email addresses, Phone numbers, Physical addresses, Vehicle details, Vehicle ide
 
 ## Free download Link
 
-[Autotrader breach Free Download Link](https://link-to.net/1229997/819.0193464638786/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3NTdGkzaU12WTVqZ0U0bC9hdXRvdHJhZGVyLmNvbS9maWxl)
+[Autotrader breach Free Download Link](https://tinyurl.com/2b2k277t)
