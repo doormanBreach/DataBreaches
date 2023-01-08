@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Vehicle details
 
 ## Free download Link
 
-[Zurich breach Free Download Link](https://link-to.net/1229997/832.0845791292976/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1o1Z05ZMGZxOEFWZFhEeS96dXJpY2guY28uanAvZmlsZQ==)
+[Zurich breach Free Download Link](https://tinyurl.com/2b2k277t)
