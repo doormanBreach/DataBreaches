@@ -12,4 +12,4 @@ In January 2023, <a href="https://therecord.media/millions-of-aflac-zurich-insur
 
 ## Links
 
-https://link-to.net/YOUR_USER/682.4821074414648/dynamic/?r=enVyaWNoLmNvLmpw
+https://link-to.net/YOUR_USER/120.51239102840738/dynamic/?r=enVyaWNoLmNvLmpw
