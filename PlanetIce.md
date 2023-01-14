@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, IP addresses, Names, Passwords, Phone 
 
 ## Free download Link
 
-[PlanetIce breach Free Download Link](https://link-to.net/1229997/187.5480159620443/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0JNdVNGYUNhVUkxSEZseC9wbGFuZXQtaWNlLmNvLnVrL2ZpbGU=)
+[PlanetIce breach Free Download Link](https://tinyurl.com/2b2k277t)
