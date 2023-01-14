@@ -12,4 +12,4 @@ In January 2023, the UK-based ice skating rink booking service <a href="https://
 
 ## Links
 
-https://link-to.net/YOUR_USER/49.08370597265388/dynamic/?r=cGxhbmV0LWljZS5jby51aw==
+https://link-to.net/YOUR_USER/830.469598340807/dynamic/?r=cGxhbmV0LWljZS5jby51aw==
