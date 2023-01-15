@@ -12,4 +12,4 @@ Email addresses, Names
 
 ## Free download Link
 
-[SchoolDistrict42 breach Free Download Link](https://link-to.net/1229997/651.448498843234/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1c2SVdreTVjU0JYMXVDOC9zZDQyLmNhL2ZpbGU=)
+[SchoolDistrict42 breach Free Download Link](https://tinyurl.com/2b2k277t)
