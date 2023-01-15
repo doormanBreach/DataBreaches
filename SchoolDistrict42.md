@@ -12,4 +12,4 @@ In January 2023, <a href="https://www.mapleridgenews.com/news/maple-ridge-pitt-m
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/397.412580117816/dynamic/?r=c2Q0Mi5jYQ==)
+[Download Link](https://link-to.net/1229997/613.7579790889504/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2s3OXpIajZZcENHdmliVS9zZDQyLmNhL2ZpbGU=)
