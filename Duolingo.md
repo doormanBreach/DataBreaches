@@ -12,4 +12,4 @@ In August 2023, <a href="https://www.bleepingcomputer.com/news/security/scraped-
 
 ## Links
 
-https://link-to.net/1229997/74.75571272762716/dynamic/?r=ZHVvbGluZ28uY29t
+[Download Link](https://link-to.net/1229997/295.4723990515703/dynamic/?r=ZHVvbGluZ28uY29t)
