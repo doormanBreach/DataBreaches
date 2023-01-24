@@ -12,4 +12,4 @@ Email addresses, Names, Spoken languages, Usernames
 
 ## Free download Link
 
-[Duolingo breach Free Download Link](https://link-to.net/1229997/535.6040998863626/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3pZWUF2bnBubnVTYWg2US9kdW9saW5nby5jb20vZmlsZQ==)
+[Duolingo breach Free Download Link](https://tinyurl.com/2b2k277t)
