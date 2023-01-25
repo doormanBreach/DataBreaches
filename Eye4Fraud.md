@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Partial credit card data, Passwords, Phone
 
 ## Free download Link
 
-[Eye4Fraud breach Free Download Link](https://link-to.net/1229997/694.1018721717452/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0lVMHFLRlRpN21nYm5Vdy9leWU0ZnJhdWQuY29tL2ZpbGU=)
+[Eye4Fraud breach Free Download Link](https://tinyurl.com/2b2k277t)
