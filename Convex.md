@@ -12,4 +12,4 @@ In February 2023, the Russian telecommunications provider <a href="https://www.h
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/125.06560451490911/dynamic/?r=Y29udmV4LnJ1)
+[Download Link](https://link-to.net/1229997/236.45210537265538/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0VVVWlLTGhhdFljV1hMeC9jb252ZXgucnUvZmlsZQ==)
