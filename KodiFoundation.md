@@ -12,4 +12,4 @@ Browser user agent details, Dates of birth, Email addresses, IP addresses, Passw
 
 ## Free download Link
 
-[KodiFoundation breach Free Download Link](https://link-to.net/1229997/379.4957721710026/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2ZUVEFyTExKdjlNV3R5ZC9rb2RpLnR2L2ZpbGU=)
+[KodiFoundation breach Free Download Link](https://tinyurl.com/2b2k277t)
