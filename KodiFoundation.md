@@ -1,15 +1,15 @@
-# KodiFoundation
+# KodiFoundation database leak
 
 ## Description
 
-Date: 2023-02-16
+2023-02-16
 
-Description:
 In February 2023, <a href="https://www.bleepingcomputer.com/news/security/kodi-discloses-data-breach-after-forum-database-for-sale-online/" target="_blank" rel="noopener">The Kodi Foundation suffered a data breach that exposed more than 400k user records</a>. Attributed to an account belonging to &quot;a trusted but currently inactive member of the forum admin team&quot;, the breach involved the administrator account creating a database backup that was subsequently downloaded before being sold on a hacking forum. The breach exposed email and IP addresses, usernames, genders and passwords stored as MyBB salted hashes. The Kodi Foundation elected to self-submit impacted email addresses to HIBP.
 
+## Breached data
 
-['Browser user agent details', 'Dates of birth', 'Email addresses', 'IP addresses', 'Passwords', 'Private messages', 'Usernames']
+Browser user agent details, Dates of birth, Email addresses, IP addresses, Passwords, Private messages, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/477.4394022026619/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2lPY0VIMnplWTMxUDduVy9rb2RpLnR2L2ZpbGU=)
+[KodiFoundation breach Free Download Link](https://link-to.net/1229997/379.4957721710026/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2ZUVEFyTExKdjlNV3R5ZC9rb2RpLnR2L2ZpbGU=)
