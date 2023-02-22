@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Geographic locations, Loan information
 
 ## Free download Link
 
-[HDBFinancialServices breach Free Download Link](https://link-to.net/1229997/712.0983348725108/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0FTendaUTBBSlVMU0ZrOC9oZGJmcy5jb20vZmlsZQ==)
+[HDBFinancialServices breach Free Download Link](https://tinyurl.com/2b2k277t)
