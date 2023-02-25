@@ -12,4 +12,4 @@ In August 2023, <a href="https://www.troyhunt.com/68k-polish-phishing-victims-ar
 
 ## Links
 
-https://link-to.net/1229997/336.2193119380097/dynamic/?r=
+[Download Link](https://link-to.net/1229997/724.9175226428804/dynamic/?r=)
