@@ -12,4 +12,4 @@ In February 2023, the grad school admissions search website TheGradCafe suffered
 
 ## Links
 
-https://link-to.net/1229997/874.8232644776101/dynamic/?r=dGhlZ3JhZGNhZmUuY29t
+[Download Link](https://link-to.net/1229997/419.8969830848348/dynamic/?r=dGhlZ3JhZGNhZmUuY29t)
