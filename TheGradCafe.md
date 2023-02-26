@@ -12,4 +12,4 @@ Email addresses, Genders, Geographic locations, IP addresses, Names, Passwords, 
 
 ## Free download Link
 
-[TheGradCafe breach Free Download Link](https://link-to.net/1229997/655.7896483350457/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3d1TEd5dlZ2OEJXaFNFOC90aGVncmFkY2FmZS5jb20vZmlsZQ==)
+[TheGradCafe breach Free Download Link](https://tinyurl.com/2b2k277t)
