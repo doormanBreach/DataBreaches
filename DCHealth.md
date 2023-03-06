@@ -12,4 +12,4 @@ In March 2023, <a href="https://cyberscoop.com/dc-health-link-breach-russia-hack
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/910.221226436178/dynamic/?r=ZGNoZWFsdGhsaW5rLmNvbQ==)
+[Download Link](https://link-to.net/1229997/581.8535000246547/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1Zxd3hHaUtVZVVPZGRTWi9kY2hlYWx0aGxpbmsuY29tL2ZpbGU=)
