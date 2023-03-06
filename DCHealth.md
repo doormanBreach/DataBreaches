@@ -12,4 +12,4 @@ Citizenship statuses, Dates of birth, Email addresses, Employers, Ethnicities, G
 
 ## Free download Link
 
-[DCHealth breach Free Download Link](https://link-to.net/1229997/894.9054470442059/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2FET0dPTGlheW90SW5TTy9kY2hlYWx0aGxpbmsuY29tL2ZpbGU=)
+[DCHealth breach Free Download Link](https://tinyurl.com/2b2k277t)
