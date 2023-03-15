@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[MediaWorks breach Free Download Link](https://link-to.net/1229997/625.3454160465992/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2VoaFV5Z0xuMHZCNDEyWC9tZWRpYXdvcmtzLmNvLm56L2ZpbGU=)
+[MediaWorks breach Free Download Link](https://tinyurl.com/2b2k277t)
