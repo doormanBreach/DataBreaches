@@ -12,4 +12,4 @@ In April 2023, the stolen identity marketplace <a href="https://www.troyhunt.com
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/840.6237983432703/dynamic/?r=Z2VuZXNpcy5tYXJrZXQ=)
+[Download Link](https://link-to.net/1229997/593.681447064043/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzZTaWs3TFB4Sm9oOWRSRS9nZW5lc2lzLm1hcmtldC9maWxl)
