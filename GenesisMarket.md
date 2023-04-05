@@ -12,4 +12,4 @@ Browser user agent details, Credit card CVV, Credit cards, Dates of birth, Email
 
 ## Free download Link
 
-[GenesisMarket breach Free Download Link](https://link-to.net/1229997/737.3758623437984/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09Oald0dkpsTWY1OWhhTS9nZW5lc2lzLm1hcmtldC9maWxl)
+[GenesisMarket breach Free Download Link](https://tinyurl.com/2b2k277t)
