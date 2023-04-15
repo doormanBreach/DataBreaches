@@ -12,4 +12,4 @@ In April 2023, <a href="https://twitter.com/PalCyberNews/status/1647208008806461
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/779.5039404438593/dynamic/?r=am9iem9uZS5jby5pbA==)
+[Download Link](https://link-to.net/1229997/741.6258802780574/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2VEYmtUU014WUdyTndnVC9qb2J6b25lLmNvLmlsL2ZpbGU=)
