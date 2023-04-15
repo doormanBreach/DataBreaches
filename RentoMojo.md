@@ -12,4 +12,4 @@ In April 2023, the Indian rental service <a href="https://www.indiatoday.in/tech
 
 ## Links
 
-https://link-to.net/1229997/906.4326594264086/dynamic/?r=cmVudG9tb2pvLmNvbQ==
+[Download Link](https://link-to.net/1229997/683.0027717430606/dynamic/?r=cmVudG9tb2pvLmNvbQ==)
