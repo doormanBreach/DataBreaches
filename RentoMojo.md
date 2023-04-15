@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Government issued IDs, Names, Passport
 
 ## Free download Link
 
-[RentoMojo breach Free Download Link](https://link-to.net/1229997/60.507730547835095/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L05KRzdiblgwOU51THZIeC9yZW50b21vam8uY29tL2ZpbGU=)
+[RentoMojo breach Free Download Link](https://tinyurl.com/2b2k277t)
