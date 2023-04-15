@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Family members' names, Genders, Government issu
 
 ## Free download Link
 
-[Jobzone breach Free Download Link](https://link-to.net/1229997/18.474971204984204/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2JBQkpLeXBkM2J5cmhzcy9qb2J6b25lLmNvLmlsL2ZpbGU=)
+[Jobzone breach Free Download Link](https://tinyurl.com/2b2k277t)
