@@ -1,0 +1,15 @@
+# BotOfLegends
+
+## Description
+
+Date: 2014-11-13
+
+Description:
+In November 2014, the forum for <a href="http://botoflegends.com" target="_blank" rel="noopener">Bot of Legends</a> suffered a data breach. The IP.Board forum contained 238k accounts including usernames, email and IP addresses and passwords stored as salted MD5 hashes.
+
+
+['Email addresses', 'IP addresses', 'Passwords', 'Usernames', 'Website activity']
+
+## Links
+
+https://link-to.net/YOUR_USER/467.1840246150063/dynamic/?r=Ym90b2ZsZWdlbmRzLmNvbQ==
