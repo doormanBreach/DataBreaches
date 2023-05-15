@@ -1,0 +1,15 @@
+# IndiHome
+
+## Description
+
+Date: 2019-11-01
+
+Description:
+In mid-2021, <a href="https://en.antaranews.com/news/245609/communication-ministry-studying-report-of-indihome-data-leak" target="_blank" rel="noopener">reports emerged of a data breach of Indonesia's telecommunications company, IndiHome</a>. Over 26M rows of data alleged to have been sourced from the company was posted to a popular hacking forum and contained 12.6M unique email addresses alongside names, IP addresses, genders and geographic locations. The most recent data was stamped as being recorded in November 2019.
+
+
+['Device information', 'Email addresses', 'Genders', 'Geographic locations', 'IP addresses', 'Names']
+
+## Links
+
+https://link-to.net/YOUR_USER/194.59048089498688/dynamic/?r=aW5kaWhvbWUuY28uaWQ=
