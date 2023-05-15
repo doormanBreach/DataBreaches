@@ -1,0 +1,15 @@
+# GunsDotCom
+
+## Description
+
+Date: 2021-01-12
+
+Description:
+In January 2021, the firearms website <a href="https://gizmodo.com/guns-com-gets-hacked-spilling-gun-owner-information-al-1846544734" target="_blank" rel="noopener">guns.com suffered a data breach</a>. The breach exposed 376k unique email addresses along with names, phone numbers, physical addresses, gun purchases, partial credit card data, dates of birth and passwords stored as bcrypt hashes.
+
+
+['Dates of birth', 'Email addresses', 'Names', 'Partial credit card data', 'Passwords', 'Phone numbers', 'Physical addresses', 'Purchases']
+
+## Links
+
+https://link-to.net/YOUR_USER/352.0122775325334/dynamic/?r=Z3Vucy5jb20=
