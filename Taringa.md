@@ -1,0 +1,15 @@
+# Taringa
+
+## Description
+
+Date: 2017-08-01
+
+Description:
+In September 2017, news broke that <a href="https://thehackernews.com/2017/09/taringa-data-breach-hacking.html" target="_blank" rel="noopener">Taringa had suffered a data breach exposing 28 million records</a>. Known as &quot;The Latin American Reddit&quot;, <a href="https://www.taringa.net/posts/taringa/19972402/Un-mensaje-importante-sobre-la-seguridad-de-tu-cuenta.html" target="_blank" rel="noopener">Taringa's breach disclosure notice</a> indicated the incident dated back to August that year. The exposed data included usernames, email addresses and weak MD5 hashes of passwords.
+
+
+['Email addresses', 'Passwords', 'Usernames']
+
+## Links
+
+https://link-to.net/YOUR_USER/566.9897516700044/dynamic/?r=dGFyaW5nYS5uZXQ=
