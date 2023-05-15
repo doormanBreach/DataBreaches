@@ -1,0 +1,15 @@
+# Raychat
+
+## Description
+
+Date: 2021-01-31
+
+Description:
+In January 2021, the now defunct Iranian social media platform <a href="https://www.gizmodo.com.au/2021/02/iranian-chat-app-gets-its-data-wiped-out-in-a-cyberattack/" target="_blank" rel="noopener">Raychat suffered a data breach that exposed 939 thousand unique email addresses</a>. The data included names, IP addresses, browser user agent strings and passwords stored as bcrypt hashes. The data was provided to HIBP by <a href="https://dehashed.com/" target="_blank" rel="noopener">dehashed.com</a>.
+
+
+['Browser user agent details', 'Email addresses', 'IP addresses', 'Names', 'Passwords']
+
+## Links
+
+https://link-to.net/YOUR_USER/99.29562497093025/dynamic/?r=cmF5Y2hhdC5pcg==
