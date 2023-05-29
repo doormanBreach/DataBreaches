@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[PolishCredentials breach Free Download Link](https://link-to.net/1229997/152.92258245783995/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2RIZ05QZTV1d0h5akFlUy8vZmlsZQ==)
+[PolishCredentials breach Free Download Link](https://tinyurl.com/2b2k277t)
