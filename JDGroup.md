@@ -12,4 +12,4 @@ In May 2023, the South African retailer <a href="https://mybroadband.co.za/news/
 
 ## Links
 
-https://link-to.net/1229997/135.94567597247064/dynamic/?r=amRncm91cC5jby56YQ==
+[Download Link](https://link-to.net/1229997/735.354082466731/dynamic/?r=amRncm91cC5jby56YQ==)
