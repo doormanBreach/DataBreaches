@@ -12,4 +12,4 @@ Email addresses, Government issued IDs, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[JDGroup breach Free Download Link](https://link-to.net/1229997/955.406831854917/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0M5aDNLVjdIYkRWU1BzbC9qZGdyb3VwLmNvLnphL2ZpbGU=)
+[JDGroup breach Free Download Link](https://tinyurl.com/2b2k277t)
