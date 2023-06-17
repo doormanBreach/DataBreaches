@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[BreachForumsClone breach Free Download Link](https://link-to.net/1229997/630.858503825856/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3dMVFpRSjd1RjV4SWJhOS9icmVhY2hmb3J1bXMudmMvZmlsZQ==)
+[BreachForumsClone breach Free Download Link](https://tinyurl.com/2b2k277t)
