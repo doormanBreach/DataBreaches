@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Phone numbers, Physical address
 
 ## Free download Link
 
-[Dymocks breach Free Download Link](https://link-to.net/1229997/415.7969707451814/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0FvUktVSU0wdFJ5bEZpYy9keW1vY2tzLmNvbS5hdS9maWxl)
+[Dymocks breach Free Download Link](https://tinyurl.com/2b2k277t)
