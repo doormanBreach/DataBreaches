@@ -12,4 +12,4 @@ In September 2023, the Australian book retailer <a href="https://www.abc.net.au/
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/236.54751440599287/dynamic/?r=ZHltb2Nrcy5jb20uYXU=)
+[Download Link](https://link-to.net/1229997/649.2623718877485/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ViY1J3TTlvaHFCdUZJWS9keW1vY2tzLmNvbS5hdS9maWxl)
