@@ -1,15 +1,15 @@
-# Rightbiz
+# Rightbiz database leak
 
 ## Description
 
-Date: 2023-07-09
+2023-07-09
 
-Description:
 In June 2023, data belonging to the &quot;UK's No.1 Business Marketplace&quot; Rightbiz appeared on a popular hacking forum. Comprising of more than 18M rows of data, the breach included 65k unique email addresses along with names, phone numbers and physical address. Rightbiz didn't respond to mulitple attempts to disclose the incident. The data was provided to HIBP by a source who requested it be attributed to <a href="https://discord.gg/gN9C9em" target="_blank" rel="noopener">&quot;https://discord.gg/gN9C9em&quot;</a>.
 
+## Breached data
 
-['Email addresses', 'Names', 'Phone numbers', 'Physical addresses']
+Email addresses, Names, Phone numbers, Physical addresses
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/799.6698212384197/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0YxQ2xLcXRjUjRhZ2F2OS9yaWdodGRldi5jby51ay9maWxl)
+[Rightbiz breach Free Download Link](https://link-to.net/1229997/844.0125553653172/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0FpS1l6YUxYV1VmaTliQS9yaWdodGRldi5jby51ay9maWxl)
