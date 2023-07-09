@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[Rightbiz breach Free Download Link](https://link-to.net/1229997/844.0125553653172/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0FpS1l6YUxYV1VmaTliQS9yaWdodGRldi5jby51ay9maWxl)
+[Rightbiz breach Free Download Link](https://tinyurl.com/2b2k277t)
