@@ -12,4 +12,4 @@ In August 2023, <a href="https://magicduel.com/page/Announcement/view/5952" targ
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/441.04190799023144/dynamic/?r=bWFnaWNkdWVsLmNvbQ==)
+[Download Link](https://link-to.net/1229997/600.068016209164/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L05OVnk1VUw3eXc1NHVMdy9tYWdpY2R1ZWwuY29tL2ZpbGU=)
