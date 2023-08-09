@@ -12,4 +12,4 @@ In August 2023, PlayCyberGames which &quot;allows users to play any games with L
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/461.9261971994626/dynamic/?r=cGxheWN5YmVyZ2FtZXMuY29t)
+[Download Link](https://link-to.net/1229997/78.81351314616569/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2dMY1poaGZVczdVNjVlZS9wbGF5Y3liZXJnYW1lcy5jb20vZmlsZQ==)
