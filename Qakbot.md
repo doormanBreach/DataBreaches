@@ -12,4 +12,4 @@ In August 2023, <a href="https://www.troyhunt.com/data-from-the-qakbot-malware-i
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/430.93962444640954/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/623.2953224854972/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2hXdGo3RENjQ2dpMmxNai8vZmlsZQ==)
