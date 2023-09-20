@@ -12,4 +12,4 @@ In September 2023, <a href="https://www.troyhunt.com/inside-the-massive-naz-api-
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/467.04791132351664/dynamic/?r=)
+[Download Link](https://link-to.net/1229997/0.765584674939257/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L002YndSNGp2clpGMUJNdS8vZmlsZQ==)
