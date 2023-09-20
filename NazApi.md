@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[NazApi breach Free Download Link](https://link-to.net/1229997/197.87198713018083/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0tUMWV6ZUR3REs5VlZxQy8vZmlsZQ==)
+[NazApi breach Free Download Link](https://tinyurl.com/2b2k277t)
