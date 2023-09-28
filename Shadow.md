@@ -12,4 +12,4 @@ In September 2023, the cloud gaming provider <a href="https://www.bleepingcomput
 
 ## Links
 
-https://link-to.net/1229997/253.8276682668149/dynamic/?r=c2hhZG93LnRlY2g=
+[Download Link](https://link-to.net/1229997/98.96795352033627/dynamic/?r=c2hhZG93LnRlY2g=)
