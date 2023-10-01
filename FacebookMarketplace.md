@@ -12,4 +12,4 @@ Email addresses, Geographic locations, Names, Passwords, Phone numbers, Social m
 
 ## Free download Link
 
-[FacebookMarketplace breach Free Download Link](https://link-to.net/1229997/398.98267469228585/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VuOUtHR1JlTkNHMUllRi9mYWNlYm9vay5jb20vZmlsZQ==)
+[FacebookMarketplace breach Free Download Link](https://tinyurl.com/2b2k277t)
