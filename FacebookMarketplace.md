@@ -12,4 +12,4 @@ In February 2024, <a href="https://www.bleepingcomputer.com/news/security/200-00
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/367.9496381069376/dynamic/?r=ZmFjZWJvb2suY29t)
+[Download Link](https://link-to.net/1229997/700.7746713494777/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2luTXA2Z1FqSFdnZ0RTTy9mYWNlYm9vay5jb20vZmlsZQ==)
