@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[Toumei breach Free Download Link](https://link-to.net/1229997/821.267457122232/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzNQaWNaUHRxZnJ3dkRnUi90b3VtZWkuY28uanAvZmlsZQ==)
+[Toumei breach Free Download Link](https://tinyurl.com/2b2k277t)
