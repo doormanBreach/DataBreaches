@@ -12,4 +12,4 @@ In October 2023, the Japanese consultancy firm <a href="https://www.toumei.co.jp
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/777.2931711598376/dynamic/?r=dG91bWVpLmNvLmpw)
+[Download Link](https://link-to.net/1229997/514.7317181785337/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0dndUp3cjI0Q3pndFAwRi90b3VtZWkuY28uanAvZmlsZQ==)
