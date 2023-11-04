@@ -12,4 +12,4 @@ In November 2023, <a href="https://troyhunt.com/hackers-scrapers-fakers-whats-re
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/456.559188665524/dynamic/?r=bGlua2VkaW4uY29t)
+[Download Link](https://link-to.net/1229997/388.64331721206133/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRWWkdnTWVtd2o4T1lBbC9saW5rZWRpbi5jb20vZmlsZQ==)
