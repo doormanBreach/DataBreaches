@@ -12,4 +12,4 @@ Email addresses, Genders, Geographic locations, Job titles, Names, Professional 
 
 ## Free download Link
 
-[LinkedInScrape2023 breach Free Download Link](https://link-to.net/1229997/566.706796760491/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzIwaDNJeWN6SGtGdVFXNS9saW5rZWRpbi5jb20vZmlsZQ==)
+[LinkedInScrape2023 breach Free Download Link](https://tinyurl.com/2b2k277t)
