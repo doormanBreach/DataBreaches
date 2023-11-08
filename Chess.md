@@ -12,4 +12,4 @@ Email addresses, Geographic locations, Names, Usernames
 
 ## Free download Link
 
-[Chess breach Free Download Link](https://link-to.net/1229997/806.1509662469626/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1Fha2J1TG12VFZQVGFhZC9jaGVzcy5jb20vZmlsZQ==)
+[Chess breach Free Download Link](https://tinyurl.com/2b2k277t)
