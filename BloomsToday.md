@@ -12,4 +12,4 @@ Email addresses, Names, Partial credit card data, Phone numbers, Physical addres
 
 ## Free download Link
 
-[BloomsToday breach Free Download Link](https://link-to.net/1229997/628.8709476685162/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1NWTG9yc0VwODZtaTJjSi9ibG9vbXN0b2RheS5jb20vZmlsZQ==)
+[BloomsToday breach Free Download Link](https://tinyurl.com/2b2k277t)
