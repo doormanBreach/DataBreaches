@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Geographic locations, Names, Passwords
 
 ## Free download Link
 
-[KitchenPal breach Free Download Link](https://link-to.net/1229997/221.16628422741135/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1E1VElkVkoycDdaTk0wYy9raXRjaGVucGFsYXBwLmNvbS9maWxl)
+[KitchenPal breach Free Download Link](https://tinyurl.com/2b2k277t)
