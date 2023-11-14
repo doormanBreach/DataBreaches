@@ -12,4 +12,4 @@ In November 2023, the kitchen management application <a href="https://restorepri
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/107.36669715218727/dynamic/?r=a2l0Y2hlbnBhbGFwcC5jb20=)
+[Download Link](https://link-to.net/1229997/275.4736615358794/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0pSV2h2bmZ0bERxRFBVeC9raXRjaGVucGFsYXBwLmNvbS9maWxl)
