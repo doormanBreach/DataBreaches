@@ -12,4 +12,4 @@ In June 2024, <a href="https://x.com/h4ckmanac/status/1798228918006091819" targe
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/38.719288344289396/dynamic/?r=emFkaWctZXQtdm9sdGFpcmUuY29t)
+[Download Link](https://link-to.net/1229997/671.139439674211/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2I5QmR2b203RnJmOWpaMy96YWRpZy1ldC12b2x0YWlyZS5jb20vZmlsZQ==)
