@@ -12,4 +12,4 @@ Email addresses, Genders, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[ZadigVoltaire breach Free Download Link](https://link-to.net/1229997/112.96010071560691/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2oycmxTY3NmbXNpblhjOS96YWRpZy1ldC12b2x0YWlyZS5jb20vZmlsZQ==)
+[ZadigVoltaire breach Free Download Link](https://tinyurl.com/2b2k277t)
