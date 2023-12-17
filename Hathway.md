@@ -12,4 +12,4 @@ In December 2023, <a href="https://restoreprivacy.com/hacker-allegedly-holds-dat
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/530.0291042966458/dynamic/?r=aGF0aHdheS5jb20=)
+[Download Link](https://link-to.net/1229997/691.5336919868633/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzRWNjVxNDJXQ2F0M0lteS9oYXRod2F5LmNvbS9maWxl)
