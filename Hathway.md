@@ -12,4 +12,4 @@ Device information, Email addresses, IP addresses, Names, Passwords, Phone numbe
 
 ## Free download Link
 
-[Hathway breach Free Download Link](https://link-to.net/1229997/314.9115229481493/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0F1Wk4wSWY4M2czN2s1bS9oYXRod2F5LmNvbS9maWxl)
+[Hathway breach Free Download Link](https://tinyurl.com/2b2k277t)
