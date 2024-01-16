@@ -12,4 +12,4 @@ In January 2024, <a href="https://twitter.com/H4ckManac/status/17475275795594119
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/205.61482560395405/dynamic/?r=dHJlbGxvLmNvbQ==)
+[Download Link](https://link-to.net/1229997/840.5931277675525/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1hPWExkb1hNbkJlQXltdy90cmVsbG8uY29tL2ZpbGU=)
