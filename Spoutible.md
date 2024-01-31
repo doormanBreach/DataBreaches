@@ -12,4 +12,4 @@ Email addresses, Genders, IP addresses, Names, Passwords, Phone numbers, Usernam
 
 ## Free download Link
 
-[Spoutible breach Free Download Link](https://link-to.net/1229997/71.58484294199063/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3dweUJWRncyMXp4M0RKSC9zcG91dGlibGUuY29tL2ZpbGU=)
+[Spoutible breach Free Download Link](https://tinyurl.com/2b2k277t)
