@@ -12,4 +12,4 @@ In January 2024, <a href="https://www.troyhunt.com/how-spoutibles-leaky-api-spur
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/733.1591551282471/dynamic/?r=c3BvdXRpYmxlLmNvbQ==)
+[Download Link](https://link-to.net/1229997/294.28763479888806/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzVCVUxLQmJBWDdrSUh4ZC9zcG91dGlibGUuY29tL2ZpbGU=)
