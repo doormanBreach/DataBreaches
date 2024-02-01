@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Names, Passwords, Phone numbers, 
 
 ## Free download Link
 
-[SurveyLama breach Free Download Link](https://link-to.net/1229997/50.50669828192112/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2JldWtwN0hJYnV5Q3ZQWi9zdXJ2ZXlsYW1hLmNvbS9maWxl)
+[SurveyLama breach Free Download Link](https://tinyurl.com/2b2k277t)
