@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Names, Passwords, Phone numbers, Physical addre
 
 ## Free download Link
 
-[Tangerine breach Free Download Link](https://link-to.net/1229997/218.3928398284032/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RubmxDaVViN29venFDMy90YW5nZXJpbmV0ZWxlY29tLmNvbS5hdS9maWxl)
+[Tangerine breach Free Download Link](https://tinyurl.com/2b2k277t)
