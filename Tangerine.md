@@ -12,4 +12,4 @@ In February 2024, the Australian Telco <a href="https://www.itnews.com.au/news/t
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/965.2946443402366/dynamic/?r=dGFuZ2VyaW5ldGVsZWNvbS5jb20uYXU=)
+[Download Link](https://link-to.net/1229997/481.6176745477242/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2N2ck1wa3h1MHhSYVJ6Yy90YW5nZXJpbmV0ZWxlY29tLmNvbS5hdS9maWxl)
