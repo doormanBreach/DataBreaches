@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Passwords
 
 ## Free download Link
 
-[CutoutPro breach Free Download Link](https://link-to.net/1229997/552.3771473972346/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1JVMGJZR1lJdFFybTdsWi9jdXRvdXQucHJvL2ZpbGU=)
+[CutoutPro breach Free Download Link](https://tinyurl.com/2b2k277t)
