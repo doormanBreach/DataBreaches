@@ -12,4 +12,4 @@ In February 2024, the AI-powered visual design platform <a href="https://twitter
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/817.9801478032335/dynamic/?r=Y3V0b3V0LnBybw==)
+[Download Link](https://link-to.net/1229997/648.4204742171827/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L24zNUFBaDFTVjg1OHRxai9jdXRvdXQucHJvL2ZpbGU=)
