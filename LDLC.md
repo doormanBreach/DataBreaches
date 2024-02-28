@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses, Salutations
 
 ## Free download Link
 
-[LDLC breach Free Download Link](https://link-to.net/1229997/119.8604397514863/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3pKNnhDQmRwckVVMWFIVC9sZGxjLmNvbS9maWxl)
+[LDLC breach Free Download Link](https://tinyurl.com/2b2k277t)
