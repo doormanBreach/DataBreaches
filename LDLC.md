@@ -12,4 +12,4 @@ In March 2024, <a href="https://www.groupe-ldlc.com/information-relative-a-un-in
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/309.3463199249171/dynamic/?r=bGRsYy5jb20=)
+[Download Link](https://link-to.net/1229997/485.5004623487135/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3R3bWo3TnpTeHpNSG5vUC9sZGxjLmNvbS9maWxl)
