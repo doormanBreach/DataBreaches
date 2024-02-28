@@ -1,15 +1,15 @@
-# LDLC
+# LDLC database leak
 
 ## Description
 
-Date: 2024-02-28
+2024-02-28
 
-Description:
 In March 2024, <a href="https://www.groupe-ldlc.com/information-relative-a-un-incident-de-cybersecurite-2/" target="_blank" rel="noopener">French retailer LDLC disclosed a data breach that impacted customers of their physical stores</a>. The data was <a href="https://x.com/H4ckManac/status/1763100569810420017" target="_blank" rel="noopener">previously listed for sale on a popular hacking forum</a> and contained 1.26M unique email addresses along with names, phone numbers and physical addresses. The data was provided to HIBP by a source who requested it be attributed to &quot;oathnet.ru&quot;.
 
+## Breached data
 
-['Email addresses', 'Names', 'Phone numbers', 'Physical addresses', 'Salutations']
+Email addresses, Names, Phone numbers, Physical addresses, Salutations
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/485.5004623487135/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3R3bWo3TnpTeHpNSG5vUC9sZGxjLmNvbS9maWxl)
+[LDLC breach Free Download Link](https://link-to.net/1229997/119.8604397514863/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3pKNnhDQmRwckVVMWFIVC9sZGxjLmNvbS9maWxl)
