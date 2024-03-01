@@ -12,4 +12,4 @@ In July 2024, <a href="https://www.bleepingcomputer.com/news/security/over-400-0
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/545.0694291038142/dynamic/?r=bGlmZTM2MC5jb20=)
+[Download Link](https://link-to.net/1229997/563.9660122104251/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2pUSU5BMjVRSDhaWUozUy9saWZlMzYwLmNvbS9maWxl)
