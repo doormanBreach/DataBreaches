@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Geographic locations, IP addresses, Usernames
 
 ## Free download Link
 
-[MrGreenGaming breach Free Download Link](https://link-to.net/1229997/700.2504630144311/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1BmUHNPZEN1a1hzRFdGbS9tcmdyZWVuZ2FtaW5nLmNvbS9maWxl)
+[MrGreenGaming breach Free Download Link](https://tinyurl.com/2b2k277t)
