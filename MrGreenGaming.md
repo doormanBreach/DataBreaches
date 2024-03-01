@@ -12,4 +12,4 @@ In March 2024, the online games community Mr. Green Gaming suffered a data breac
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/874.0185108398337/dynamic/?r=bXJncmVlbmdhbWluZy5jb20=)
+[Download Link](https://link-to.net/1229997/408.99345794102493/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0wzSVBubmlLeWdJbTNDbC9tcmdyZWVuZ2FtaW5nLmNvbS9maWxl)
