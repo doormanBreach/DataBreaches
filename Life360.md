@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers
 
 ## Free download Link
 
-[Life360 breach Free Download Link](https://link-to.net/1229997/88.23876983767676/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1MwWnFiMHZHeGFnakZ2eC9saWZlMzYwLmNvbS9maWxl)
+[Life360 breach Free Download Link](https://tinyurl.com/2b2k277t)
