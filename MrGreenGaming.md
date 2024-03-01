@@ -1,15 +1,15 @@
-# MrGreenGaming
+# MrGreenGaming database leak
 
 ## Description
 
-Date: 2024-03-01
+2024-03-01
 
-Description:
 In March 2024, the online games community Mr. Green Gaming suffered a data breach that exposed 27k user records. Acknowledged on their Discord server, the incident exposed email and IP addresses, usernames, geographic locations and dates of birth.
 
+## Breached data
 
-['Dates of birth', 'Email addresses', 'Geographic locations', 'IP addresses', 'Usernames']
+Dates of birth, Email addresses, Geographic locations, IP addresses, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/408.99345794102493/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0wzSVBubmlLeWdJbTNDbC9tcmdyZWVuZ2FtaW5nLmNvbS9maWxl)
+[MrGreenGaming breach Free Download Link](https://link-to.net/1229997/700.2504630144311/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1BmUHNPZEN1a1hzRFdGbS9tcmdyZWVuZ2FtaW5nLmNvbS9maWxl)
