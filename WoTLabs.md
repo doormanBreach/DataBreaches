@@ -12,4 +12,4 @@ In March 2024, WoTLabs (World of Tanks Statistics and Resources) suffered a data
 
 ## Links
 
-https://link-to.net/YOUR_USER/727.4574391891801/dynamic/?r=d290bGFicy5uZXQ=
+https://link-to.net/YOUR_USER/984.3962472316235/dynamic/?r=d290bGFicy5uZXQ=
