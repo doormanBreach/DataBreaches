@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Time zones, Usernames
 
 ## Free download Link
 
-[WoTLabs breach Free Download Link](https://link-to.net/1229997/849.7306909518726/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3lXVTVSTUFGaDJoQ00wZi93b3RsYWJzLm5ldC9maWxl)
+[WoTLabs breach Free Download Link](https://tinyurl.com/2b2k277t)
