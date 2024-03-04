@@ -12,4 +12,4 @@ In March 2024, <a href="https://cybernews.com/news/giant-tiger-customers-exposed
 
 ## Links
 
-https://link-to.net/1229997/889.8285994096178/dynamic/?r=Z2lhbnR0aWdlci5jb20=
+[Download Link](https://link-to.net/1229997/277.1172919132508/dynamic/?r=Z2lhbnR0aWdlci5jb20=)
