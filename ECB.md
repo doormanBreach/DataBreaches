@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[ECB breach Free Download Link](https://link-to.net/1229997/182.16540271312476/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1JNcmRrczVON1lIZTZndi9lY2IuY28udWsvZmlsZQ==)
+[ECB breach Free Download Link](https://tinyurl.com/2b2k277t)
