@@ -12,4 +12,4 @@ Email addresses, IP addresses, Passwords, Usernames
 
 ## Free download Link
 
-[KasperskyClub breach Free Download Link](https://link-to.net/1229997/857.5947558136558/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1Q3UXdRMGRkUVoxd2JoZi9rYXNwZXJza3ljbHViLnJ1L2ZpbGU=)
+[KasperskyClub breach Free Download Link](https://tinyurl.com/2b2k277t)
