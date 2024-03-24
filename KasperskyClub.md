@@ -12,4 +12,4 @@ In March 2024, the independent fan forum <a href="https://www.hackread.com/57000
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/286.5630990694028/dynamic/?r=a2FzcGVyc2t5Y2x1Yi5ydQ==)
+[Download Link](https://link-to.net/1229997/598.4917490547455/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1I1R2FaajMxZ1hTOE9SQi9rYXNwZXJza3ljbHViLnJ1L2ZpbGU=)
