@@ -1,15 +1,15 @@
-# KasperskyClub
+# KasperskyClub database leak
 
 ## Description
 
-Date: 2024-03-24
+2024-03-24
 
-Description:
 In March 2024, the independent fan forum <a href="https://www.hackread.com/57000-kaspersky-fan-club-forum-data-breach/" target="_blank" rel="noopener">Kaspersky Club suffered a data breach</a>. The incident exposed 56k unique email addresses alongside usernames, IP addresses and passwords stored as either MD5 or bcrypt hashes.
 
+## Breached data
 
-['Email addresses', 'IP addresses', 'Passwords', 'Usernames']
+Email addresses, IP addresses, Passwords, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/598.4917490547455/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1I1R2FaajMxZ1hTOE9SQi9rYXNwZXJza3ljbHViLnJ1L2ZpbGU=)
+[KasperskyClub breach Free Download Link](https://link-to.net/1229997/857.5947558136558/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1Q3UXdRMGRkUVoxd2JoZi9rYXNwZXJza3ljbHViLnJ1L2ZpbGU=)
