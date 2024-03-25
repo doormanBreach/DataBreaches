@@ -12,4 +12,4 @@ In March 2024, the Indian audio and wearables brand <a href="https://www.forbesi
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/877.4070718452652/dynamic/?r=Ym9hdC1saWZlc3R5bGUuY29t)
+[Download Link](https://link-to.net/1229997/242.5326429003962/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09XaGVZWmNQM0t4Y3hWMy9ib2F0LWxpZmVzdHlsZS5jb20vZmlsZQ==)
