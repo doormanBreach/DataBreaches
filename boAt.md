@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[boAt breach Free Download Link](https://link-to.net/1229997/158.05759330298352/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0lQVDg3TmZlWXp5dm9ERi9ib2F0LWxpZmVzdHlsZS5jb20vZmlsZQ==)
+[boAt breach Free Download Link](https://tinyurl.com/2b2k277t)
