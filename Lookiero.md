@@ -12,4 +12,4 @@ In August 2024, <a href="https://x.com/DailyDarkWeb/status/1825895814385856678" 
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/569.8925876071634/dynamic/?r=bG9va2llcm8uY29t)
+[Download Link](https://link-to.net/1229997/622.4167677650411/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1dlOFdrczZaNUN1cHBHMi9sb29raWVyby5jb20vZmlsZQ==)
