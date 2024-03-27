@@ -1,15 +1,15 @@
-# Lookiero
+# Lookiero database leak
 
 ## Description
 
-Date: 2024-03-27
+2024-03-27
 
-Description:
 In August 2024, <a href="https://x.com/DailyDarkWeb/status/1825895814385856678" target="_blank" rel="noopener">a data breach from the online styling service Lookiero was posted to a popular hacking forum</a>. Dating back to March 2024, the data included 5M unique email addresses, with many of the records also including name, phone number and physical address. When contacted about the incident, Lookiero advised that they would &quot;look into it and get back to you if necessary&quot;. The data was provided to HIBP by a source who requested it be attributed to &quot;oathnet.ru&quot;.
 
+## Breached data
 
-['Email addresses', 'Names', 'Phone numbers', 'Physical addresses']
+Email addresses, Names, Phone numbers, Physical addresses
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/622.4167677650411/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1dlOFdrczZaNUN1cHBHMi9sb29raWVyby5jb20vZmlsZQ==)
+[Lookiero breach Free Download Link](https://link-to.net/1229997/286.3957481198283/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzFTaEJ4WFBkVldQVzFNWi9sb29raWVyby5jb20vZmlsZQ==)
