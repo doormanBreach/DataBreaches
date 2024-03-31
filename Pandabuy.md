@@ -12,4 +12,4 @@ In March 2024, <a href="https://twitter.com/troyhunt/status/1774704266500043067"
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/49.812151382249034/dynamic/?r=cGFuZGFidXkuY29t)
+[Download Link](https://link-to.net/1229997/39.67787144558677/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2RWSVdLejkzTDQ1RmV5Ty9wYW5kYWJ1eS5jb20vZmlsZQ==)
