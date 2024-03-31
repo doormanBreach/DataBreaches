@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[Pandabuy breach Free Download Link](https://link-to.net/1229997/618.9912009261308/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3h2NHg4UDRweGtXVHVsQS9wYW5kYWJ1eS5jb20vZmlsZQ==)
+[Pandabuy breach Free Download Link](https://tinyurl.com/2b2k277t)
