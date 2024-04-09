@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Government issued IDs, Names, Phone nu
 
 ## Free download Link
 
-[NationalPublicData breach Free Download Link](https://link-to.net/1229997/328.953529905323/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1g1cXYzREVDdmFVZUg1Ny8vZmlsZQ==)
+[NationalPublicData breach Free Download Link](https://tinyurl.com/2b2k277t)
