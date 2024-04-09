@@ -12,4 +12,4 @@ In April 2024, <a href="https://www.troyhunt.com/inside-the-3-billion-people-nat
 
 ## Links
 
-https://link-to.net/YOUR_USER/961.1845937662263/dynamic/?r=
+https://link-to.net/1229997/88.85129843142481/dynamic/?r=
