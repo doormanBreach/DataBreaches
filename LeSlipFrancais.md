@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[LeSlipFrancais breach Free Download Link](https://link-to.net/1229997/628.2294358101873/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0FUNWFFNFQ5Z3F6STF3MC9sZXNsaXBmcmFuY2Fpcy5mci9maWxl)
+[LeSlipFrancais breach Free Download Link](https://tinyurl.com/2b2k277t)
