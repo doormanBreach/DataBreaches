@@ -12,4 +12,4 @@ In May 2024, the American luxury retailer Neiman Marcus suffered a data breach <
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/794.350163300744/dynamic/?r=bmVpbWFubWFyY3VzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/132.87826296769646/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1ZvN0NKdzF4NVN3SzlYcC9uZWltYW5tYXJjdXMuY29tL2ZpbGU=)
