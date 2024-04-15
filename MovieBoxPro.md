@@ -12,4 +12,4 @@ Email addresses, Usernames
 
 ## Free download Link
 
-[MovieBoxPro breach Free Download Link](https://link-to.net/1229997/268.70095190444044/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3JkV0ZsSlJraW0ycVFXaS9tb3ZpZWJveHByby5hcHAvZmlsZQ==)
+[MovieBoxPro breach Free Download Link](https://tinyurl.com/2b2k277t)
