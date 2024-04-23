@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Government issued IDs, Job titles, Nam
 
 ## Free download Link
 
-[Tappware breach Free Download Link](https://link-to.net/1229997/251.43124944913075/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1dVRkhqUWJYYWY3RDN4MC90YXBwd2FyZS5jb20vZmlsZQ==)
+[Tappware breach Free Download Link](https://tinyurl.com/2b2k277t)
