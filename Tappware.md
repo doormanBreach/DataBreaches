@@ -12,4 +12,4 @@ In April 2024, <a href="https://bcsi.gov.bd/bangladeshi-tech-company-tappware-da
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/773.9834924754317/dynamic/?r=dGFwcHdhcmUuY29t)
+[Download Link](https://link-to.net/1229997/633.1145252499145/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1lRM3Zielh3QmRnWUVEei90YXBwd2FyZS5jb20vZmlsZQ==)
