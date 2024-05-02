@@ -12,4 +12,4 @@ Email addresses, Genders, IP addresses, Names, Passwords, Phone numbers, Physica
 
 ## Free download Link
 
-[ThePostMillennial breach Free Download Link](https://link-to.net/1229997/150.8263065033404/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0V6Z0dkR2dKOWs4M3A1VC90aGVwb3N0bWlsbGVubmlhbC5jb20vZmlsZQ==)
+[ThePostMillennial breach Free Download Link](https://tinyurl.com/2b2k277t)
