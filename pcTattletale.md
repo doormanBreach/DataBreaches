@@ -12,4 +12,4 @@ In May 2024, <a href="https://www.bleepingcomputer.com/news/security/hacker-defa
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/553.2530603031394/dynamic/?r=cGN0YXR0bGV0YWxlLmNvbQ==)
+[Download Link](https://link-to.net/1229997/511.0813706991303/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1B2cHZKVXdlUE9HdEhYUS9wY3RhdHRsZXRhbGUuY29tL2ZpbGU=)
