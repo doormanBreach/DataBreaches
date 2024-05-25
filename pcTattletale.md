@@ -12,4 +12,4 @@ Device information, Email addresses, IP addresses, Names, Passwords, Phone numbe
 
 ## Free download Link
 
-[pcTattletale breach Free Download Link](https://link-to.net/1229997/297.9918990765168/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L240TklRdmk3RVZicmtIai9wY3RhdHRsZXRhbGUuY29tL2ZpbGU=)
+[pcTattletale breach Free Download Link](https://tinyurl.com/2b2k277t)
