@@ -12,4 +12,4 @@ In May 2024, <a href="https://troyhunt.com/telegram-combolists-and-361m-email-ad
 
 ## Links
 
-https://link-to.net/1229997/722.8461964286707/dynamic/?r=
+[Download Link](https://link-to.net/1229997/241.52000371076886/dynamic/?r=)
