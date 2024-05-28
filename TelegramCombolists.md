@@ -1,15 +1,15 @@
-# TelegramCombolists
+# TelegramCombolists database leak
 
 ## Description
 
-Date: 2024-05-28
+2024-05-28
 
-Description:
 In May 2024, <a href="https://troyhunt.com/telegram-combolists-and-361m-email-addresses" target="_blank" rel="noopener">2B rows of data with 361M unique email addresses were collated from malicious Telegram channels</a>. The data contained 122GB across 1.7k files with email addresses, usernames, passwords and in many cases, the website they were entered into. The data appears to have been sourced from a combination of existing combolists and info stealer malware.
 
+## Breached data
 
-['Email addresses', 'Passwords', 'Usernames']
+Email addresses, Passwords, Usernames
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/886.7145682845504/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2IzV1ZBVzJPb2pNZERKYy8vZmlsZQ==)
+[TelegramCombolists breach Free Download Link](https://link-to.net/1229997/456.1057967555471/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzlXNncwbVBQM25qWHV5OC8vZmlsZQ==)
