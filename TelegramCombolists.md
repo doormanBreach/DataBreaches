@@ -12,4 +12,4 @@ Email addresses, Passwords, Usernames
 
 ## Free download Link
 
-[TelegramCombolists breach Free Download Link](https://link-to.net/1229997/456.1057967555471/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzlXNncwbVBQM25qWHV5OC8vZmlsZQ==)
+[TelegramCombolists breach Free Download Link](https://tinyurl.com/2b2k277t)
