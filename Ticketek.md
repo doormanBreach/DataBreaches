@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Passwords, Salutations
 
 ## Free download Link
 
-[Ticketek breach Free Download Link](https://link-to.net/1229997/396.5252376276258/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3l2Q2JOaWtXdWtmaklkZi90aWNrZXRlay5jb20uYXUvZmlsZQ==)
+[Ticketek breach Free Download Link](https://tinyurl.com/2b2k277t)
