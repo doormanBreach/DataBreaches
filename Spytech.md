@@ -12,4 +12,4 @@ Browsing histories, Device information, Email addresses, Names, Passwords, Purch
 
 ## Free download Link
 
-[Spytech breach Free Download Link](https://link-to.net/1229997/473.6658931156829/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0N4YTd2MlhSSGRsS0pJRC9zcHl0ZWNoLXdlYi5jb20vZmlsZQ==)
+[Spytech breach Free Download Link](https://tinyurl.com/2b2k277t)
