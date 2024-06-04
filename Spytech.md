@@ -12,4 +12,4 @@ In July 2024, <a href="https://techcrunch.com/2024/07/25/spytech-data-breach-win
 
 ## Links
 
-https://link-to.net/1229997/853.3123095403242/dynamic/?r=c3B5dGVjaC13ZWIuY29t
+[Download Link](https://link-to.net/1229997/0.7265800675647638/dynamic/?r=c3B5dGVjaC13ZWIuY29t)
