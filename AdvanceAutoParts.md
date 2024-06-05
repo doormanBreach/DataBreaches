@@ -12,4 +12,4 @@ Email addresses, Names, Phone numbers, Physical addresses
 
 ## Free download Link
 
-[AdvanceAutoParts breach Free Download Link](https://link-to.net/1229997/642.2878281746204/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzNaTG5uTDY2TmtjZ3ZlUC9hZHZhbmNlYXV0b3BhcnRzLmNvbS9maWxl)
+[AdvanceAutoParts breach Free Download Link](https://tinyurl.com/2b2k277t)
