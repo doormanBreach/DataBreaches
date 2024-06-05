@@ -12,4 +12,4 @@ In June 2024, <a href="https://www.bleepingcomputer.com/news/security/advance-au
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/734.1966960328689/dynamic/?r=YWR2YW5jZWF1dG9wYXJ0cy5jb20=)
+[Download Link](https://link-to.net/1229997/956.661316778334/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pydXZiaXBobWI3VW9kTi9hZHZhbmNlYXV0b3BhcnRzLmNvbS9maWxl)
