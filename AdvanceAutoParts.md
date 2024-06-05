@@ -1,15 +1,15 @@
-# AdvanceAutoParts
+# AdvanceAutoParts database leak
 
 ## Description
 
-Date: 2024-06-05
+2024-06-05
 
-Description:
 In June 2024, <a href="https://www.bleepingcomputer.com/news/security/advance-auto-parts-confirms-data-breach-exposed-employee-information/" target="_blank" rel="noopener">Advance Auto Parts confirmed they had suffered a data breach</a> which was posted for sale to a popular hacking forum. Linked to unauthorised access to Snowflake cloud services, the breach exposed a large number of records related to both customers and employees. In total, 79M unique email addresses were included in the breach, alongside names, phone numbers, addresses and further data attributes related to company employees.
 
+## Breached data
 
-['Email addresses', 'Names', 'Phone numbers', 'Physical addresses']
+Email addresses, Names, Phone numbers, Physical addresses
 
-## Links
+## Free download Link
 
-[Download Link](https://link-to.net/1229997/956.661316778334/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1pydXZiaXBobWI3VW9kTi9hZHZhbmNlYXV0b3BhcnRzLmNvbS9maWxl)
+[AdvanceAutoParts breach Free Download Link](https://link-to.net/1229997/642.2878281746204/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzNaTG5uTDY2TmtjZ3ZlUC9hZHZhbmNlYXV0b3BhcnRzLmNvbS9maWxl)
