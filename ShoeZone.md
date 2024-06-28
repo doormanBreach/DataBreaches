@@ -12,4 +12,4 @@ Email addresses, Names, Partial credit card data, Physical addresses, Purchases
 
 ## Free download Link
 
-[ShoeZone breach Free Download Link](https://link-to.net/1229997/148.38435486072154/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L09lUGFlSlhDNHR4M3JrSC9zaG9lem9uZS5jb20vZmlsZQ==)
+[ShoeZone breach Free Download Link](https://tinyurl.com/2b2k277t)
