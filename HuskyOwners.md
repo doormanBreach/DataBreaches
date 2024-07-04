@@ -12,4 +12,4 @@ In July 2024, <a href="https://archive.is/lFPTL" target="_blank" rel="noopener">
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/867.7390796028964/dynamic/?r=aHVza3ktb3duZXJzLmNvbQ==)
+[Download Link](https://link-to.net/1229997/441.5517180847304/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3loaWl2TWhZbnFqSm1HOC9odXNreS1vd25lcnMuY29tL2ZpbGU=)
