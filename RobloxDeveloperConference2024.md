@@ -12,4 +12,4 @@ In July 2024, the events management platform FNTECH suffered a data breach that 
 
 ## Links
 
-https://link-to.net/YOUR_USER/792.525856608466/dynamic/?r=Zm50ZWNoLmNvbQ==
+https://link-to.net/1229997/82.45218708029367/dynamic/?r=Zm50ZWNoLmNvbQ==
