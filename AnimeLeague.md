@@ -12,4 +12,4 @@ Dates of birth, Email addresses, IP addresses, Passwords, Phone numbers, Private
 
 ## Free download Link
 
-[AnimeLeague breach Free Download Link](https://link-to.net/1229997/628.0721843735153/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2wwaDlxc2xKYmYzNFQ0Vi9hbmltZWxlYWd1ZS5uZXQvZmlsZQ==)
+[AnimeLeague breach Free Download Link](https://tinyurl.com/2b2k277t)
