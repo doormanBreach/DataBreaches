@@ -12,4 +12,4 @@ In July 2024, <a href="https://www.animeleague.net/forum/viewtopic.php?f=55&t=13
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/91.95073987746439/dynamic/?r=YW5pbWVsZWFndWUubmV0)
+[Download Link](https://link-to.net/1229997/608.2708109222953/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L2RpSjh0c29wNnZwc1V0di9hbmltZWxlYWd1ZS5uZXQvZmlsZQ==)
