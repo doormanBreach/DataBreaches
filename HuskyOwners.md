@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Time zones, Usernames
 
 ## Free download Link
 
-[HuskyOwners breach Free Download Link](https://link-to.net/1229997/219.38195675819426/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0l0a0VzZTFOOVdMOGJJbS9odXNreS1vd25lcnMuY29tL2ZpbGU=)
+[HuskyOwners breach Free Download Link](https://tinyurl.com/2b2k277t)
