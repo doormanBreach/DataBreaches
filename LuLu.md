@@ -12,4 +12,4 @@ In July 2024, <a href="https://www.csoonline.com/article/2516119/hackers-steal-d
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/715.0498844150885/dynamic/?r=bHVsdWh5cGVybWFya2V0LmNvbQ==)
+[Download Link](https://link-to.net/1229997/561.4097279032768/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3lFV3J0cDlHc0VmYkgxQi9sdWx1aHlwZXJtYXJrZXQuY29tL2ZpbGU=)
