@@ -12,4 +12,4 @@ Email addresses, Names, Passwords, Phone numbers, Physical addresses, Purchases
 
 ## Free download Link
 
-[LuLu breach Free Download Link](https://link-to.net/1229997/360.5609624049196/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L25SZ2QyYVBmRWFndEd2OC9sdWx1aHlwZXJtYXJrZXQuY29tL2ZpbGU=)
+[LuLu breach Free Download Link](https://tinyurl.com/2b2k277t)
