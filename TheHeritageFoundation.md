@@ -12,4 +12,4 @@ In July 2024, <a href="https://cyberscoop.com/hackvists-release-two-gigabytes-of
 
 ## Links
 
-[Download Link](https://link-to.net/1229997/758.1168089585329/dynamic/?r=aGVyaXRhZ2Uub3Jn)
+[Download Link](https://link-to.net/1229997/596.0109164004435/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L29FWEtna3R5YmtVSnBjQi9oZXJpdGFnZS5vcmcvZmlsZQ==)
