@@ -12,4 +12,4 @@ Email addresses, IP addresses, Names, Passwords, Usernames
 
 ## Free download Link
 
-[TheHeritageFoundation breach Free Download Link](https://link-to.net/1229997/466.1728141885513/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0dhZUs0Ylg0MU1YT0xMUC9oZXJpdGFnZS5vcmcvZmlsZQ==)
+[TheHeritageFoundation breach Free Download Link](https://tinyurl.com/2b2k277t)
