@@ -12,4 +12,4 @@ Email addresses, Passwords
 
 ## Free download Link
 
-[TelegramStealerLogs breach Free Download Link](https://link-to.net/1229997/670.8698869838663/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3VNbEd6U3VwY1dCdVJVNi8vZmlsZQ==)
+[TelegramStealerLogs breach Free Download Link](https://tinyurl.com/2b2k277t)
