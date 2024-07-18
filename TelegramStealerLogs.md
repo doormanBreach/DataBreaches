@@ -12,4 +12,4 @@ In July 2024, <a href="https://troyhunt.com/begging-for-bounties-and-more-info-s
 
 ## Links
 
-https://link-to.net/1229997/397.53383292005884/dynamic/?r=
+[Download Link](https://link-to.net/1229997/807.94003074606/dynamic/?r=)
