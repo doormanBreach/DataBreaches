@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Profile photos
 
 ## Free download Link
 
-[Ubook breach Free Download Link](https://link-to.net/1229997/277.0541302285403/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3NKa2pyZXVXazMyQVFoQS91Ym9vay5jb20vZmlsZQ==)
+[Ubook breach Free Download Link](https://tinyurl.com/2b2k277t)
