@@ -12,4 +12,4 @@ In July 2024, <a href="https://gbhackers.com/ubook-suffered-data-breach/" target
 
 ## Links
 
-https://link-to.net/1229997/895.9052224938627/dynamic/?r=dWJvb2suY29t
+[Download Link](https://link-to.net/1229997/357.7813259120018/dynamic/?r=dWJvb2suY29t)
