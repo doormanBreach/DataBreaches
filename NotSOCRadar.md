@@ -12,4 +12,4 @@ Email addresses
 
 ## Free download Link
 
-[NotSOCRadar breach Free Download Link](https://link-to.net/1229997/711.0258377289373/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L0tuMndERWY1Y1g0N3RsSi8vZmlsZQ==)
+[NotSOCRadar breach Free Download Link](https://tinyurl.com/2b2k277t)
