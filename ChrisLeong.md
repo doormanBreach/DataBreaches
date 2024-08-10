@@ -12,4 +12,4 @@ Dates of birth, Email addresses, Genders, Names, Nationalities, Phone numbers, P
 
 ## Free download Link
 
-[ChrisLeong breach Free Download Link](https://link-to.net/1229997/451.0966605155173/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3LzhLWnNXN1RSaTVHTUpCZy9jaHJpc2xlb25nLmNvbS9maWxl)
+[ChrisLeong breach Free Download Link](https://tinyurl.com/2b2k277t)
