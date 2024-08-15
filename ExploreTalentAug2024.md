@@ -12,4 +12,4 @@ Email addresses
 
 ## Free download Link
 
-[ExploreTalentAug2024 breach Free Download Link](https://link-to.net/1229997/294.97952635099625/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L29NN0k1aTZVbU9KODRVMS9leHBsb3JldGFsZW50LmNvbS9maWxl)
+[ExploreTalentAug2024 breach Free Download Link](https://tinyurl.com/2b2k277t)
