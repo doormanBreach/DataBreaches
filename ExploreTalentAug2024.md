@@ -12,4 +12,4 @@ In August 2024, <a href="https://maia.crimew.gay/posts/gps-track-deez-nuts/" tar
 
 ## Links
 
-https://link-to.net/YOUR_USER/450.36417264761866/dynamic/?r=ZXhwbG9yZXRhbGVudC5jb20=
+https://link-to.net/1229997/889.9254722761697/dynamic/?r=ZXhwbG9yZXRhbGVudC5jb20=
