@@ -12,4 +12,4 @@ Email addresses, Names
 
 ## Free download Link
 
-[Tracki breach Free Download Link](https://link-to.net/1229997/759.2347389583945/dynamic/?r=aHR0cHM6Ly93d3cubWVkaWFmaXJlLmNvbS92aWV3L3ZtUUdGUDdZZnJFWUUxQy90cmFja2kuY29tL2ZpbGU=)
+[Tracki breach Free Download Link](https://tinyurl.com/2b2k277t)
